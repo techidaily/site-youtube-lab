@@ -1,6 +1,6 @@
-# TechiDaily
+# Youtube Lab Site
 
-Welcome to [https://android-transfer.techidaily.com](https://android-transfer.techidaily.com)
+Welcome to [https://youtube-lab.techidaily.com](https://youtube-lab.techidaily.com)
 
 ## Publish
 
