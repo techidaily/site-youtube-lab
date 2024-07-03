@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Embark on Your Video Vision  Start Your YouTube Channel\""
-date: 2024-06-17T20:12:21.264Z
-updated: 2024-06-18T20:12:21.264Z
+date: 2024-07-02T13:42:11.074Z
+updated: 2024-07-03T13:42:11.074Z
 tags:
   - ai video
   - ai youtube
@@ -221,7 +221,7 @@ A common issue for many YouTubers is consistency and accountability. Without a p
 
 In order to properly establish an audience for your channel, there needs to be consistency and that is why it is so important to have a content calendar to affirm when a piece of content is due to be published, thus giving the creator a good idea of when to start each step of the process to meet publishing date.
 
-There are many ways to build out a content calendar, you can simply use a spreadsheet, a calendar, or you can use other management/organization tools such as [Trello](https://trello.com/)or [Asana](https://asana.com/). We recommend using Google Sheet and Google Calendar to start, as it is free and easy to use.
+There are many ways to build out a content calendar, you can simply use a spreadsheet, a calendar, or you can use other management/organization tools such as [Trello](https://trello.com/) or [Asana](https://asana.com/). We recommend using Google Sheet and Google Calendar to start, as it is free and easy to use.
 
 Since you are starting out, we suggest that you plan on a monthly basis, as it’ll allow you to be flexible to trending topics and adjust to insights that you’ll acquire as you analyze your content’s performance.
 
@@ -281,7 +281,7 @@ Also, the description is where you can include some boilerplate channel informat
 
 You have 5,000 characters to work with, but only the first three lines will be above the fold.
 
-Pro Tip: If your video is on the longer end (over 20 minutes) or has multiple sections, then you should consider [adding timestamps](https://www.youtube.com/watch?v=tBiPumGnVT4)in the description to help the viewer skip to the spot they are most interested in.
+Pro Tip: If your video is on the longer end (over 20 minutes) or has multiple sections, then you should consider [adding timestamps](https://www.youtube.com/watch?v=tBiPumGnVT4) in the description to help the viewer skip to the spot they are most interested in.
 
 #### 3. Tips for Writing the Best Tags for YouTube Video
 
@@ -332,7 +332,7 @@ Unless you have a huge social media following, it will be challenging to get man
 
 Grow your social media channel gradually by targeting your ideal viewer persona and hashtagging your content. On social media channels such as Facebook and Twitter, keep producing content for them, but don’t forget to share content from other YouTubers. If you see a cool video relevant to your audience, share it as well.
 
-Lead your followers to your YouTube channel with content designed specifically for your social media channel. For example, Instagram Stories are a great way to engage directly with your followers, giving them a sneak peek or letting them know that your latest YouTube videos are up. You can even [link directly to your YouTube channel](https://www.plannthat.com/instagram-story-links/)from your Instagram story.
+Lead your followers to your YouTube channel with content designed specifically for your social media channel. For example, Instagram Stories are a great way to engage directly with your followers, giving them a sneak peek or letting them know that your latest YouTube videos are up. You can even [link directly to your YouTube channel](https://www.plannthat.com/instagram-story-links/) from your Instagram story.
 
 ![Instagram Story Caspar Lee](https://images.wondershare.com/filmora/article-images/instagram-story-caspar-lee.jpg)
 

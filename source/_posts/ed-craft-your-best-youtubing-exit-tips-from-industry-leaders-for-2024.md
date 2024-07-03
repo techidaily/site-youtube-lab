@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Craft Your Best YouTubing Exit - Tips From Industry Leaders for 2024\""
-date: 2024-06-17T20:30:42.305Z
-updated: 2024-06-18T20:30:42.305Z
+date: 2024-07-02T13:42:11.640Z
+updated: 2024-07-03T13:42:11.640Z
 tags:
   - ai video
   - ai youtube
@@ -228,7 +228,7 @@ Click “Media” on the top menu and import your outro template to the timeline
 
 **Step 4:** Use the screen blind mode to edit the YouTube outro elements at the preview window. Also, you can select audio and add it as outro music for YouTube. Click “Title” to select your preferred font editor. Once you are done, export the outro to the media file.
 
-Check this video tutorial. It's very easy and simple to make a YouTube outro. Free to download the video maker and have a try now![![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+Check this video tutorial. It's very easy and simple to make a YouTube outro. Free to download the video maker and have a try now ![![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Part 4: How To Add An Outro To A Youtube Video
 
