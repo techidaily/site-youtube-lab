@@ -1,7 +1,7 @@
 ---
 title: "Mastering the Art of Audio Capture Sans Microphone"
-date: 2024-06-17T20:48:43.211Z
-updated: 2024-06-18T20:48:43.211Z
+date: 2024-07-13T16:53:13.918Z
+updated: 2024-07-14T16:53:13.918Z
 tags:
   - ai video
   - ai youtube
@@ -79,6 +79,9 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -126,3 +129,63 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/updated-which-screen-grab-tool-wins-insights-into-obs-vs-fraps-for-2024/"><u>[Updated] Which Screen Grab Tool Wins? Insights Into OBS vs Fraps for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/egies-for-optimal-featured-channels-in-youtubes-algorithm-for-2024/"><u>Strategies for Optimal Featured Channels in YouTube's Algorithm for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-best-soundtracks-at-your-fingertips-for-online-creators/"><u>2024 Approved  The Best Soundtracks at Your Fingertips for Online Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-pathway-to-online-success-building-a-new-youtube-channel/"><u>2024 Approved  The Pathway to Online Success  Building a New YouTube Channel</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-perfect-your-clips-step-by-step-youtube-editing-tips-for-2024/"><u>[Updated] Perfect Your Clips  Step-by-Step YouTube Editing Tips for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-ubiquitous-display-dynamics-choosing-a-media-company/"><u>In 2024, Ubiquitous Display Dynamics  Choosing a Media Company</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-harmonizing-hues-audio-fade-techniques-in-logic-pro/"><u>[New] Harmonizing Hues  Audio Fade Techniques in Logic Pro</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/visual-symphony-adding-music-to-your-youtube-masterpieces/"><u>Audiovisual Symphony  Adding Music to Your YouTube Masterpieces</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unraveling-revenue-how-much-do-creators-make-on-youtube-adverts/"><u>2024 Approved  Unraveling Revenue  How Much Do Creators Make on Youtube Adverts?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-deciphering-the-best-youtube-video-trackers-for-success/"><u>[Updated] In 2024, Deciphering the Best YouTube Video Trackers for Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-youtube-journey-enhancers-best-narrative-methods/"><u>2024 Approved  YouTube Journey Enhancers  Best Narrative Methods</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-imagescope-critique-platform/"><u>[New] ImageScope Critique Platform</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unlocking-perfect-presentation-youtubes-video-ratio-insights/"><u>2024 Approved  Unlocking Perfect Presentation  YouTube's Video Ratio Insights</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-streamlining-your-websites-visual-content-via-cropping/"><u>[Updated] In 2024, Streamlining Your Website's Visual Content via Cropping</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-flawless-free-download-of-youtube-video-covers-no-hurdles-in-2024/"><u>[Updated] Flawless Free Download of YouTube Video Covers - No Hurdles, In 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-exploring-subscriptions-the-value-of-youtube-premium-for-2024/"><u>[Updated] Exploring Subscriptions  The Value of YouTube Premium for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-social-media-showdown-continues-the-ongoing-debate-on-igtv-and-youtube-for-2024/"><u>[Updated] Social Media Showdown Continues  The Ongoing Debate on IGTV and YouTube for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-bring-clarity-to-your-feed-a-guide-to-crafting-square-videos-in-imovie/"><u>[New] In 2024, Bring Clarity to Your Feed  A Guide to Crafting Square Videos in iMovie</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-20-must-have-video-tools-for-new-creators/"><u>[Updated] 20 Must-Have Video Tools For New Creators</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-ultimate-guide-to-choosing-video-fps-30fps-vs-60fps/"><u>[Updated] In 2024, Ultimate Guide to Choosing Video FPS  30Fps Vs. 60Fps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-youtube-snack-seekers-free-top-downloads-for-2024/"><u>Leading YouTube Snack Seekers  Free, Top Downloads for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-curating-the-perfect-soundtrack-youtubes-best-audio-sites-ranked/"><u>[New] In 2024, Curating the Perfect Soundtrack  YouTube's Best Audio Sites Ranked</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-perfect-thumbnail-size-for-click-through-rates-for-2024/"><u>[Updated] Perfect Thumbnail Size for Click-Through Rates for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/precision-in-practice-detailed-manual-on-windows-pc-live-tv-capture-for-2024/"><u>Precision in Practice  Detailed Manual on Windows PC Live TV Capture for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-gain-traction-with-effective-video-descriptions-and-tagging/"><u>[Updated] In 2024, Gain Traction with Effective Video Descriptions and Tagging</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-exclusive-8-high-youtube-viewership-observer-for-2024/"><u>[Updated] Exclusive 8-High YouTube Viewership Observer for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xplore-free-youtube-channel-imagery-tools/"><u>[New] Explore Free YouTube Channel Imagery Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-winning-strategies-and-hashtags-for-youtubes-best-freefirers/"><u>2024 Approved  Winning Strategies & Hashtags for YouTube's Best FreeFirers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/aking-money-on-youtube-a-guide/"><u>[New] Making Money on YouTube  A Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-from-capturing-moments-to-sharing-them-editing-with-adobe-premiere/"><u>[Updated] In 2024, From Capturing Moments to Sharing Them  Editing with Adobe Premiere</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-20-hit-tiktok-rhymes-you-cant-miss/"><u>[New] 20 Hit TikTok Rhymes You Can't Miss</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Nokia 130 Music? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ltra-quick-fortnite-image-design/"><u>[New] Ultra-Quick Fortnite Image Design</u></a></li>
+<li><a href="https://windows11.techidaily.com/why-sudo-is-revolutionizing-windows-systems/"><u>Why Sudo Is Revolutionizing Windows Systems</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/2024-approved-streamlining-sound-creation-the-6-most-user-friendly-free-online-auditory-editing-tools/"><u>2024 Approved Streamlining Sound Creation The 6 Most User-Friendly, Free Online Auditory Editing Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-film-synopsis-must-know-points/"><u>Short Film Synopsis  Must-Know Points!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ransforming-raw-footage-into-polished-youtube-videos-with-finalcut/"><u>[New] Transforming Raw Footage Into Polished YouTube Videos with FinalCut</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-crafting-charismatic-videos-with-diy-camera-setups/"><u>[Updated] Crafting Charismatic Videos with DIY Camera Setups</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-seamlessly-embedding-youtube-subtitles-an-easy-to-follow-guide/"><u>In 2024, Seamlessly Embedding YouTube Subtitles  An Easy-to-Follow Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/udience-choice-great-movies-not-on-the-main-list-for-2024/"><u>[New] Audience Choice  Great Movies Not on the Main List for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-dynamic-image-narration-toolbox/"><u>2024 Approved  Dynamic Image Narration Toolbox</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-guide-to-youtubes-best-music-responses/"><u>[New] The Ultimate Guide to YouTube's Best Music Responses</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-up-sports-content-sharing-on-a-mac-device-for-2024/"><u>Setting Up Sports Content Sharing on a Mac Device for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-learning-leaders-most-influential-edu-tutorials-yt/"><u>In 2024, Learning Leaders  Most Influential Edu Tutorials YT</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-visual-wonders-home-made-effects-demystified-for-2024/"><u>Crafting Visual Wonders  Home-Made Effects Demystified for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-top-free-video-smoothing-tools-for-pc-and-mac/"><u>New In 2024, Top Free Video Smoothing Tools for PC and Mac</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-execute-a-budget-friendly-youtube-seminar/"><u>[Updated] How to Execute a Budget-Friendly Youtube Seminar</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-maximizing-earnings-with-youtube-studio-monetization-on-any-device/"><u>In 2024, Maximizing Earnings with YouTube Studio Monetization on Any Device</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-transform-your-food-blog-into-an-engaging-mukbang-show/"><u>In 2024, Transform Your Food Blog Into an Engaging Mukbang Show</u></a></li>
+<li><a href="https://games-able.techidaily.com/data-survival-for-gamers-backup-of-screenshots/"><u>Data Survival for Gamers: Backup of Screenshots</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/imeo-and-youtube-a-compreayer-of-their-core-philosophies-for-2024/"><u>[New] Vimeo and YouTube  A Compreayer of Their Core Philosophies for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-mastering-mp4-editing-on-mac-top-selections-for-youtubers/"><u>[New] In 2024, Mastering MP4 Editing on Mac  Top Selections for YouTubers</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/less-is-more-the-best-video-url-reducers-revealed/"><u>Less Is More  The Best Video URL Reducers Revealed</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-unlock-your-creativity-top-movie-making-software-for-home-dvds/"><u>New In 2024, Unlock Your Creativity Top Movie Making Software for Home DVDs</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/what-is-ai-voice-in-2024/"><u>What Is AI Voice, In 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-tailoring-the-perfect-youtube-conclusion-for-engagement/"><u>In 2024, Tailoring the Perfect YouTube Conclusion for Engagement</u></a></li>
+</ul></div>

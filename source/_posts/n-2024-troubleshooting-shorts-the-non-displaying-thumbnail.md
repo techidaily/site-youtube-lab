@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Troubleshooting Shorts  The Non-Displaying Thumbnail\""
-date: 2024-06-17T20:52:51.009Z
-updated: 2024-06-18T20:52:51.009Z
+date: 2024-07-13T16:58:14.776Z
+updated: 2024-07-14T16:58:14.776Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,9 @@ _"They ALL have randomly selected different parts of each video I have uploaded 
 
 The reason behind this is the difference in the thumbnail size. Regular YouTube video thumbnails are in the ratio of 16:9\. Meanwhile, Shorts uses a ratio of 9:16\. The thing is that YouTube does not yet allow you to upload 9:16 thumbnails. Thus, the thumbnail for Shorts may show correctly on the video section but not on the Shorts shelf.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q3\. How to Fix YouTube Shorts Thumbnail Problem?
 
 ![fix youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/fix-youtube-shorts-thumbnail-not-showing.JPG)
@@ -231,3 +234,42 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/best-soundstage-networking-for-2024/"><u>Best Soundstage Networking for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-demystifying-youtube-premium-membership-benefits/"><u>[New] 2024 Approved  Demystifying YouTube Premium Membership Benefits</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-drive-engagement-not-farewells-top-strategies-to-keep-your-audience-hooked-on-youtube/"><u>[New] 2024 Approved  Drive Engagement, Not Farewells  Top Strategies to Keep Your Audience Hooked on YouTube</u></a></li>
+<li><a href="https://change-location.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/0-fastest-growing-youtube-channels-to-inspire-you-for-2024/"><u>[New] 10 Fastest Growing YouTube Channels to Inspire You for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-youtube-to-avi-convertors-explained-for-2024/"><u>Top 8 YouTube-to-AVI Convertors Explained for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-continuous-streams-perfect-loops-of-youtube-videos-for-tvs/"><u>[New] 2024 Approved  Continuous Streams  Perfect Loops of YouTube Videos for TVs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/0-guide-to-simple-business-channel-launches-on-youtube-for-2024/"><u>Top 10 Guide to Simple Business Channel Launches on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-achieving-peak-video-clarity-with-youtubes-tools/"><u>[New] 2024 Approved  Achieving Peak Video Clarity with YouTube's Tools</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Oppo A79 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-essential-insights-for-youtube-content-protection/"><u>[New] 2024 Approved  Essential Insights for YouTube Content Protection</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-your-potential-income-from-youtube-sponsored-videos-in-2024/"><u>What's Your Potential Income From YouTube Sponsored Videos, In 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-effortless-strategy-deleting-dislikes-from-youtube-discussions/"><u>[New] 2024 Approved  Effortless Strategy  Deleting Dislikes From YouTube Discussions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-queens-rising-youtubes-top-10-for-2024/"><u>Pixel Queens Rising  YouTube's #Top 10 for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-unforgettable-experiences-for-more-subscribers-with-these-6-tips-for-2024/"><u>Craft Unforgettable Experiences for More Subscribers with These 6 Tips for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-charting-success-with-youtube-income-streams/"><u>[New] 2024 Approved  Charting Success with YouTube Income Streams</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-essential-insights-for-integrating-hashtags-into-game-focused-yt-content/"><u>[New] 2024 Approved  Essential Insights for Integrating Hashtags Into Game-Focused YT Content</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-beware-the-allure-of-sham-youtube-audience-for-2024/"><u>[New] Beware the Allure of Sham YouTube Audience for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-vibes-current-hits-to-match-your-yt-short-tunes/"><u>Chill Vibes  Current Hits to Match Your YT Short Tunes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-broadcast-easily-3-steps-to-post-mp3-on-youtube/"><u>[New] 2024 Approved  Broadcast Easily  3 Steps to Post MP3 on YouTube</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-how-to-stabilize-your-camera-without-buying-a-tripod/"><u>In 2024, How to Stabilize Your Camera without Buying a Tripod?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-a-guide-to-enhancing-obs-with-free-lut-downloads/"><u>[New] A Guide to Enhancing OBS with Free LUT Downloads</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-embark-into-the-best-youtube-vr-content-ever/"><u>[New] 2024 Approved  Embark Into the Best YouTube VR Content Ever!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-decrypting-youtubes-view-count-calculation-system/"><u>[New] 2024 Approved  Decrypting YouTube’s View-Count Calculation System</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-digital-canvas-delight-premier-apps-for-ipados-artistry/"><u>2024 Approved  Digital Canvas Delight  Premier Apps for iPadOS Artistry</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-spotlights-showcasing-7-comedic-content-pieces-for-2024/"><u>Smirk Spotlights  Showcasing 7 Comedic Content Pieces for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-youtube-shorts-downloaders-free-and-online/"><u>Top 6 YouTube Shorts Downloaders [Free & Online]</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-understanding-pexelscom-a-resource-for-high-quality-creative-commons-images/"><u>New Understanding Pexels.com A Resource for High-Quality, Creative Commons Images</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-10-tiktok-trends-in-video-responses/"><u>[Updated] 2024 Approved  10 TikTok Trends in Video Responses</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-how-to-produce-a-trending-solo-podcast-series/"><u>In 2024, How To Produce A Trending Solo Podcast Series</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/content-calendar-for-successful-instagram-filmmaking/"><u>Content Calendar for Successful Instagram Filmmaking</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-vivo-g2-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Vivo G2 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-zte-axon-40-lite-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock ZTE Axon 40 Lite Pattern Lock Screen</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/0-top-editing-apps-at-no-cost-online-for-2024/"><u>[New] 10 Top Editing Apps at No Cost Online for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-open-your-iphone-6s-without-a-home-button-drfone-by-drfone-ios/"><u>How To Open Your iPhone 6s Without a Home Button | Dr.fone</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, How to Fix YouTube Shorts Thumbnail Not Showing Problem"
-date: 2024-06-17T20:37:08.652Z
-updated: 2024-06-18T20:37:08.652Z
+date: 2024-07-13T16:39:02.777Z
+updated: 2024-07-14T16:39:02.777Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,9 @@ Adding a custom thumbnail for YouTube Shorts is the same as adding one for long-
 
 ![changing shorts thumbnail on youtube studio](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Q2\. Why Are YouTube Shorts Thumbnails Not Showing?
 
 It's not you who's the only one with Shorts thumbnails not showing. Many short-form content creators on the platform are also facing this issue. A YouTuber took to Reddit to complain about how he uploaded custom thumbnails for all his videos. The thumbnails are correct in the editor. However, YouTube still displays a random frame as the thumbnail on the Shorts shelf.
@@ -231,3 +234,63 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-keeping-track-saving-insta-visuals-on-iphone-for-2024/"><u>[New] Keeping Track  Saving Insta Visuals on iPhone for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/g-every-penny-count-in-youtube-webinars-for-2024/"><u>Making Every Penny Count in Youtube Webinars for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-step-by-step-process-to-revamp-your-youtube-audio-tracks/"><u>[New] 2024 Approved  Step-by-Step Process to Revamp Your YouTube Audio Tracks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-roadmap-to-youtube-fame-accruing-more-subscribers/"><u>In 2024, The Roadmap to YouTube Fame  Accruing More Subscribers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-cutting-edge-notebooks-and-tools-to-elevate-your-editing-game/"><u>[Updated] In 2024, Cutting Edge  Notebooks and Tools to Elevate Your Editing Game</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-vision-navigating-video-degrees-with-ease-for-2024/"><u>[Updated] YouTube Vision  Navigating Video Degrees with Ease for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ning-direct-access-to-your-channels-subscribe-page-for-2024/"><u>Designing Direct Access to Your Channel's Subscribe Page for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-bypass-a-youtube-strike-and-keep-creating-videos/"><u>[New] 2024 Approved  How to Bypass a YouTube Strike and Keep Creating Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-global-scoreboard-the-premier-six-of-video-downloads/"><u>[New] 2024 Approved  Global Scoreboard  The Premier Six of Video Downloads</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-the-ultimate-list-of-imovie-alternatives-for-android-users/"><u>Updated The Ultimate List of iMovie Alternatives for Android Users</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/complete-fixes-to-solve-apple-iphone-13-mini-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>Complete Fixes To Solve Apple iPhone 13 mini Randomly Asking for Apple ID Password</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-youngest-entrepreneur-in-media-lands-fortune-peak/"><u>[Updated] 2024 Approved  Youngest Entrepreneur in Media Lands Fortune Peak</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-navigating-the-digital-realm-uploading-with-premiere-and-youtube/"><u>[New] 2024 Approved  Navigating the Digital Realm  Uploading with Premiere & YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-step-by-step-manual-for-estimating-youtube-ad-revenue-and-views/"><u>[New] 2024 Approved  Step-by-Step Manual for Estimating YouTube Ad Revenue & Views</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-ultimate-guide-to-designing-youtube-shorts-templates/"><u>[Updated] In 2024, The Ultimate Guide to Designing YouTube Shorts Templates</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-visioncapture-1080p-hd-recorders-for-2024/"><u>[New] VisionCapture 1080P HD Recorders for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rom-zero-to-hero-youtube-tech-required-for-2024/"><u>[New] From Zero to Hero  YouTube Tech Required for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-ultimate-method-streaming-idevice-screens-on-youtube/"><u>[Updated] In 2024, The Ultimate Method  Streaming iDevice Screens on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-seamlessly-transferring-youtube-videos-to-your-instagram-account/"><u>[Updated] 2024 Approved  Seamlessly Transferring YouTube Videos to Your Instagram Account</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-enhance-editing-unlimited-free-audio-samples/"><u>2024 Approved  Enhance Editing  Unlimited Free Audio Samples</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-impact-and-value-of-instagrams-self-verifying-feature/"><u>2024 Approved  The Impact and Value of Instagram's Self-Verifying Feature</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-t-series-online-earnings-stream-for-2024/"><u>Decoding T-Series' Online Earnings Stream for 2024</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/2024-approved-make-a-countdown-video/"><u>2024 Approved Make A Countdown Video</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-zero-to-hero-with-photoshop-basics-in-snapseed/"><u>[New] From Zero to Hero with Photoshop Basics in Snapseed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-from-scratch-to-screen-video-editing-with-youtube-and-others/"><u>In 2024, From Scratch to Screen  Video Editing with YouTube & Others</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-the-apple-iphone-14-pro-sim-lock-4-easy-methods-by-drfone-ios/"><u>In 2024, How To Unlock The Apple iPhone 14 Pro SIM Lock 4 Easy Methods</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-best-free-youtube-ending-creators-top-6-picks/"><u>In 2024, Best Free YouTube Ending Creators - Top 6 Picks!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/urboupload-the-ultimate-guide-to-fast-youtube-video-rendering/"><u>[New] TurboUpload  The Ultimate Guide to Fast YouTube Video Rendering</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-clutter-convert-videos-discover-the-best-alternatives-for-flv-to-yt/"><u>Cut the Clutter, Convert Videos  Discover the Best Alternatives for Flv to YT</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-perfect-sound-placement-adding-music-seamlessly-to-youtube-videos/"><u>[Updated] 2024 Approved  Perfect Sound Placement  Adding Music Seamlessly to YouTube Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/erate-video-processing-for-youtube-uploads-for-2024/"><u>Accelerate Video Processing for YouTube Uploads for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-your-guide-to-the-essentials-of-youtube-tv-usage-for-2024/"><u>[Updated] Your Guide to the Essentials of YouTube TV Usage for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/10-must-watch-foreign-films-for-eloquence/"><u>10 Must-Watch Foreign Films for Eloquence</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-perfecting-the-live-broadcast-4-tips-for-fb-enthusiasts/"><u>[New] In 2024, Perfecting the Live Broadcast  4 Tips for FB Enthusiasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-quick-guide-to-rearranging-your-youtube-collection/"><u>2024 Approved  Quick Guide to Rearranging Your YouTube Collection</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-closing-your-vlog-right-top-6-free-youtube-outro-tools/"><u>[New] 2024 Approved  Closing Your Vlog Right  Top 6 Free YouTube Outro Tools!</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unveiling-creative-possibilities-anime-subscribe-buttons-for-your-youtube-channel-filmora/"><u>[New] Unveiling Creative Possibilities  Anime Subscribe Buttons for Your YouTube Channel (Filmora)</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/enabling-inactive-push-notifications-for-outlook/"><u>Enabling Inactive Push Notifications for Outlook</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-resolving-mobile-video-sending-problems-in-fb-chat/"><u>[Updated] 2024 Approved  Resolving Mobile Video Sending Problems in FB Chat</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rending-tactics-select-keywords-that-ignite-social-media-traffic-for-2024/"><u>[New] Trending Tactics  Select Keywords That Ignite Social Media Traffic for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ive-youtube-streaming-unlocked-beginners-obs-tutorial/"><u>[New] Live Youtube Streaming Unlocked  Beginner's OBS Tutorial</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hannel-makeovers-made-easy-top-10-online-tools-for-artists-for-2024/"><u>[New] Channel Makeovers Made Easy - Top 10 Online Tools for Artists for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-ideal-tags-elevating-your-contents-discovery-potential/"><u>[New] 2024 Approved  Ideal Tags  Elevating Your Content's Discovery Potential</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-can-i-unlock-my-apple-iphone-14-pro-after-forgetting-my-pin-code-by-drfone-ios/"><u>In 2024, How Can I Unlock My Apple iPhone 14 Pro After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-channeling-success-the-personal-brand-strategy-for-youtubers/"><u>[Updated] 2024 Approved  Channeling Success  The Personal Brand Strategy for YouTubers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-exploring-earning-potential-revenue-from-youtube-advertisements-for-2024/"><u>[Updated] Exploring Earning Potential  Revenue From YouTube Advertisements for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/strategies-for-eye-popping-fb-ad-videos/"><u>Strategies for Eye-Popping FB Ad Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-cut-cost-unlock-creativity-step-by-step-guide-to-professional-green-screen-effects-from-top-4-channels/"><u>[Updated] Cut Cost, Unlock Creativity  Step-by-Step Guide to Professional Green Screen Effects From Top 4 Channels</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/emystifying-youtube-shorts-content-strategy-guide/"><u>[New] Demystifying YouTube Shorts Content Strategy Guide</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-itel-a60-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Itel A60 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-building-an-online-empire-ramp-up-video-views/"><u>[Updated] Building an Online Empire  Ramp Up Video Views</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-vivo-v30-pro-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Vivo V30 Pro FRP Without Computer</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-elevate-video-reach-optimize-tags-for-600esplus-growth/"><u>[New] 2024 Approved  Elevate Video Reach  Optimize Tags for $6,00Es+ Growth</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-vivo-g2-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Vivo G2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-converting-spotify-playlist-content-for-youtube-music-compatibility/"><u>[Updated] 2024 Approved  Converting Spotify Playlist Content for YouTube Music Compatibility</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-your-gateway-to-youtube-entrepreneurship-the-best-10-easy-to-create-channels/"><u>2024 Approved  Your Gateway to YouTube Entrepreneurship  The Best 10 Easy-to-Create Channels</u></a></li>
+</ul></div>

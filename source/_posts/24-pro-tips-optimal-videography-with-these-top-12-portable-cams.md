@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Pro Tips  Optimal Videography with These Top 12 Portable Cams\""
-date: 2024-06-17T20:48:52.251Z
-updated: 2024-06-18T20:48:52.251Z
+date: 2024-07-13T16:53:24.795Z
+updated: 2024-07-14T16:53:24.795Z
 tags:
   - ai video
   - ai youtube
@@ -63,6 +63,9 @@ Check out my full list of [10 Things To Look For In A Vlogging Camera](https://t
 | CanonEOS RebelT7i          | ![Canon T7i](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-6.png)          | February2017  | Mid-size SLR     | Fully Articulated | **Yes** | $-   |
 | CanonEOSM6                 | ![Canon M6](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-7.png)           | February2017  | Mirrorless       | Flip Up           | **Yes** | $    |
 | NikonD5600                 | ![Canon D5600](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-8.png)        | November2016  | Compact SLR      | Fully Articulated | **Yes** | $-   |
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 | SonyCyber-Shot DSCRX 100 V | ![Sony RX100 V](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-9.png)       | October2016   | Compact          | Flip Up           | **No**  | $-   |
 | PanasonicLumixDMC-G85      | ![Panasonic G85](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-10.png)     | September2016 | Mirrorless       | Flip Up           | **Yes** | $-   |
 | CanonEOS80D                | ![Canon 80D](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-11.png)         | February2016  | Mid-size SLR     | Fully Articulated | **Yes** | $$   |
@@ -110,3 +113,71 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://sound-optimizing.techidaily.com/new-elevating-your-vocal-range-deepening-tones-with-filmoras-tools/"><u>New Elevating Your Vocal Range Deepening Tones with Filmoras Tools</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-get-ready-to-save-space-with-these-38-exceptional-android-compressor-apps/"><u>2024 Approved  Get Ready to Save Space with These 38 Exceptional Android Compressor Apps</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-complete-examination-unboxing-logitechs-ultimate-4k-webcam/"><u>2024 Approved  Complete Examination  Unboxing Logitech’s Ultimate 4K Webcam</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/evolutionize-your-room-strategies-to-record-clear-sound/"><u>[New] Revolutionize Your Room  Strategies to Record Clear Sound</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-new-vloggers-guide-to-top-10-youtube-editing-techniques/"><u>[New] New Vloggers' Guide to Top 10 YouTube Editing Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-mastering-youtube-metrics-for-earning-livelihoods/"><u>2024 Approved  Mastering YouTube Metrics for Earning Livelihoods</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unlock-the-power-of-social-sharing-for-your-youtube-videos/"><u>[New] 2024 Approved  Unlock the Power of Social Sharing for Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-expert-advice-for-embedding-youtube-playlists-with-ease/"><u>[Updated] 2024 Approved  Expert Advice for Embedding YouTube Playlists with Ease</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-miniature-mastery-in-the-social-sphere-who-wins-with-youtube-shorts-or-tiktoks/"><u>In 2024, Miniature Mastery in the Social Sphere  Who Wins with YouTube Shorts or TikToks?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-buyers-blueprint-for-youtubers/"><u>[New] 2024 Approved  The Ultimate Buyer's Blueprint for Youtubers</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-ultimate-web-based-mp3-modifier-app-for-2024/"><u>New Ultimate Web-Based MP3 Modifier App for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-motorola-edge-2023-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Motorola Edge 2023 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-digital-audience-accolades-for-content-makers/"><u>[New] In 2024, Digital Audience Accolades for Content Makers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-finding-the-free-visual-trove-online/"><u>In 2024, Finding the Free Visual Trove Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ive-into-youtubes-top-vr-experiences/"><u>[New] Dive Into YouTube's Top VR Experiences</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/choes-of-exploration-your-step-by-step-blueprint-to-becoming-a-travel-vlogger/"><u>[New] Echoes of Exploration  Your Step-by-Step Blueprint to Becoming a Travel Vlogger</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-choosing-the-best-camera-for-filming-mirrorless-or-dslr/"><u>2024 Approved  Choosing the Best Camera for Filming  Mirrorless or DSLR</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2023s-social-media-shopping-top-tiktok-and-amazon-picks-for-2024/"><u>2023’S Social Media Shopping  Top TikTok and Amazon Picks for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/arnessing-youtube-content-for-engaging-animation-gifs-for-2024/"><u>[New] Harnessing YouTube Content for Engaging Animation GIFs for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/6-instant-ways-to-make-windows-10-slideshow/"><u>6 Instant Ways to Make Windows 10 Slideshow</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-mp4-auditory-unlocking-nine-pathways-to-seamless-sound-extraction-in-the-upcoming-year/"><u>Updated MP4 Auditory Unlocking Nine Pathways to Seamless Sound Extraction in the Upcoming Year</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-astounding-footage-with-every-frame-the-10-best-for-image-stability/"><u>[Updated] Astounding Footage with Every Frame  The 10 Best for Image Stability</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/killful-conversion-of-youtube-videos-to-interactive-gif-artistry-for-2024/"><u>[New] Skillful Conversion of YouTube Videos to Interactive GIF Artistry for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-tiktok-content-creation-2024-the-importance-of-aspect-ratio/"><u>Updated TikTok Content Creation 2024 The Importance of Aspect Ratio</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-perfecting-the-science-of-instagram-highlight-recovery-for-2024/"><u>[Updated] Perfecting the Science of Instagram Highlight Recovery for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/gaming-earnings-on-youtube/"><u>2024 Gaming Earnings on YouTube</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Best Spy Watches For your Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-elevate-your-video-guide-with-annotations-on-youtube/"><u>[Updated] In 2024, Elevate Your Video Guide with Annotations on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-navigating-numbers-essential-online-stock-market-guides/"><u>In 2024, Navigating Numbers  Essential Online Stock Market Guides</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-free-tools-top-5-screen-recorder-apps-for-chrome-devices/"><u>[New] In 2024, Free Tools  Top 5 Screen Recorder Apps for Chrome Devices</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-perfecting-screenshots-editing-vids-vertically-on-fcpx/"><u>[Updated] 2024 Approved  Perfecting Screenshots  Editing Vids Vertically on FCPX</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-accessing-your-own-custom-designed-youtube-melodies/"><u>[Updated] 2024 Approved  Accessing Your Own Custom-Designed Youtube Melodies</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unrivaled-tale-composers-hub-for-2024/"><u>Unrivaled Tale Composers Hub for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-richest-rewards-for-creators/"><u>In 2024, Richest Rewards for Creators</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/explore-cost-free-cross-platform-virtual-communication-software-for-2024/"><u>Explore Cost-Free, Cross-Platform Virtual Communication Software for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-endless-creativity-free-youtube-art-resources/"><u>[New] In 2024, Endless Creativity  FREE YouTube Art Resources</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/top-15-capture-apps-for-win10-users-for-2024/"><u>Top 15 Capture Apps for Win10 Users for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-softer-side-of-promotion-elevating-your-audience-count/"><u>[Updated] In 2024, The Softer Side of Promotion  Elevating Your Audience Count</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ltimate-playbook-skyrocket-your-youtube-shorts-traffic-and-engagement-for-2024/"><u>The Ultimate Playbook  Skyrocket Your YouTube Shorts Traffic and Engagement for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-wrapping-up-with-impactful-endings/"><u>[Updated] 2024 Approved  Wrapping Up with Impactful Endings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/harting-a-course-for-revenue-with-ytp2024-insights/"><u>[New] Charting a Course for Revenue with YTP2024 Insights</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-unleash-creativity-premier-vimeo-editors-deliver/"><u>In 2024, Unleash Creativity  Premier Vimeo Editors Deliver</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-detailed-guidance-on-crafting-dynamic-yt-profiles/"><u>2024 Approved  Detailed Guidance on Crafting Dynamic YT Profiles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-screen-spectrum-your-gateway-to-gameplay/"><u>[New] In 2024, Screen Spectrum  Your Gateway to Gameplay</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/guide-to-share-youtube-video-on-facebook/"><u>Guide to Share YouTube Video on Facebook</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-engaging-viewers-first-impressions-the-art-of-backdrop-selection-in-thumbnails/"><u>2024 Approved  Engaging Viewers First Impressions  The Art of Backdrop Selection in Thumbnails</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ip-8-key-sites-to-harvest-free-eco-friendly-filming-backdrops-for-2024/"><u>Pro Tip! 8 Key Sites to Harvest FREE Eco-Friendly Filming Backdrops for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-how-to-transferring-youtube-shorts-from-pcandroid-or-ios/"><u>In 2024, How-To  Transferring YouTube Shorts From PC/Android or iOS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/eating-the-blues-of-overly-green-a-mac-video-editors-handbook-for-2024/"><u>[New] Beating the Blues of Overly Green  A Mac Video Editor's Handbook for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-convincing-audiences-to-join-a-positive-approach/"><u>[Updated] Convincing Audiences to Join  A Positive Approach</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-mastering-fair-use-navigating-youtube-copyright-challenges/"><u>[New] In 2024, Mastering Fair Use  Navigating YouTube Copyright Challenges</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-crafting-visibility-on-youtube-the-ultimate-guide-to-featured-channel-placement/"><u>[Updated] Crafting Visibility on YouTube  The Ultimate Guide to Featured Channel Placement</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-comedic-choreography-producing-funny-mock-films/"><u>[New] In 2024, Comedic Choreography  Producing Funny Mock Films</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-top-audiovisual-enhancements-for-video-producers-for-2024/"><u>[Updated] Top Audiovisual Enhancements for Video Producers for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-xiaomi-redmi-13c-5g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Xiaomi Redmi 13C 5G to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-step-by-step-setting-up-your-business-youtube-channel-on-mobile/"><u>In 2024, Step-by-Step  Setting Up Your Business YouTube Channel on Mobile</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-silence-is-golden-removing-background-noise-in-final-cut-pro-x-made-easy/"><u>New 2024 Approved Silence Is Golden Removing Background Noise in Final Cut Pro X Made Easy</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-strategies-for-standing-out-with-the-perfect-yt-brand-dimensions-for-2024/"><u>[Updated] Strategies for Standing Out with the Perfect YT Brand Dimensions for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-keep-a-permanent-record-fbm-calls-full-recording-for-2024/"><u>[New] Keep a Permanent Record  FBM Calls Full Recording for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-on-your-iphone-13-mini-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled On your iPhone 13 mini? How to Fix</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/googles-educational-leader-for-2017-mondly-kids-treats-guide/"><u>Google's Educational Leader for 2017 - Mondly Kids Treats Guide</u></a></li>
+</ul></div>

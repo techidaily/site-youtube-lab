@@ -1,7 +1,7 @@
 ---
 title: "\"Easy Guide  Unearthing Your YouTube Compliments & Critiques for 2024\""
-date: 2024-06-17T20:38:35.990Z
-updated: 2024-06-18T20:38:35.990Z
+date: 2024-07-13T16:40:47.817Z
+updated: 2024-07-14T16:40:47.817Z
 tags:
   - ai video
   - ai youtube
@@ -77,6 +77,9 @@ Tap the **More Options** icon from the top-left corner of the browser, and then 
 
 Tap the **Menu** icon from the top-left corner of the YouTube page, and tap **History** from the menu that appears. On the **History** page, tap **Comments** from the right pane to view/access your YouTube comments that you posted in the past.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Access the Desktop Version of YouTube](https://images.wondershare.com/filmora/article-images/view-past-youtube-comments-iphone.jpg)
 
 ### 3\. Find Your YouTube Comments on an Android Smartphone
@@ -244,3 +247,47 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-teachers-channel-blueprint-10-essential-tips-for-youtube-educators/"><u>[New] In 2024, Teachers’ Channel Blueprint  10 Essential Tips for YouTube Educators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/forming-cityscapes-into-sustainable-havens-of-life-for-2024/"><u>Transforming Cityscapes Into Sustainable Havens of Life for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-how-user-generated-feedback-influences-video-ranks/"><u>[Updated] In 2024, How User-Generated Feedback Influences Video Ranks</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-5-popular-photo-movie-maker-to-create-impressive-slideshow-videos/"><u>Updated In 2024, 5 Popular Photo Movie Maker to Create Impressive Slideshow Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nlocking-iphones-loop-functionality-for-2024/"><u>[New] Unlocking iPhone's Loop Functionality for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-guide-incorporating-youtube-videos-in-google-slides-for-2024/"><u>[Updated] Guide  Incorporating YouTube Videos in Google Slides for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-windows-movie-maker-free-download-and-installation-a-simple-guide/"><u>Updated In 2024, Windows Movie Maker Free Download and Installation A Simple Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-becoming-a-trendsetter-viral-tactics-for-fb-for-2024/"><u>[Updated] Becoming a Trendsetter  Viral Tactics for FB for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/levate-your-youtube-presence-filmmaking-with-filmora/"><u>[New] Elevate Your YouTube Presence  Filmmaking with Filmora</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-ultimate-guide-to-best-youtube-banner-size-and-channel-art-dimension/"><u>[New] In 2024, Ultimate Guide to Best YouTube Banner Size and Channel Art Dimension</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-becoming-a-bull-or-bear-best-stock-vids-on-youtube/"><u>[Updated] In 2024, Becoming a Bull or Bear  Best Stock Vids on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mastering-the-art-of-sports-highlight-filming-for-2024/"><u>[Updated] Mastering the Art of Sports Highlight Filming for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/est-wedding-stories-online-youtube-plus-vimeos-selection-8/"><u>The Best Wedding Stories Online  YouTube + Vimeo's Selection (8)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nveiling-our-exclusive-package-of-free-youtube-adornments/"><u>[New] Unveiling Our Exclusive Package of Free YouTube Adornments</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-hitting-high-notes-enhance-your-youtube-content-with-music-edits-for-2024/"><u>[Updated] Hitting High Notes  Enhance Your YouTube Content with Music Edits for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-explore-the-best-10-vectors-online-archives/"><u>[New] Explore the Best 10 Vectors Online Archives</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-dominate-search-results-powerful-youtube-seo-techniques-exposed/"><u>[Updated] In 2024, Dominate Search Results  Powerful YouTube SEO Techniques Exposed</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/in-2024-recording-voice-overs-in-fcp-like-a-pro-top-tips-and-tricks/"><u>In 2024, Recording Voice Overs in FCP Like a Pro Top Tips & Tricks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-a-comprehensive-walkthrough-for-embedding-youtube-plays-in-web-design/"><u>[New] In 2024, A Comprehensive Walkthrough for Embedding YouTube Plays in Web Design</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ero-cost-downloads-for-high-quality-audios-discover-this-list-of-23-tools-for-2024/"><u>[New] Zero Cost Downloads for High-Quality Audios  Discover This List of 23 Tools for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-video-quality-utilizing-youtube-studios-features/"><u>Boosting Video Quality  Utilizing YouTube Studio's Features</u></a></li>
+<li><a href="https://android-frp.techidaily.com/5-quick-methods-to-bypass-motorola-edge-40-neo-frp-by-drfone-android/"><u>5 Quick Methods to Bypass Motorola Edge 40 Neo FRP</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-how-to-create-intro-with-legend-intro-maker-for-2024/"><u>Updated How to Create Intro with Legend Intro Maker for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-youtube-view-bots-and-other-easy-hacks-to-increase-views/"><u>[Updated] In 2024, YouTube View Bots and Other Easy Hacks to Increase Views</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-5-quick-methods-to-bypass-motorola-defy-2-frp-by-drfone-android/"><u>In 2024, 5 Quick Methods to Bypass Motorola Defy 2 FRP</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-essential-mobile-media-creation-tools-iphone-vs-android-review/"><u>[Updated] Essential Mobile Media Creation Tools  IPhone vs Android Review</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-4-ways-to-unlock-apple-iphone-14-pro-max-to-use-usb-accessories-without-passcode-drfone-by-drfone-ios/"><u>In 2024, 4 Ways to Unlock Apple iPhone 14 Pro Max to Use USB Accessories Without Passcode | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ise-on-youtube-initiating-your-chanel-and-earning-pathway-for-2024/"><u>[New] Rise on YouTube  Initiating Your Chanel & Earning Pathway for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/step-by-step-guide-removing-photo-backdrops-for-2024/"><u>Step-by-Step Guide  Removing Photo Backdrops for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/isualcut-pro-for-2024/"><u>[New] VisualCut Pro for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-recording-google-voice-a-comprehensive-tutorial/"><u>[Updated] 2024 Approved  Recording Google Voice  A Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-launching-into-content-creation-account-setup-on-youtube/"><u>[New] In 2024, Launching Into Content Creation  Account Setup on YouTube</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/sync-audio-with-video-with-filmora/"><u>Sync Audio With Video With Filmora</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ransforming-viewers-into-fans-with-top-yt-video-reacts/"><u>[New] Transforming Viewers Into Fans with Top YT Video Reacts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hering-youtubes-new-earning-standards/"><u>Deciphering YouTube's New Earning Standards</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/onvert-with-confidence-best-apps-to-turn-spotify-into-youtube-channels-for-2024/"><u>[New] Convert with Confidence  Best Apps to Turn Spotify Into YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-ultimate-guide-to-brightening-up-your-youtube-content/"><u>[New] The Ultimate Guide to Brightening Up Your YouTube Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-mastering-youtube-traffic-for-new-content-creators/"><u>[New] In 2024, Mastering YouTube Traffic for New Content Creators</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-aligning-apple-android-and-computer-schedules-for-zoom-syncing/"><u>2024 Approved  Aligning Apple, Android, and Computer Schedules for Zoom Syncing</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-pdf-document-with-electronic-digital-signature-tutorial-by-ldigisigner-sign-a-pdf-sign-a-pdf/"><u>How to Sign PDF document with Electronic Digital Signature - (Tutorial)</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 4 Ways To Set Up Your Talking-Head Shots For YouTube\""
-date: 2024-06-17T20:28:18.851Z
-updated: 2024-06-18T20:28:18.851Z
+date: 2024-07-13T16:28:22.507Z
+updated: 2024-07-14T16:28:22.507Z
 tags:
   - ai video
   - ai youtube
@@ -53,6 +53,9 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -122,3 +125,44 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/l-narrative-weaver-for-2024/"><u>Visual Narrative Weaver for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/k-the-secret-of-youtube-to-gif-conversion-begin-here-in-2024/"><u>Unlock the Secret of YouTube-to-GIF Conversion - Begin Here, In 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/luminary-lessons-teaching-the-power-of-proper-lighting-for-2024/"><u>Luminary Lessons  Teaching the Power of Proper Lighting for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/spectaculous-14-animated-text-illustration-samples/"><u>Spectaculous 14 Animated Text Illustration Samples</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-revolutionizing-video-views-conquering-youtube-millions-for-2024/"><u>[Updated] Revolutionizing Video Views, Conquering YouTube Millions for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-by-frame-building-a-filmmaking-foundation-on-youtube-for-2024/"><u>Frame by Frame  Building a Filmmaking Foundation on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-building-your-own-whatsapp-collaborative-space/"><u>[New] 2024 Approved  Building Your Own WhatsApp Collaborative Space</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xplore-the-best-historian-content-top-10-youtube-recommendations-for-2024/"><u>[New] Explore the Best Historian Content  Top 10 YouTube Recommendations for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-perfect-your-recording-a-comparison-guide-for-30-vs-60fps/"><u>[Updated] In 2024, Perfect Your Recording  A Comparison Guide for 30 Vs. 60FPS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/out-sites-that-connect-you-to-youtube-revenue-models/"><u>Seek Out Sites That Connect You to YouTube Revenue Models</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-fix-youtube-video-black-screen/"><u>[New] 2024 Approved  How to Fix YouTube Video Black Screen</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nhance-visibility-the-most-effective-30-freefire-tags-for-video-marketing-for-2024/"><u>[New] Enhance Visibility  The Most Effective 30 FreeFire Tags for Video Marketing for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/form-your-youtube-venture-from-free-to-earnings-at-the-500-mark-for-2024/"><u>Transform Your YouTube Venture  From Free to Earnings at the 500 Mark for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-assemble-a-personalized-youtube-music-list/"><u>[New] 2024 Approved  How to Assemble a Personalized YouTube Music List</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/oice-of-vogue-establishing-your-channel-in-the-cosmetic-world/"><u>[New] Voice of Vogue  Establishing Your Channel in the Cosmetic World</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-enhancing-video-discoverability-with-effective-titles-and-tags/"><u>[New] 2024 Approved  Enhancing Video Discoverability with Effective Titles & Tags</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-journey-to-freedom-with-free-movie-player-os-x-and-windows/"><u>In 2024, Journey to Freedom with FREE MOVIE PLAYER (OS X & Windows)</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Vivo X Flip? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-incognito-observer-of-online-chronicles/"><u>[New] Incognito Observer of Online Chronicles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-boosting-channel-profitability-famebit-powered-sponsorship-tactics/"><u>[New] In 2024, Boosting Channel Profitability  FameBit-Powered Sponsorship Tactics</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/skyrocket-your-brands-visibility-with-these-top-video-marketing-approaches/"><u>Skyrocket Your Brand's Visibility with These Top Video Marketing Approaches</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-achieving-financial-gain-through-youtube-videos/"><u>[New] In 2024, Achieving Financial Gain Through YouTube Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-wintvrecorder-effortless-free-live-tv-saving-software/"><u>[Updated] WinTVRecorder  Effortless, FREE Live TV Saving Software</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/2024-approved-streamlining-the-capture-of-podcast-archives-for-computer-devices/"><u>2024 Approved Streamlining the Capture of Podcast Archives for Computer Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-effective-steps-to-dismiss-videos-in-youtube-watchlater/"><u>[New] 2024 Approved  Effective Steps to Dismiss Videos in YouTube Watchlater</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-get-ready-to-edit-the-best-free-game-video-editing-software/"><u>Updated In 2024, Get Ready to Edit The Best Free Game Video Editing Software</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-worlds-hottest-youtube-personalities-by-subscribers/"><u>[New] In 2024, World's Hottest YouTube Personalities by Subscribers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/standing-the-law-screencasting-youtube-videos/"><u>Understanding the Law  Screencasting YouTube Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ling-the-secrets-to-youtube-shorts-template-creation-for-2024/"><u>Unveiling the Secrets to YouTube Shorts Template Creation for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-free-video-embedding-techniques-for-online-articles/"><u>[New] 2024 Approved  Free Video Embedding Techniques for Online Articles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nlock-your-income-potential-youtube-studios-global-reach-for-2024/"><u>[New] Unlock Your Income Potential  YouTube Studio's Global Reach for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-floor-with-optimal-posting-hours/"><u>Hit the Floor with Optimal Posting Hours</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/creating-powerful-learning-through-video-an-in-depth-guide-for-2024/"><u>Creating Powerful Learning Through Video  An In-Depth Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ree-mobile-downloader-the-ultimate-apps-for-video-buffs-for-2024/"><u>[New] Free Mobile Downloader  The Ultimate Apps for Video Buffs for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unlocking-youtube-writers-royalties-with-ad-driven-earnings-cpm/"><u>[Updated] Unlocking YouTube' Writers' Royalties with Ad-Driven Earnings (CPM)</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-artistic-image-alteration-methods/"><u>2024 Approved  Artistic Image Alteration Methods</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-the-ultimate-list-of-avi-video-cutters-trim-and-edit-on-any-device/"><u>New 2024 Approved The Ultimate List of AVI Video Cutters Trim and Edit on Any Device</u></a></li>
+</ul></div>

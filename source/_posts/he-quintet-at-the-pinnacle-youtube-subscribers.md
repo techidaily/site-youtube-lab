@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Quintet at the Pinnacle  YouTube Subscribers\""
-date: 2024-06-17T20:55:33.192Z
-updated: 2024-06-18T20:55:33.192Z
+date: 2024-07-13T17:01:31.354Z
+updated: 2024-07-14T17:01:31.354Z
 tags:
   - ai video
   - ai youtube
@@ -86,6 +86,9 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 
 ### 5\.  Fernanfloo
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
@@ -125,3 +128,42 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-for-social-media-savants-distinguishing-between-igtv-and-youtube/"><u>[New] In 2024, For Social Media Savants  Distinguishing Between IGTV & YouTube</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-visionblend-editor/"><u>[New] In 2024, VisionBlend Editor</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unlock-vfx-magic-top-4-youtube-tutorials-for-no-cost-green-screen-techniques/"><u>[Updated] In 2024, Unlock VFX Magic  Top 4 YouTube Tutorials for No-Cost Green Screen Techniques</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-professional-video-tweaks-via-youtube-studio-editor/"><u>[New] Professional Video Tweaks via YouTube Studio Editor</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-capture-the-essence-extracting-youtube-audio-directly/"><u>[New] In 2024, Capture the Essence  Extracting YouTube Audio Directly</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rless-evolution-overshadowing-traditional-dslr-videography/"><u>Mirrorless Evolution Overshadowing Traditional DSLR Videography</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/l-footprint-of-the-mr-beast-empire-for-2024/"><u>Fiscal Footprint of the Mr. Beast Empire for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/2024-approved-the-ultimate-guide-to-creating-breathtaking-slideshow-videos/"><u>2024 Approved The Ultimate Guide to Creating Breathtaking Slideshow Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-step-by-step-guide-for-igtv-video-submission/"><u>[Updated] In 2024, Step-by-Step Guide for IGTV Video Submission</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/g-the-leap-set-up-a-sports-vlog-on-macos-for-2024/"><u>Making the Leap  Set Up a Sports Vlog on macOS for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-ultimate-code-of-conduct-on-youtube-for-2024/"><u>[Updated] Ultimate Code of Conduct on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/harting-success-understanding-youtube-insights/"><u>[New] Charting Success  Understanding YouTube Insights</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-the-minecraft-archivists-guide-6-core-methods-for-capture/"><u>[Updated] The Minecraft Archivist's Guide  6 Core Methods for Capture</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-crafting-link-driven-success-a-backlink-blueprint-for-channels/"><u>[New] In 2024, Crafting Link-Driven Success  A Backlink Blueprint for Channels</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-luminous-techniques-for-engaging-vlogs/"><u>[Updated] Luminous Techniques for Engaging Vlogs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-enhancing-youtube-content-with-free-music-sources/"><u>[New] In 2024, Enhancing YouTube Content with Free Music Sources</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-infinix-zero-30-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Infinix Zero 30 5G Phone? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-macs-premier-6-video-cutting-tools-big-sur/"><u>2024 Approved  Mac's Premier 6 Video Cutting Tools (Big Sur)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-tag-like-a-pro-the-most-trending-hashtags-on-instagram-to-increase-engagement/"><u>In 2024, Tag Like a Pro  The Most Trending Hashtags on Instagram to Increase Engagement</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-streamlining-your-iphones-video-loops/"><u>[New] In 2024, Streamlining Your iPhones Video Loops</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-top-25-instagram-hashtags-to-get-likes-and-followers/"><u>2024 Approved  Top 25 Instagram Hashtags to Get Likes and Followers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-role-of-timestamps-in-content-longevity-and-popularity/"><u>[New] The Role of Timestamps in Content Longevity and Popularity</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-this-blog-post-shows-how-to-create-an-eye-catching-paper-rip-effect-for-your-videos-using-wondershare-filmora-with-these-easy-to-follow-steps/"><u>Updated This Blog Post Shows How to Create an Eye-Catching Paper Rip Effect for Your Videos Using Wondershare Filmora with These Easy-to-Follow Steps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ll-you-need-to-know-understanding-video-aspect-ratios-on-youtube-for-2024/"><u>[New] All You Need to Know  Understanding Video ASPECT RATIOS on YOUTUBE for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tream-youtube-in-the-background-using-iphone-and-android-for-2024/"><u>[New] Stream YouTube in the Background Using iPhone & Android for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Vivo S18e? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/re-free-youtube-pic-themes/"><u>Explore Free YouTube Pic Themes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-livestream-titans-clash-facebook-youtube-and-twitspaces-for-2024/"><u>[Updated] Livestream Titans Clash  FACEbook, YOUTube, and TWITSpaces for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-navigating-mobility-in-film-crafting-youtubes-best-thumbnails-for-2024/"><u>[Updated] Navigating Mobility in Film  Crafting YouTubes' Best Thumbnails for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-6-ways-to-increase-audience-retention-on-youtube-filmora/"><u>[Updated] 2024 Approved  6 Ways To Increase Audience Retention on YouTube - Filmora</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-streaming-experience-six-insightful-quizzes-for-fandom-enthusiasts/"><u>[Updated] In 2024, Elevate Your Streaming Experience  Six Insightful Quizzes for Fandom Enthusiasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ow-to-play-youtube-in-background-on-iphone-and-android/"><u>[New] How to Play YouTube in Background on iPhone and Android</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-radiant-faces-mastering-makeup-and-lighting-together/"><u>[Updated] Radiant Faces  Mastering Makeup and Lighting Together</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-dissecting-the-technical-aspects-of-vivavideo/"><u>2024 Approved  Dissecting the Technical Aspects of VivaVideo</u></a></li>
+</ul></div>

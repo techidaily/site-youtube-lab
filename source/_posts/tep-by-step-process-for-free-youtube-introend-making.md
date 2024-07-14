@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2024-06-17T20:30:24.629Z
-updated: 2024-06-18T20:30:24.629Z
+date: 2024-07-13T16:30:55.216Z
+updated: 2024-07-14T16:30:55.216Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/06e60fe3d947d58be6e231820ad1f116434db798e
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -77,6 +80,9 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -110,6 +116,9 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -135,3 +144,51 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/24-from-zero-to-hero-your-first-time-streaming-to-youtube/"><u>In 2024, From Zero to Hero  Your First Time Streaming to Youtube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-checklist-for-protecting-your-digital-assets/"><u>[New] 2024 Approved  The Ultimate Checklist for Protecting Your Digital Assets</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/k-viral-potential-with-youtube-short-strategies-for-2024/"><u>Unlock Viral Potential with YouTube Short Strategies for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-top-10-female-youtubers/"><u>[New] 2024 Approved  Top 10 Female YouTubers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-motorola-moto-g24-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Motorola Moto G24 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-sifting-through-the-sands-of-youtube-conversations/"><u>In 2024, Sifting Through the Sands of YouTube Conversations</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-youtube-stats-efficiency-with-social-blades-advanced-analysis-for-2024/"><u>Decoding YouTube Stats Efficiency with Social Blade's Advanced Analysis for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-essential-photo-edits-guide-for-the-novice-photographer/"><u>2024 Approved  Essential Photo Edits Guide for the Novice Photographer</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/oney-making-techniques-for-short-videos/"><u>Top Money-Making Techniques for Short Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xploring-the-top-10-budget-friendly-youtube-spaces-for-artistry/"><u>[New] Exploring the Top 10 Budget-Friendly YouTube Spaces for Artistry</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-add-timestamp-on-youtube-video-link-desktop-and-mobile/"><u>[New] In 2024, How to Add Timestamp on YouTube Video Link? [Desktop and Mobile]</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-streamlining-your-iphones-video-loops-for-2024/"><u>[Updated] Streamlining Your iPhones Video Loops for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ngaging-stories-expanding-audiences-top-three-methods-for-2024/"><u>[New] Engaging Stories, Expanding Audiences  Top Three Methods for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-effortless-resolution-of-macs-green-screen-problem-for-youtubers/"><u>In 2024, Effortless Resolution of Mac's Green Screen Problem for YouTubers</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-beyond-the-basics-secrets-for-tiktok-live-studio-success-for-2024/"><u>Updated Beyond the Basics Secrets for TikTok Live Studio Success for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-watch-hulu-outside-us-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Realme Narzo 60 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-vimeos-edge-over-youtube-what-the-data-says/"><u>[Updated] Vimeo’s Edge Over YouTube? What the Data Says</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-financial-flourishing-in-youtube-content-markets/"><u>In 2024, Financial Flourishing in YouTube Content Markets</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-how-to-watch-deleted-youtube-videos-online-in-2-ways-ultimate-guide/"><u>In 2024, How to Watch Deleted YouTube Videos Online in 2 Ways | Ultimate Guide</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-crafting-compelling-short-videos-for-youtube-a-top-10-list/"><u>[Updated] In 2024, Crafting Compelling Short Videos for YouTube - A Top 10 List</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/med-dialogue-scribe-for-2024/"><u>Streamed Dialogue Scribe for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rivacy-preservation-how-to-make-faces-invisible-online/"><u>[New] Privacy Preservation  How to Make Faces Invisible Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-gastronomes-blueprint-filming-feasts/"><u>In 2024, The Gastronome’s Blueprint  Filming Feasts</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-navigating-the-complexities-of-gaming-recordings-with-obs/"><u>In 2024, Navigating the Complexities of Gaming Recordings with OBS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/imate-strategies-to-amass-over-a-million-youtube-views/"><u>Legitimate Strategies to Amass Over a Million YouTube Views</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/data-retrieval-tool-restore-lost-data-from-s17e-by-fonelab-android-recover-data/"><u>Data Retrieval tool – restore lost data from S17e</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/reaking-down-youtube-short-barriers/"><u>[New] Breaking Down YouTube Short Barriers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-your-youtube-watchlist-with-instagram-feed/"><u>Syncing Your YouTube Watchlist with Instagram Feed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nline-havens-for-sponsorship-initiatives-on-youtube/"><u>[New] Online Havens for Sponsorship Initiatives on YouTube</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-how-to-delete-or-deactivate-an-instagram-account-permanently/"><u>[New] In 2024, How to Delete or Deactivate An Instagram Account Permanently</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-spread-the-rhythm-sharing-playlists-in-minutes/"><u>[New] In 2024, Spread the Rhythm  Sharing Playlists in Minutes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-to-webm-the-10-best-youtube-to-webm-converters-for-2024/"><u>[Updated] YouTube to WebM  The 10 Best YouTube to WebM Converters for 2024</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-vivo-y78plus-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mastering-youtube-traffic-growth-the-ultimate-list-of-keyword-analyzers-for-2024/"><u>[Updated] Mastering YouTube Traffic Growth  The Ultimate List of Keyword Analyzers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-craft-and-share-360-videos-to-youtube-an-essential-guide-for-creators/"><u>[New] In 2024, Craft and Share 360 Videos to YouTube  An Essential Guide for Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ring-youtube-intros-with-imovie-techniques-for-2024/"><u>Mastering YouTube Intros with iMovie Techniques for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ring-video-content-to-youtubes-niche-needs-for-2024/"><u>Tailoring Video Content to Youtube's Niche Needs for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-dial-up-your-digital-presence-tips-for-confident-video-creators-for-2024/"><u>[New] Dial Up Your Digital Presence  Tips for Confident Video Creators for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/outube-soundwaves-flow-into-imovie-effortlessly/"><u>[New] YouTube Soundwaves Flow Into iMovie Effortlessly</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-creating-time-lapse-from-single-photographs/"><u>[Updated] 2024 Approved  Creating Time-Lapse From Single Photographs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-learning-luminaries-leading-ed-tutorials-online/"><u>[Updated] Learning Luminaries  Leading Ed Tutorials Online</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-transforming-tech-talks-the-ezvide-screen-recording-guide/"><u>In 2024, Transforming Tech Talks  The Ezvide Screen Recording Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-frame-it-up-right-insta-ready-video-edits-for-final-cut-pro-x/"><u>[New] In 2024, Frame It Up Right  Insta-Ready Video Edits for Final Cut Pro X</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-accelerate-youtube-visibility-select-top-8-rank-watchers/"><u>In 2024, Accelerate YouTube Visibility - Select Top 8 Rank Watchers</u></a></li>
+</ul></div>

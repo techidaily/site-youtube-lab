@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Easy, Effective Strategy  Immediate Clearance of Unwanted YouTube Comments\""
-date: 2024-06-17T20:03:13.563Z
-updated: 2024-06-18T20:03:13.563Z
+date: 2024-07-13T15:58:05.571Z
+updated: 2024-07-14T15:58:05.571Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +63,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -101,6 +101,9 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -112,7 +115,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
@@ -151,3 +154,54 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/24-pixel-paradise-100plus-game-havens-explored/"><u>In 2024, Pixel Paradise  100+ Game Havens Explored</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-from-concept-to-completion-crafting-youtube-shorts-templates-masterfully/"><u>[New] In 2024, From Concept to Completion  Crafting YouTube Shorts Templates Masterfully</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-get-your-favorite-podcasts-and-videos-anytime-on-the-go-with-these-tools-for-2024/"><u>[Updated] Get Your Favorite Podcasts & Videos Anytime, On-the-Go, With These Tools for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-comedy-canvas-painting-laughter-with-top-10-video-concepts/"><u>[Updated] Comedy Canvas  Painting Laughter with Top 10 Video Concepts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-a-step-by-step-approach-to-generating-income-with-trailers/"><u>[New] In 2024, A Step-by-Step Approach to Generating Income with Trailers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-youtube-channel-descriptions-for-2024/"><u>[New] Mastering YouTube Channel Descriptions for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-tug-of-war-youtube-licensing-versus-cc-principles/"><u>[New] The Tug-of-War  Youtube Licensing Versus CC Principles</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-nokia-c32-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Nokia C32 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/e-of-cosmetics-youtube-gurus-on-the-rise-for-2024/"><u>Future of Cosmetics  YouTube Gurus on the Rise for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-peeking-at-the-reason-behind-highlighted-comments-on-youtube/"><u>[Updated] Peeking at the Reason Behind Highlighted Comments on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-get-both-sides-right-expert-tips-on-crafting-compelling-pov-based-youtube-reaction-videos-2-pov-perspective/"><u>[Updated] In 2024, Get Both Sides Right – Expert Tips on Crafting Compelling POV-Based YouTube Reaction Videos (2 POV Perspective)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unveiling-the-premier-online-convertors-from-youtube-for-2024/"><u>[Updated] Unveiling the Premier Online Convertors From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ocial-media-symphony-composing-jake-pauls-youtube-success/"><u>The Social Media Symphony  Composing Jake Paul's YouTube Success</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-5-best-monitors-for-ps5/"><u>2024 Approved  Top 5 Best Monitors for Ps5</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-translating-views-into-dollars-on-youtube-via-cpm/"><u>[New] 2024 Approved  Translating Views Into Dollars on YouTube via CPM</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/avorite-films-reimagined-7-replacements/"><u>Fan-Favorite Films Reimagined - #7 Replacements</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-htc-u23-pro-by-fonelab-android-recover-photos/"><u>How to recover deleted photos from HTC U23 Pro.</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nveiling-profitable-practices-for-creating-youtube-trailers-for-2024/"><u>[New] Unveiling Profitable Practices for Creating YouTube Trailers for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-infinix-hot-40-pro-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Infinix Hot 40 Pro to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-elite-audio-modifying-tools-tailored-to-youtube-creators/"><u>2024 Approved  Elite Audio Modifying Tools Tailored to YouTube Creators</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-sites-for-digital-metallic-text-with-a-golden-twist-for-2024/"><u>Top Sites for Digital Metallic Text with a Golden Twist for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-ultimate-guide-prime-video-stabilizers/"><u>[Updated] Ultimate Guide  Prime Video Stabilizers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-cutting-edge-techniques-for-private-yt-content-dissemination-in-gmail/"><u>In 2024, Cutting-Edge Techniques for Private YT Content Dissemination in Gmail</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-ultimate-framework-for-crafting-compelling-live-video-thumbnails/"><u>In 2024, The Ultimate Framework for Crafting Compelling Live Video Thumbnails</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-prime-picks-easy-youtube-template-downloads/"><u>[Updated] Prime Picks  Easy YouTube Template Downloads</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-ultimate-guide-to-earning-on-youtube-shorts-for-2024/"><u>[New] The Ultimate Guide to Earning on Youtube Shorts for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-launching-your-digital-dialogues-in-google-meet/"><u>[New] Launching Your Digital Dialogues in Google Meet</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-top-5-election-simulation-games/"><u>[Updated] Top 5 Election Simulation Games</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-top-video-formats-for-maximum-youtube-engagement/"><u>[New] In 2024, Top Video Formats for Maximum YouTube Engagement</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-borrow-without-cost-images-from-leading-youtubers-archives/"><u>[Updated] Borrow Without Cost Images From Leading YouTubers' Archives</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unlock-youtubes-potential-essential-tips-and-techniques-for-optimal-titles/"><u>[Updated] Unlock YouTube's Potential  Essential Tips & Techniques for Optimal Titles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/arnings-demystified-youtube-shorts-revenue-split-explained/"><u>[New] Earnings Demystified  YouTube Shorts Revenue Split Explained</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-avoiding-the-blank-thumbnail-scenario-in-shorts/"><u>[Updated] In 2024, Avoiding the Blank Thumbnail Scenario in Shorts</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-navigating-the-art-of-facebook-video-distribution/"><u>[New] Navigating the Art of Facebook Video Distribution</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-2024-approved-vital-insights-for-constructing-an-unparalleled-collection-of-youtube-audio-tracks/"><u>Updated 2024 Approved Vital Insights for Constructing an Unparalleled Collection of YouTube Audio Tracks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-upgrade-your-content-presentation-with-top-tier-templates-for-2024/"><u>[Updated] Upgrade Your Content Presentation with Top-Tier Templates for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-gaming-hits-with-powerful-hashtag-strategies/"><u>[Updated] Gaming Hits with Powerful Hashtag Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-behind-the-scenes-filmmaking-tips-from-youtube-experts/"><u>In 2024, Behind-the-Scenes Filmmaking Tips From YouTube Experts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-youtube-revenue-analysis-made-simple/"><u>In 2024, YouTube Revenue Analysis Made Simple</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-the-spotlight-hide-visuals-in-shared-media/"><u>Erasing the Spotlight  Hide Visuals in Shared Media</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-maximizing-videography-with-youtubes-creative-commons/"><u>[Updated] Maximizing Videography with YouTube's Creative Commons</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-crafting-engaging-content-for-facebook-live/"><u>[New] 2024 Approved  Crafting Engaging Content for Facebook Live</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-streaming-success-easily-convert-srt-formats/"><u>[New] Streaming Success  Easily Convert SRT Formats</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ate-choice-5-sound-devices-for-streamers/"><u>Ultimate Choice 5 Sound Devices for Streamers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-tailored-thumbnails-elevating-your-video-visibility-on-youtube/"><u>[Updated] 2024 Approved  Tailored Thumbnails  Elevating Your Video Visibility on YouTube</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-all-must-knows-to-use-fake-gps-go-location-spoofer-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, All Must-Knows to Use Fake GPS GO Location Spoofer On Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-video-builder-how-to-create-video-ads-for-free/"><u>[Updated] YouTube Video Builder  How to Create Video Ads for Free?</u></a></li>
+</ul></div>

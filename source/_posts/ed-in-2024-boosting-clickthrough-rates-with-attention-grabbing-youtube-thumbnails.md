@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Boosting Clickthrough Rates with Attention-Grabbing YouTube Thumbnails\""
-date: 2024-06-17T20:54:00.575Z
-updated: 2024-06-18T20:54:00.575Z
+date: 2024-07-13T16:59:38.589Z
+updated: 2024-07-14T16:59:38.589Z
 tags:
   - ai video
   - ai youtube
@@ -141,6 +141,18 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 1. Place it into the timeline to start working on it.
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
 
 1. Now to separate the character from the background, go to the Effects. Under effects, you can find a tab named AI Portraits. Click on AI Portrait. Now drag the Human Segmentation and drop it on the screenshot in the timeline.
@@ -224,3 +236,42 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-essentials-of-sharing-music-compilations-online/"><u>2024 Approved  The Essentials of Sharing Music Compilations Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-financial-flourishing-in-youtube-content-markets/"><u>In 2024, Financial Flourishing in YouTube Content Markets</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ched-download-experience-with-our-top-tools-list/"><u>Unmatched Download Experience with Our Top Tools List</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-from-zero-to-hero-your-first-time-streaming-to-youtube/"><u>In 2024, From Zero to Hero  Your First Time Streaming to Youtube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-unveiling-the-techniques-of-premium-vr-gametime-captures/"><u>[New] Unveiling the Techniques of Premium VR Gametime Captures</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-gastronomes-blueprint-filming-feasts/"><u>In 2024, The Gastronome’s Blueprint  Filming Feasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-unleash-your-youtube-earnings-achieving-prosperity-at-the-50-written-excerpt/"><u>In 2024, Unleash Your YouTube Earnings  Achieving Prosperity at the 50 Written Excerpt</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2023-how-to-share-screen-on-facebook-live/"><u>[New] 2023 | How to Share Screen on Facebook Live?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-sifting-through-the-sands-of-youtube-conversations/"><u>In 2024, Sifting Through the Sands of YouTube Conversations</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-harnessing-online-platforms-beyond-youtube-to-30plus-communities/"><u>2024 Approved  Harnessing Online Platforms  Beyond YouTube to 30+ Communities</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-ice-cream-recording-tech-deep-dive-analysis-for-2024/"><u>[Updated] Ice Cream Recording Tech Deep Dive Analysis for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-picshot-enhancing-creativity-in-digital-collage-art/"><u>[Updated] Picshot Enhancing Creativity in Digital Collage Art</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-illuminate-your-content-creation/"><u>[Updated] Illuminate Your Content Creation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-accelerate-youtube-visibility-select-top-8-rank-watchers/"><u>In 2024, Accelerate YouTube Visibility - Select Top 8 Rank Watchers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-how-to-reverse-video-on-instagram-complete-guide/"><u>[New] How to Reverse Video on Instagram? [Complete Guide]</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-steering-clear-of-the-8-most-frequent-pitfalls-for-first-time-youtubers/"><u>2024 Approved  Steering Clear of the 8 Most Frequent Pitfalls for First-Time YouTubers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-ephemeral-clip-creator/"><u>2024 Approved  Ephemeral Clip Creator</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-mastering-transitions-fading-techniques-in-premiere-pro/"><u>[New] Mastering Transitions  Fading Techniques in Premiere Pro</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-strategic-youtube-content-publishing-to-boost-view-counts/"><u>2024 Approved  Strategic YouTube Content Publishing to Boost View Counts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-navigating-the-settings-youtube-comments-activation/"><u>2024 Approved  Navigating the Settings  YouTube Comments Activation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-affordable-acoustic-amps-and-mics-for-video-voyagers/"><u>[Updated] Affordable Acoustic Amps and Mics for Video Voyagers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-proven-ways-to-create-engaging-intros-on-iphones-and-android/"><u>[Updated] 2024 Approved  Proven Ways to Create Engaging Intros on iPhones & Android</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-trailblazer-in-multimedia-craftsmanship/"><u>2024 Approved  Trailblazer in Multimedia Craftsmanship</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-instant-immersion-mixing-tunes-in-facebook-narratives/"><u>[Updated] 2024 Approved  Instant Immersion  Mixing Tunes in Facebook Narratives</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-effortless-resolution-of-macs-green-screen-problem-for-youtubers/"><u>In 2024, Effortless Resolution of Mac's Green Screen Problem for YouTubers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-ultimate-plan-for-livestream-and-document-sports-contests-for-2024/"><u>[Updated] Ultimate Plan for Livestream & Document Sports Contests for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-skyrocketing-earnings-through-video-affiliates/"><u>[Updated] 2024 Approved  Skyrocketing Earnings Through Video Affiliates</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ate-guide-to-calculate-your-youtube-views-and-money-for-2024/"><u>Ultimate Guide to Calculate Your YouTube Views and Money. For 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-how-to-download-youtube-videos-without-any-software-13-proven-ways/"><u>2024 Approved  How to Download YouTube Videos without Any Software [13 Proven Ways]</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-elevating-audio-rates-on-youtube-dual-device-approach/"><u>2024 Approved  Elevating Audio Rates on YouTube  Dual Device Approach</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tless-guide-to-share-your-videos-as-shorts-on-computers-and-phones/"><u>Effortless Guide to Share Your Videos as Shorts on Computers & Phones</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-ultimate-guide-to-choosing-between-igtv-and-youtube-for-content-creators/"><u>In 2024, The Ultimate Guide to Choosing Between IGTV & YouTube for Content Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-how-to-watch-deleted-youtube-videos-online-in-2-ways-ultimate-guide/"><u>In 2024, How to Watch Deleted YouTube Videos Online in 2 Ways | Ultimate Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-curating-a-must-see-list-of-youtubes-top-makeup-talent/"><u>[Updated] In 2024, Curating a Must-See List of YouTube's Top Makeup Talent</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-strategies-for-capturing-every-detail-in-your-vr-games/"><u>In 2024, Strategies for Capturing Every Detail in Your VR Games</u></a></li>
+</ul></div>

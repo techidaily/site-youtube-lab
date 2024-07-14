@@ -1,7 +1,7 @@
 ---
 title: "Simplified Approach to Removing YouTube Comments with Ease for 2024"
-date: 2024-06-17T20:12:03.664Z
-updated: 2024-06-18T20:12:03.664Z
+date: 2024-07-13T16:08:44.900Z
+updated: 2024-07-14T16:08:44.900Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/c225407e5eb523ea35626965d7952f3e8eff461a4
 
 # Deleting YouTube Comments
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -40,7 +43,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +66,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -112,7 +115,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
@@ -151,3 +154,56 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ng-the-spotlight-hide-visuals-in-shared-media/"><u>Erasing the Spotlight  Hide Visuals in Shared Media</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nveiling-profitable-practices-for-creating-youtube-trailers-for-2024/"><u>[New] Unveiling Profitable Practices for Creating YouTube Trailers for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-creating-viral-haul-videos-a-comprehensible-guide/"><u>[New] Creating Viral Haul Videos  A Comprehensible Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-gaming-hits-with-powerful-hashtag-strategies/"><u>[Updated] Gaming Hits with Powerful Hashtag Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-prime-picks-easy-youtube-template-downloads/"><u>[Updated] Prime Picks  Easy YouTube Template Downloads</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-top-sites-to-download-lofi-wallpapers-and-lofi-background-music/"><u>New 2024 Approved Top Sites to Download Lofi Wallpapers and Lofi Background Music</u></a></li>
+<li><a href="https://win11.techidaily.com/1719245846865-windows-issues-learn-how-to-seek-expert-guidance/"><u>Windows Issues? Learn How to Seek Expert Guidance</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-convert-youtube-sounds-to-wider-reach-mp3-for-mac-users/"><u>[New] 2024 Approved  Convert YouTube Sounds to Wider Reach  MP3 for Mac Users</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-can-televising-streaming-services-include-facebook-content-in-2024/"><u>[Updated] Can Televising Streaming Services Include Facebook Content, In 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unlock-youtubes-potential-essential-tips-and-techniques-for-optimal-titles/"><u>[Updated] Unlock YouTube's Potential  Essential Tips & Techniques for Optimal Titles</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-mastering-instagram-engagement-the-5-key-strategies-for-influencers-today/"><u>In 2024, Mastering Instagram Engagement  The 5 Key Strategies for Influencers Today</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-how-to-change-your-voice/"><u>Updated How to Change Your Voice?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-sky-high-insights-comprehensive-phantom-4-breakdown/"><u>[New] In 2024, Sky-High Insights  Comprehensive Phantom 4 Breakdown</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/58030512-updated-high-quality-youtube-images-download-without-any-cost/"><u>[Updated] High-Quality YouTube Images  Download Without Any Cost!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-top-video-formats-for-maximum-youtube-engagement/"><u>[New] In 2024, Top Video Formats for Maximum YouTube Engagement</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-innovators-defining-next-gen-vr-experiences-for-2024/"><u>Top Innovators Defining Next-Gen VR Experiences for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-get-both-sides-right-expert-tips-on-crafting-compelling-pov-based-youtube-reaction-videos-2-pov-perspective/"><u>[Updated] In 2024, Get Both Sides Right – Expert Tips on Crafting Compelling POV-Based YouTube Reaction Videos (2 POV Perspective)</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-cost-effective-sound-integration-techniques-for-home-video-editors/"><u>2024 Approved Cost-Effective Sound Integration Techniques for Home Video Editors</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-top-11-auditory-capture-devices-reviewed-here/"><u>[Updated] Top 11 Auditory Capture Devices Reviewed Here</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ailoring-watch-experience-on-youtube-with-speed-modifications-for-2024/"><u>[New] Tailoring Watch Experience on YouTube with Speed Modifications for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/trengthen-your-footage-using-a-tripod-in-vlogging/"><u>[New] Strengthen Your Footage  Using a Tripod in Vlogging</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-tug-of-war-youtube-licensing-versus-cc-principles/"><u>[New] The Tug-of-War  Youtube Licensing Versus CC Principles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/outube-thumbnail-101-phones-edition-for-2024/"><u>[New] YouTube Thumbnail 101  Phones Edition for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-interactive-index-for-ig-and-tiktok-connection/"><u>The Interactive Index for IG & TikTok Connection</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-upgrade-your-content-presentation-with-top-tier-templates-for-2024/"><u>[Updated] Upgrade Your Content Presentation with Top-Tier Templates for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-dominating-the-youtube-sphere-key-strategies-for-top-tier-presence/"><u>2024 Approved  Dominating the YouTube Sphere  Key Strategies for Top-Tier Presence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-video-builder-how-to-create-video-ads-for-free/"><u>[Updated] YouTube Video Builder  How to Create Video Ads for Free?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-ultimate-guide-prime-video-stabilizers/"><u>[Updated] Ultimate Guide  Prime Video Stabilizers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/path-to-uninterrupted-mobile-experience-with-these-7-apps-for-2024/"><u>Your Path to Uninterrupted Mobile Experience with These 7 Apps for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-discover-the-best-15-youtube-science-think-tanks/"><u>2024 Approved  Discover the Best 15 YouTube Science Think Tanks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-from-concept-to-completion-crafting-youtube-shorts-templates-masterfully/"><u>[New] In 2024, From Concept to Completion  Crafting YouTube Shorts Templates Masterfully</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-spotlight-on-top-8-authentic-youtube-growth-tactics/"><u>[New] 2024 Approved  Spotlight on Top 8 Authentic YouTube Growth Tactics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-worlds-premier-content-creators-ranked-by-subscriber-count/"><u>[New] 2024 Approved  World's Premier Content Creators Ranked By Subscriber Count</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xpert-tips-for-youtube-channel-aesthetics-finding-optimal-sizes/"><u>[New] Expert Tips for YouTube Channel Aesthetics  Finding Optimal Sizes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-perfecting-your-videos-the-power-of-proper-thumbnails/"><u>[New] 2024 Approved  Perfecting Your Videos  The Power of Proper Thumbnails</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-maximizing-videography-with-youtubes-creative-commons/"><u>[Updated] Maximizing Videography with YouTube's Creative Commons</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ocial-media-symphony-composing-jake-pauls-youtube-success/"><u>The Social Media Symphony  Composing Jake Paul's YouTube Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-ultimate-guide-to-earning-on-youtube-shorts-for-2024/"><u>[New] The Ultimate Guide to Earning on Youtube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-a-step-by-step-approach-to-generating-income-with-trailers/"><u>[New] In 2024, A Step-by-Step Approach to Generating Income with Trailers</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-10-fingerprint-lock-apps-to-lock-your-xiaomi-13t-phone-by-drfone-android/"><u>Top 10 Fingerprint Lock Apps to Lock Your Xiaomi 13T Phone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-infinix-hot-40i-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Infinix Hot 40i Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ssential-audio-tools-free-superior-dj-templates-online/"><u>[New] Essential Audio Tools  Free, Superior DJ Templates Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-peeking-at-the-reason-behind-highlighted-comments-on-youtube/"><u>[Updated] Peeking at the Reason Behind Highlighted Comments on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unveiling-the-premier-online-convertors-from-youtube-for-2024/"><u>[Updated] Unveiling the Premier Online Convertors From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-exclusive-list-11-pioneering-cost-free-online-title-makers-for-yt/"><u>[New] 2024 Approved  Exclusive List  11 Pioneering, Cost-Free Online Title Makers for YT</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-get-your-favorite-podcasts-and-videos-anytime-on-the-go-with-these-tools-for-2024/"><u>[Updated] Get Your Favorite Podcasts & Videos Anytime, On-the-Go, With These Tools for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-split-3gp-files-into-multiple-segments-easy-guide-2023/"><u>New In 2024, Split 3GP Files Into Multiple Segments Easy Guide 2023</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-avoiding-the-blank-thumbnail-scenario-in-shorts/"><u>[Updated] In 2024, Avoiding the Blank Thumbnail Scenario in Shorts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-expert-choice-leading-tools-for-online-ytvideo-conversion/"><u>In 2024, Expert Choice  Leading Tools for Online YTVideo Conversion</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Engage More, Dissuade Less  Top 6 Ways to Increase Watch Time and Stayers\""
-date: 2024-06-17T20:35:13.554Z
-updated: 2024-06-18T20:35:13.554Z
+date: 2024-07-13T16:36:44.410Z
+updated: 2024-07-14T16:36:44.410Z
 tags:
   - ai video
   - ai youtube
@@ -34,6 +34,18 @@ Audience retention is one of your most important stats on YouTube. It is even mo
 * [Part 3: What is a Good Audience Retention Rate on YouTube?](#part3)
 * [Part 4: 6 Ways to Increase YouTube Audience Retention](#part4)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: What is Audience Retention?
 
 To put it in simple terms, YouTube audience retention is about how much of each video your viewers watch. It's usually expressed as a percentage, so if your viewer gets half way through, they will have a retention of 50 per cent.
@@ -44,6 +56,9 @@ For YouTube analytics, audience retention is taken as a mean of the retention fi
 
 This retention rate affects how highly your video is ranked on YouTube, with videos boasting higher audience retention rates appearing higher in the search results than those which do not. This is because both YouTube and Google are highly focussed on customer satisfaction, and a long watch time means a very happy customer was watching that video. For this reason, it's well worth considering how to increase YouTube audience retention as it demonstrates that you're making great content as well as helping you get more viewers.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: How to See Your Audience Retention Report in YouTube?
 
 YouTube will produce reports to help you keep track of your audience retention. There are two types of audience retention reports; absolute and relative. Absolute allows you to view a graph of your video's retention and see when people might be clicking away, or if they are skipping to later parts of your video. If you lose a lot of viewers in the first 15 seconds of your videos then that is a clear indication that your content is not what the viewers who find your videos really want. The relative report is where your video is compared to the average retention of similar videos.
@@ -52,6 +67,9 @@ Note that by 'similar videos', YouTube means videos of a similar length. There i
 
 To see an audience retention report log into your YouTube account and go to your**Creator Studio**. There, select**Audience Retention**under**Analytics**.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/audience-retention.jpg)
 
 ## Part 3: What is a Good Audience Retention Rate on YouTube?
@@ -119,3 +137,43 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Meizu 21 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-step-by-step-username-modification-guide-for-meet-sessions/"><u>[Updated] 2024 Approved  Step-by-Step Username Modification Guide for Meet Sessions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-endless-creativity-free-youtube-art-resources/"><u>[New] 2024 Approved  Endless Creativity  FREE YouTube Art Resources</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-vivo-y36i-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Vivo Y36i To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-best-cameras-for-quality-youtube-content/"><u>[New] 2024 Approved  Best Cameras for Quality YouTube Content</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Itel A60s? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-the-role-youtube-shorts-music-plays/"><u>Learn the Role YouTube Shorts Music Plays</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-engaging-audience-from-anywhere-phone-based-filming-techniques/"><u>[New] 2024 Approved  Engaging Audience From Anywhere  Phone-Based Filming Techniques</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-time-saving-tips-how-to-speed-up-or-slow-down-videos-in-camtasia-for-2024/"><u>Updated Time-Saving Tips How to Speed Up or Slow Down Videos in Camtasia for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-deep-dive-into-rank-tracker-solutions-for-peak-success-on-youtube/"><u>[New] 2024 Approved  Deep Dive Into Rank Tracker Solutions for Peak Success on YouTube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-mobile-moba-showdown-androids-best-games-list/"><u>[New] 2024 Approved  Mobile MOBA Showdown - Android's Best Games List</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-a-comprehensive-walkthrough-for-imovie-and-youtube-collaboration/"><u>[New] 2024 Approved  A Comprehensive Walkthrough for iMovie and YouTube Collaboration</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-essential-video-stock-investment-guides/"><u>[New] 2024 Approved  Essential Video Stock Investment Guides</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-training-image-transformation-for-dynamic-youtube-desktop-thumbnails/"><u>Rapid Training  Image Transformation for Dynamic YouTube Desktop Thumbnails</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-defending-your-youtube-profile/"><u>[New] 2024 Approved  Defending Your YouTube Profile</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-digital-cinematographer-hub/"><u>[New] 2024 Approved  Digital Cinematographer Hub</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-screen-mastery-on-youtube-ideas-unleashed/"><u>Green Screen Mastery on YouTube - Ideas Unleashed!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-auto-play-youtube-keep-it-hidden-stay-connected/"><u>[New] 2024 Approved  Auto-Play YouTube - Keep It Hidden, Stay Connected</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-superior-video-recording-apps-on-mac-not-bandicam/"><u>[Updated] 2024 Approved  Superior Video Recording Apps on Mac, Not Bandicam</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-fast-fortnite-cover-art-techniques/"><u>[New] 2024 Approved  Fast Fortnite Cover Art Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-channel-marketing-making-a-trailer-that-sells-more/"><u>[New] 2024 Approved  Channel Marketing  Making a Trailer that Sells More</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-expert-strategies-for-exceptional-live-thumbnail-appeal/"><u>[New] 2024 Approved  Expert Strategies for Exceptional Live Thumbnail Appeal</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-how-to-fade-in-and-fade-out-audio-in-adobe-after-effects-effortlessly-for-2024/"><u>Updated How to Fade In and Fade Out Audio in Adobe After Effects Effortlessly for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-download-youtube-videos-directly/"><u>[New] 2024 Approved  Download YouTube Videos Directly</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-in-2024-what-is-an-ai-video-maker-wondershare-virbo-glossary/"><u>New In 2024, What Is an AI Video Maker? | Wondershare Virbo Glossary</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-delving-into-tseries-streaming-revenue-model-on-youtube/"><u>[New] 2024 Approved  Delving Into TSeries' Streaming Revenue Model on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/0-guides-for-crafting-stellar-music-reactions-on-youtube-for-2024/"><u>Top 10 Guides for Crafting Stellar Music Reactions on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-essential-free-tools-convert-youtube-audio-to-mp3-on-iphone/"><u>[New] 2024 Approved  Essential Free Tools  Convert YouTube Audio to MP3 on iPhone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-step-by-step-guide-to-dominating-the-youtube-viewership-game/"><u>[New] A Step-by-Step Guide to Dominating the YouTube Viewership Game</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-essential-free-services-for-designing-impactful-youtube-intros/"><u>[New] 2024 Approved  Essential Free Services for Designing Impactful YouTube Intros</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-8-premium-complimentary-streaming-media-processors/"><u>[New] 2024 Approved  8 Premium Complimentary Streaming Media Processors</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-elevating-your-yt-content-with-the-top-thumbnail-hacks/"><u>[New] 2024 Approved  Elevating Your YT Content with the Top Thumbnail Hacks</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-10-best-vr-videos-on-youtube-to-have-immersive-experience/"><u>[New] 2024 Approved  10 Best VR Videos on YouTube to Have Immersive Experience</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-enhance-your-media-with-top-free-android-editing-tools/"><u>[New] 2024 Approved  Enhance Your Media with Top Free Android Editing Tools</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-the-best-social-media-symbols-dynamic-designs-for-2024/"><u>[Updated] The Best Social Media Symbols  Dynamic Designs for 2024</u></a></li>
+</ul></div>

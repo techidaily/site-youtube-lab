@@ -1,7 +1,7 @@
 ---
 title: "How to Mix Text & Video on a Shoestring Budget for 2024"
-date: 2024-06-17T20:26:06.691Z
-updated: 2024-06-18T20:26:06.691Z
+date: 2024-07-13T16:25:43.552Z
+updated: 2024-07-14T16:25:43.552Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,9 @@ You should start by creating a new slide and adding a textbox to it. Proceed to 
 
 Head over to the Insert tab, select Rectangle from the Shapes menu, and create a rectangular shape over the entire slide. Right-click on the slide and choose the Send to Back option from the menu. In this manner, you will position the rectangle you created behind the textbox.
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
@@ -105,3 +108,43 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-effortless-gifs-for-snapchat-your-practical-guide/"><u>2024 Approved  Effortless GIFs for Snapchat  Your Practical Guide</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-preparing-for-a-mobile-cinematic-experience/"><u>In 2024, Preparing for a Mobile Cinematic Experience</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/own-catch-more-the-best-url-reducers-for-youtube/"><u>Cut Down, Catch More  The Best URL Reducers for YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-disrupt-bot-patterns-for-natural-viewer-increase/"><u>[Updated] 2024 Approved  Disrupt Bot Patterns for Natural Viewer Increase</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlocking-iphone-15-pro-max-lock-screen-3-foolproof-methods-that-actually-work-drfone-by-drfone-ios/"><u>Unlocking iPhone 15 Pro Max Lock Screen 3 Foolproof Methods that Actually Work | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-ultimate-list-templates-for-youtube-previews/"><u>In 2024, Ultimate List  Templates for YouTube Previews</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-tailoring-your-videography-with-personalized-instagram-captions-for-2024/"><u>[Updated] Tailoring Your Videography with Personalized Instagram Captions for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-watch-9-free-full-length-christmas-movies-on-youtube/"><u>[Updated] 2024 Approved  Watch 9 Free Full Length Christmas Movies On YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-finding-legal-music-a-producers-manual/"><u>[Updated] 2024 Approved  Finding Legal Music  A Producer's Manual</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-seamless-sharing-of-vast-viewpoints-uploading-wide-angle-content-on-iosandroid-for-2024/"><u>[New] Seamless Sharing of Vast Viewpoints  Uploading Wide Angle Content on iOS/Android for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-is-greyed-out-from-apple-iphone-7-how-to-bypass-by-drfone-ios/"><u>Apple ID is Greyed Out From Apple iPhone 7 How to Bypass?</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-action-packed-escapades-the-next-big-things-post-gta-v/"><u>2024 Approved  Action-Packed Escapades - The Next Big Things Post-GTA V</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-new-guide-how-to-check-icloud-activation-lock-status-on-your-iphone-xs-max-by-drfone-ios/"><u>In 2024, New Guide How To Check iCloud Activation Lock Status On Your iPhone XS Max</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-champion-streaming-and-capture-tools/"><u>[Updated] Champion Streaming & Capture Tools</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-motorola-edge-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Motorola Edge 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xplore-virtual-realms-with-these-videos-for-2024/"><u>[New] Explore Virtual Realms with These Videos for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/stunning-images-with-the-latest-iphone-camera-features-for-2024/"><u>Stunning Images with the Latest iPhone Camera Features for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/uperstars-with-a-subscriber-base/"><u>[New] Superstars with a Subscriber Base</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-masterclass-the-foremost-image-enhancers-on-iphones-and-androids/"><u>2024 Approved  Masterclass  The Foremost Image Enhancers on iPhones and Androids</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unique-channel-branding-how-to-personalize-your-youtube-url/"><u>2024 Approved  Unique Channel Branding  How to Personalize Your YouTube Url</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rform-competitors-youtube-visibility-tactics-for-2024/"><u>Outperform Competitors  YouTube Visibility Tactics for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-uncover-8-effective-youtube-promotion-methods/"><u>[New] 2024 Approved  Uncover 8 Effective YouTube Promotion Methods</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-adsense-profits-on-youtube-earnings-per-thousand-video-watchers/"><u>[New] 2024 Approved  AdSense Profits on YouTube  Earnings per Thousand Video Watchers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-art-of-ad-free-earning-on-youtube-strategies-for-self-reliance-creators/"><u>In 2024, The Art of Ad-Free Earning on YouTube  Strategies for Self-Reliance Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ring-youtube-a-guide-for-gamers-live-broadcasts-for-2024/"><u>Mastering YouTube  A Guide for Gamers' Live Broadcasts for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/s-with-a-twist-for-your-vlog-talks/"><u>Topics with a Twist for Your Vlog Talks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-skyrocket-your-subscriber-count-6-proven-ways-to-keep-audiences-coming-back/"><u>[Updated] 2024 Approved  Skyrocket Your Subscriber Count  6 Proven Ways to Keep Audiences Coming Back</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-realme-12-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Realme 12 5G FRP Bypass</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-vlog-verily-tips-and-taboos-in-the-daily-digital-sphere/"><u>[New] 2024 Approved  Vlog Verily  Tips and Taboos in the Daily Digital Sphere</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ate-profit-prodigy-in-the-digital-age/"><u>Ultimate Profit Prodigy in the Digital Age</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-comedic-counterpoints-funny-song-flips/"><u>[Updated] 2024 Approved  Comedic Counterpoints  Funny Song Flips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-delving-into-youtubes-functionality-after-upload/"><u>[New] 2024 Approved  Delving Into YouTube's Functionality After Upload</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ate-and-dominate-with-youtube-studios-advanced-editing-features-for-2024/"><u>Navigate and Dominate with YouTube Studio's Advanced Editing Features for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-exposing-sham-numbers-the-danger-of-fabricated-youtube-views/"><u>2024 Approved  Exposing Sham Numbers  The Danger of Fabricated YouTube Views</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-todays-biggest-bites-the-top-youtube-hits/"><u>[New] 2024 Approved  Today’s Biggest Bites  The Top YouTube Hits</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-7-uncomplicated-steps-for-skyrocketing-subscribers/"><u>2024 Approved  7 Uncomplicated Steps for Skyrocketing Subscribers</u></a></li>
+</ul></div>

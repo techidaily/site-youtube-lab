@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Budget-Friendly Methods for YouTube Card Creation\""
-date: 2024-07-02T13:48:46.574Z
-updated: 2024-07-03T13:48:46.574Z
+date: 2024-07-13T17:13:27.215Z
+updated: 2024-07-14T17:13:27.215Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/51b5c705b272c6a35f26cbee92033b8d25124b814
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -66,6 +69,18 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -77,6 +92,9 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -135,3 +153,43 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-quickstep-into-viral-audio-youtubes-short-musical-journey/"><u>[Updated] 2024 Approved  The Quickstep Into Viral Audio  YouTube's Short Musical Journey</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-enhancing-viewability-creating-custom-youtube-thumbnails/"><u>[Updated] Enhancing Viewability  Creating Custom YouTube Thumbnails</u></a></li>
+<li><a href="https://network-issues.techidaily.com/unlocking-system-potential-safe-mode-and-graphic-card-driver-elimination-in-w8/"><u>Unlocking System Potential: Safe Mode & Graphic Card Driver Elimination in W8</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/2024-approved-enhancing-cinematic-soundscape-fading-and-amplifying-audio-effectively-with-keyframing-in-macos-filmora/"><u>2024 Approved Enhancing Cinematic Soundscape Fading and Amplifying Audio Effectively with Keyframing in macOS Filmora</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/eamlessly-convert-youtube-videos-to-mp3-on-mac-for-2024/"><u>[New] Seamlessly Convert YouTube Videos to MP3 on Mac for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-explore-the-ultimate-list-of-free-youtube-channel-starters-for-2024/"><u>[Updated] Explore the Ultimate List of Free YouTube Channel Starters for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-customizing-youtube-viewing-policies-for-your-content/"><u>[Updated] Customizing YouTube Viewing Policies for Your Content</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-inspiration-in-every-frame-top-tiktok-personalities/"><u>[New] 2024 Approved  Inspiration in Every Frame  Top TikTok Personalities</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-youtube-brand-identity-increasing-subscriber-count-for-2024/"><u>[New] Mastering YouTube Brand Identity  Increasing Subscriber Count for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-tactics-to-amplify-your-video-presence-with-targeted-keywords/"><u>[Updated] In 2024, Tactics to Amplify Your Video Presence with Targeted Keywords</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-ultimate-guide-to-choosing-a-screen-swivel-cam-for-your-needs/"><u>[Updated] 2024 Approved  The Ultimate Guide to Choosing a Screen Swivel Cam for Your Needs</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-nintendo-switch-leading-capture-card-selections/"><u>[New] 2024 Approved  Nintendo Switch  Leading Capture Card Selections</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/frame-your-photos-right-a-guide-to-top-notch-edges-in-instagram-for-2024/"><u>Frame Your Photos Right  A Guide to Top-Notch Edges in Instagram for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-taking-your-filmed-artistry-on-a-journey-with-imovie-and-youtube/"><u>In 2024, Taking Your Filmed Artistry on a Journey with iMovie & YouTube</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-dispelling-digital-studio-misconceptions-what-daws-truly-are/"><u>New 2024 Approved Dispelling Digital Studio Misconceptions What DAWs Truly Are</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-social-media-showdown-continues-the-ongoing-debate-on-igtv-and-youtube/"><u>[Updated] In 2024, Social Media Showdown Continues  The Ongoing Debate on IGTV and YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-master-the-art-of-yt-channel-creation-right-from-your-smartphone/"><u>[Updated] In 2024, Master the Art of YT Channel Creation, Right From Your Smartphone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-is-taking-screenshots-of-youtube-videos-illegal/"><u>[Updated] 2024 Approved  Is Taking Screenshots of YouTube Videos Illegal?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-efficient-content-curation-steps-towards-a-well-organized-watch-later-playlist/"><u>[Updated] In 2024, Efficient Content Curation  Steps Towards a Well-Organized 'Watch Later' Playlist</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/cing-viewability-creating-custom-youtube-thumbnails/"><u>Enhancing Viewability  Creating Custom YouTube Thumbnails</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/e-the-allure-of-sham-youtube-audience/"><u>Beware the Allure of Sham YouTube Audience</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-unlocked-iphone-12-by-drfone-ios/"><u>In 2024, Everything You Need To Know About Unlocked iPhone 12</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-the-popularity-of-video-content-on-social-media-networks-has-been-soaring-in-the-last-couple-of-years-and-it-is-only-reasonable-to-expect-this/"><u>2024 Approved The Popularity of Video Content on Social Media Networks Has Been Soaring in the Last Couple of Years, and It Is only Reasonable to Expect This Trend to Continue. Thats the Reason Why in This Article</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-proven-strategies-for-enhancing-quality-in-obs-edits/"><u>[Updated] 2024 Approved  Proven Strategies for Enhancing Quality in OBS Edits</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/e-stock-images-directly-from-trusted-4-youtube-vids-for-2024/"><u>Source Stock Images Directly From Trusted 4 Youtube Vids for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-create-unforgettable-slideshows-top-rated-photo-movie-software/"><u>New In 2024, Create Unforgettable Slideshows Top-Rated Photo Movie Software</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/effortlessly-blend-your-yt-video-with-gs/"><u>Effortlessly Blend Your YT Video with GS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-comprehensive-tips-for-monitoring-subscriber-engagement-for-2024/"><u>[Updated] Comprehensive Tips for Monitoring Subscriber Engagement for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-find-rich-ambiance-for-video-content/"><u>[Updated] Find Rich Ambiance for Video Content!</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-win-like-a-pro-with-this-no-cost-high-impact-voice-changer-for-valorant-for-2024/"><u>[Updated] Win Like a Pro with This No-Cost, High-Impact Voice Changer for Valorant for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-spark-your-audience-with-best-video-content-ideas/"><u>2024 Approved  Spark Your Audience with Best Video Content Ideas</u></a></li>
+<li><a href="https://extra-information.techidaily.com/amplifying-your-role-play-roblox-closeup-mastery-for-2024/"><u>Amplifying Your Role-Play  Roblox Closeup Mastery for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-11-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone 11</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-infinix-hot-40-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Infinix Hot 40 to Other Android Devices? | Dr.fone</u></a></li>
+</ul></div>

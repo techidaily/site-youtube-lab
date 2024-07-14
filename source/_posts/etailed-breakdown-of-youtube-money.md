@@ -1,7 +1,7 @@
 ---
 title: "The Detailed Breakdown of YouTube Money"
-date: 2024-06-17T19:58:35.519Z
-updated: 2024-06-18T19:58:35.519Z
+date: 2024-07-13T15:52:32.382Z
+updated: 2024-07-14T15:52:32.382Z
 tags:
   - ai video
   - ai youtube
@@ -398,6 +398,9 @@ This Irish YouTube personality has a vlogging and video games channel. This year
 
 David, a viral social media star, has gathered 18.2 million subscribers and over 8 billion views. His combined followers from different social media platforms are over 45 million. David's other business endeavors and social media success explain his worth of $20 million.
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 14\. Anastasia Radzinskaya (AKA Like Nastya)
 
 Nastya is an eight-year-old Russian girl who, in just a few years, has become one of the known children's YouTubers in the world. Nowadays, she has over 110 million subscribers combining her six channels with over 42 billion views. In 2017, she partnered with Yoolato to monetize the content. It was worth it – Radzinskaya is now worth a massive $20 million.
@@ -548,3 +551,54 @@ Your content must be unique so your viewers will want to stick around and engage
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-social-media-live-platforms-facebook-vs-youtube-live-and-twitter-periscope/"><u>[Updated] Social Media Live Platforms  FACEbook Vs. YOUTube Live & Twitter Periscope</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-monetization-tracker-tool-for-online-videos/"><u>In 2024, Monetization Tracker Tool for Online Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-leading-resource-hubs-for-youtube-intro-files/"><u>[Updated] 2024 Approved  Leading Resource Hubs for YouTube Intro Files</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-melodic-freedom-fbs-music-library/"><u>[New] In 2024, Melodic Freedom  FB's Music Library</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ked-movies-the-real-top-picks/"><u>Unranked Movies  The Real Top Picks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ci-ed-hacks-top-youtube-experts-to-elevate-learning/"><u>[New] Sci-Ed Hacks  Top YouTube Experts to Elevate Learning</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-carryminati-unmasked-the-monetary-milestones/"><u>In 2024, CarryMinati Unmasked  The Monetary Milestones</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/arnings-explorer-what-you-get-for-watching-one-million-videos-in-2024/"><u>[New] Earnings Explorer  What You Get for Watching One Million Videos, In 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-optimizing-engagement-using-cards-and-annotations/"><u>[Updated] In 2024, Optimizing Engagement  Using Cards and Annotations</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unlock-youtubes-monetizing-potential-with-strategic-short-videos/"><u>[New] 2024 Approved  Unlock YouTube's Monetizing Potential with Strategic Short Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-crafting-engaging-video-teasers-for-youtube-success/"><u>[Updated] Crafting Engaging Video Teasers for YouTube Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-steps-to-skyrocket-your-youtube-subscribers-count/"><u>2024 Approved  Steps to Skyrocket Your YouTube Subscribers Count</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-exemplary-audio-enhancing-programs-for-youtube-artists-for-2024/"><u>[Updated] Exemplary Audio-Enhancing Programs for YouTube Artists for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-streamlined-mp4-creation-must-have-tools-on-mac/"><u>2024 Approved  Streamlined MP4 Creation  Must-Have Tools on Mac</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-do-nokia-c12-plus-screen-sharing-drfone-by-drfone-android/"><u>In 2024, How To Do Nokia C12 Plus Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-seamless-playlist-transfer-migrating-from-spotify-to-youtube-music-service/"><u>2024 Approved  Seamless Playlist Transfer  Migrating From Spotify to YouTube Music Service</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-youtube-rankings-secrets-enhancing-video-visibility/"><u>[New] In 2024, YouTube Rankings Secrets  Enhancing Video Visibility</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-split-screen-video-makers-the-ultimate-guide-for-ios-and-android-users/"><u>Updated Split Screen Video Makers The Ultimate Guide for iOS and Android Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-dive-into-diy-the-beginners-guide-to-eye-catching-mac-videos/"><u>[Updated] Dive Into DIY  The Beginner’s Guide to Eye-Catching Mac Videos</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unhackable-blueprint-for-inserting-your-tiktok-links/"><u>2024 Approved  Unhackable Blueprint for Inserting Your TikTok Links</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mindful-moments-elite-yoga-routines-for-serenity/"><u>[Updated] In 2024, Mindful Moments  Elite Yoga Routines for Serenity</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-pro-gamers-and-casters-to-subscribe-now/"><u>2024 Approved  Pro Gamers & Casters to Subscribe Now</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-pinnacle-selector-your-personal-video-vault/"><u>[Updated] 2024 Approved  The Pinnacle Selector  Your Personal Video Vault</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/king-the-code-to-content-creator-commerce-with-carminati-ajay/"><u>Unlocking the Code to Content Creator Commerce with Carminati (AJay)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-dodging-doubts-a-guide-to-vloggings-most-common-anxieties/"><u>[Updated] 2024 Approved  Dodging Doubts  A Guide to Vlogging's Most Common Anxieties</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-ultimate-plan-for-building-your-ideal-youtube-playlist/"><u>[New] In 2024, The Ultimate Plan for Building Your Ideal YouTube Playlist</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-top-8-choices-mirrorless-cameras-for-excellent-vlogs/"><u>[New] The Top 8 Choices  Mirrorless Cameras for Excellent Vlogs</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-xiaomi-11-a-new-era-of-high-fidelity-video-recording/"><u>[Updated] 2024 Approved  Xiaomi 11  A New Era of High Fidelity Video Recording</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-deciphering-youtube-shorts-a-comprehensive-overview/"><u>In 2024, Deciphering YouTube Shorts  A Comprehensive Overview</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-strategies-for-video-discovery-boosting-viewership-cost-free/"><u>[Updated] 2024 Approved  Strategies for Video Discovery  Boosting Viewership Cost-Free</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-making-money-with-youtube-understanding-partner-program/"><u>[Updated] Making Money with YouTube  Understanding Partner Program</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-social-shine-a-snapchat-guide-for-giftful-gif-enthusiasts/"><u>In 2024, Social Shine  A Snapchat Guide for Giftful GIF Enthusiasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-cut-the-boring-watch-these-15-hilarious-youtube-bites-for-2024/"><u>[Updated] Cut the Boring, Watch These 15 Hilarious YouTube Bites for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/itting-the-sweet-spot-top-5-tips-for-channel-growth-for-2024/"><u>[New] Hitting the Sweet Spot  Top 5 Tips for Channel Growth for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-earnings-spectrum-unveiling-the-financial-power-of-dailymovement-and-youtube/"><u>[Updated] 2024 Approved  Earnings Spectrum  Unveiling the Financial Power of DailyMovement and YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-detailed-tips-for-adequate-lighting-in-youtube-video-production/"><u>[New] 2024 Approved  Detailed Tips for Adequate Lighting in YouTube Video Production</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-first-time-filmmakers-guide-to-gear-selection-for-2024/"><u>[New] The First-Time Filmmaker's Guide to Gear Selection for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unlocking-youtube-success-top-10-keyword-research-utilities-listed-for-2024/"><u>[Updated] Unlocking YouTube Success  Top 10 Keyword Research Utilities Listed for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-mastering-the-art-of-thumbnail-design-with-your-mac/"><u>[New] 2024 Approved  Mastering the Art of Thumbnail Design with Your Mac</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dual-stream-advantage-access-more-eyes-on-youtube-and-twitch/"><u>Dual-Stream Advantage  Access More Eyes on Youtube & Twitch</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-carryminati-unmasked-the-monetary-milestones/"><u>[Updated] CarryMinati Unmasked  The Monetary Milestones</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/iscovering-best-phone-based-asmr-experiences/"><u>[New] Discovering Best Phone-Based ASMR Experiences</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-beauty-bard-in-depth-gear-and-tutorial-roundups/"><u>[New] In 2024, The Beauty Bard  In-Depth Gear & Tutorial Roundups</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Samsung Galaxy A54 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-tactical-multitasking-a-guide-to-co-watching-on-yt/"><u>[Updated] 2024 Approved  Tactical Multitasking  A Guide to Co-Watching on YT</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/in-2024-make-your-whatsapp-status-stand-out-with-these-essential-apps/"><u>In 2024, Make Your WhatsApp Status Stand Out with These Essential Apps</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-android-users-discover-the-top-youtube-video-clips/"><u>[New] In 2024, Android Users, Discover the Top YouTube Video Clips</u></a></li>
+</ul></div>

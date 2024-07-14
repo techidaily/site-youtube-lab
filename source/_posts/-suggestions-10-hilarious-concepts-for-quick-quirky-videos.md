@@ -1,7 +1,7 @@
 ---
 title: "\"Silly Suggestions  10 Hilarious Concepts for Quick, Quirky Videos\""
-date: 2024-06-17T20:43:47.914Z
-updated: 2024-06-18T20:43:47.914Z
+date: 2024-07-13T16:47:04.752Z
+updated: 2024-07-14T16:47:04.752Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,9 @@ Just review all your collection of experiments you did and combine them under Yo
 
 Competition creates a zeal to lead, and if you add some flavor to it. Then, people will love to take part in it. So, waiting for what? Just come out with YouTube Shorts funny Video Competition ideas to grab the audience to watch the videos and become active participants.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-7.jpg)
 
 Funny competition can vary from a weird hairstyle, odd season festival celebration, or anything that you think of interesting, different, and eye-catching.
@@ -189,3 +192,61 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-infinix-note-30-vip-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Infinix Note 30 VIP to Outlook | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/al-cash-kings-leading-youtube-creators/"><u>Digital Cash Kings  Leading YouTube Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-top-choice-for-capturing-quality-content-on-youtube/"><u>In 2024, Top Choice for Capturing Quality Content on YouTube</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-the-easter-basket-of-deals-wondershare-filmora-promo-code-inside/"><u>New In 2024, The Easter Basket of Deals Wondershare Filmora Promo Code Inside</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-expert-mp3-creation-guide-top-video-to-audio-devices/"><u>[Updated] Expert MP3 Creation Guide  Top Video-to-Audio Devices</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-optimize-twitter-vids-the-full-hd-method/"><u>[New] 2024 Approved  Optimize Twitter Vids  The Full HD Method</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-the-ultimate-guide-to-sims-4-gameplay-capture/"><u>[New] The Ultimate Guide to Sims 4 Gameplay Capture</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/transcendence-in-music-mixing-crossfade-unveiled/"><u>Transcendence in Music Mixing  Crossfade Unveiled</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unveiling-the-secrets-how-to-clear-yt-background/"><u>[Updated] Unveiling the Secrets  How to Clear YT Background</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-hero5-vs-yi-evaluating-cutting-edge-cameras/"><u>[Updated] Hero5 Vs. YI  Evaluating Cutting-Edge Cameras</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-step-by-step-capturing-ios-device-screen-on-video/"><u>[Updated] In 2024, Step-by-Step  Capturing iOS Device Screen on Video</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-elevate-your-channels-templates-at-no-charge/"><u>[Updated] Elevate Your Channels - Templates at No Charge</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/than-just-watch-time-understanding-youtube-views-calculation-for-2024/"><u>More than Just Watch Time  Understanding YouTube Views Calculation for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/blueprinting-a-dynamic-tiktok-end-credits-rollout-for-2024/"><u>Blueprinting a Dynamic TikTok End-Credits Rollout for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-apple-iphone-xr-drfone-by-drfone-virtual-ios/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Apple iPhone XR? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unveiling-the-power-of-tags-in-your-youtube-content/"><u>[Updated] In 2024, Unveiling the Power of Tags in Your YouTube Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-revealing-the-ultimate-collection-of-youtube-beauty-experts/"><u>2024 Approved  Revealing the Ultimate Collection of YouTube Beauty Experts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-how-to-find-youtube-partners-and-make-collab-videos/"><u>In 2024, How to Find YouTube Partners and Make Collab Videos?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-demystifying-youtubes-seo-a-keyword-research-guide-for-2024/"><u>[Updated] Demystifying YouTube's SEO  A Keyword Research Guide for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-honor-90-lite-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Honor 90 Lite</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-gamer-income-tactics/"><u>In 2024, Gamer Income Tactics</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-tale-constructing-the-basic-blueprint/"><u>In 2024, Tale Constructing  The Basic Blueprint</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-real-time-recording-rivals-obs-and-shadowtoolkit/"><u>[New] 2024 Approved  Real-Time Recording Rivals  OBS & ShadowToolKit</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unlock-your-watch-list-10-best-free-youtube-extractors/"><u>[New] 2024 Approved  Unlock Your Watch List  10 Best Free YouTube Extractors</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-efficient-video-cutting-techniques-to-boost-your-content-for-2024/"><u>[Updated] Efficient Video Cutting Techniques to Boost Your Content for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-authenticity-matters-selecting-reliable-tiktok-followers/"><u>[New] In 2024, Authenticity Matters  Selecting Reliable TikTok Followers</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-efficiently-handling-youtube-short-issues-for-2024/"><u>[New] Efficiently Handling YouTube Short Issues for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-cultivating-patience-with-youtube-disapproval/"><u>[New] 2024 Approved  Cultivating Patience with YouTube Disapproval</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Oppo Reno 9A? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-first-steps-to-faster-film-playback-in-snapchat/"><u>[New] First Steps to Faster Film Playback in Snapchat</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/be-ready-360-videos-editing-and-sharing-made-simple-for-2024/"><u>YouTube-Ready 360 Videos  Editing & Sharing Made Simple for 2024</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/a-full-review-for-itools-virtual-location-and-top-5-alternatives-for-apple-iphone-6s-plusipad-drfone-by-drfone-virtual-ios/"><u>A Full Review for iTools Virtual Location and Top 5 Alternatives For Apple iPhone 6s Plus/iPad | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/magic-voice-transformation-is-this-app-feasible-discover-other-solutions/"><u>Magic Voice Transformation  Is This App Feasible? Discover Other Solutions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-simple-guide-youtube-to-mp3-on-mac/"><u>[Updated] In 2024, Simple Guide  YouTube to MP3 on Mac,</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Motorola Moto G13? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-directing-rhythms-integrating-sounds-into-youtube/"><u>[New] 2024 Approved  Directing Rhythms  Integrating Sounds Into Youtube</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-zte-blade-a73-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track ZTE Blade A73 5G by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-nokia-c110-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/turn-off-screen-lock-honor-v-purse-by-drfone-android-unlock-android-unlock/"><u>Turn Off Screen Lock - Honor V Purse</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-audio-to-text-converter-for-videos/"><u>[Updated] Audio-to-Text Converter for Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ptimize-your-video-written-by-your-name/"><u>[New] Optimize Your Video' Written By  [Your Name]</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-securing-a-stable-stream-of-earnings-on-youtube/"><u>[Updated] Securing a Stable Stream of Earnings on YouTube</u></a></li>
+<li><a href="https://driver-install.techidaily.com/download-and-update-latest-version-of-tp-link-wireless-drivers-windows/"><u>Download & Update: Latest Version of TP Link Wireless Drivers Windows</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-creating-compelling-youtube-live-content-with-wirecast/"><u>[Updated] In 2024, Creating Compelling Youtube Live Content with WireCast</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-surging-views-selecting-best-hashtags-for-yt/"><u>[Updated] In 2024, Surging Views  Selecting Best Hashtags for YT</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-a-look-at-earnings-understanding-your-monthly-income-from-youtubes-adsense/"><u>[Updated] In 2024, A Look at Earnings  Understanding Your Monthly Income From YouTube's AdSense</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-unlock-your-tech-potential-mastering-macs-screen-capturing-with-just-shortcuts/"><u>2024 Approved  Unlock Your Tech Potential  Mastering Mac's Screen Capturing with Just Shortcuts</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-easy-steps-on-how-to-create-a-new-apple-id-account-on-apple-iphone-15-pro-drfone-by-drfone-ios/"><u>In 2024, Easy Steps on How To Create a New Apple ID Account On Apple iPhone 15 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-true-story-of-youtube-earnings-and-viewer-volume-requirements/"><u>[Updated] In 2024, The True Story of YouTube Earnings and Viewer Volume Requirements</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-trailblazer-in-multimedia-craftsmanship/"><u>In 2024, Trailblazer in Multimedia Craftsmanship</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-free-youtube-channel-art-templates-find-them-here/"><u>[Updated] Free YouTube Channel Art Templates - Find Them Here</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-channel-confidence-tips-for-trending-on-youtube/"><u>In 2024, Channel Confidence  Tips for Trending on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/armony-and-rhythm-discover-the-best-15-youtube-educational-videos-for-2024/"><u>[New] Harmony & Rhythm  Discover the Best 15 YouTube Educational Videos for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/e-icons-top-earner-video-stars/"><u>Income Icons  Top Earner Video Stars</u></a></li>
+</ul></div>

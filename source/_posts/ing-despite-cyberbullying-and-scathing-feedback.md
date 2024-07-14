@@ -1,7 +1,7 @@
 ---
 title: "Thriving Despite Cyberbullying and Scathing Feedback"
-date: 2024-06-17T20:40:04.482Z
-updated: 2024-06-18T20:40:04.482Z
+date: 2024-07-13T16:42:35.518Z
+updated: 2024-07-14T16:42:35.518Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
 
 # How To Deal with YouTube Trolls and Negative Comments
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -26,6 +29,9 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -52,6 +58,9 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -77,3 +86,66 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-captureeverything-a-deep-dive-into-laptop-recording/"><u>In 2024, CaptureEverything  A Deep Dive Into Laptop Recording</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-unveiling-concealed-intentions-the-art-of-snapchat-emojis/"><u>[Updated] 2024 Approved  Unveiling Concealed Intentions  The Art of Snapchat Emojis</u></a></li>
+<li><a href="https://fox-http.techidaily.com/streamlined-techniques-for-transforming-vids-on-pinterest-to-mp3s-for-2024/"><u>Streamlined Techniques for Transforming Vids on Pinterest to MP3s for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-elevate-collaborative-workflow-enhancing-zoom-use-in-gmail-mail/"><u>[New] In 2024, Elevate Collaborative Workflow  Enhancing Zoom Use in Gmail Mail</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ization-marvels-worldwide-youtuber-winners/"><u>Monetization Marvels - Worldwide Youtuber Winners</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-master-class-in-live-streaming-your-pathway-to-successful-youtube-channels-via-wirecast/"><u>[New] 2024 Approved  Master Class in Live Streaming  Your Pathway to Successful Youtube Channels via WireCast</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-copyright-clash-immediate-consequences-for-2024/"><u>[New] Copyright Clash, Immediate Consequences for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-essential-tips-for-discarding-unwanted-youtube-files/"><u>[Updated] In 2024, The Essential Tips for Discarding Unwanted YouTube Files</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-beginners-blueprint-to-youtube-streaming-games/"><u>In 2024, Beginner's Blueprint to YouTube Streaming Games</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-frameworks-producing-uplifting-life-journey-broadcasts/"><u>[New] In 2024, Frameworks  Producing Uplifting Life Journey Broadcasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-mastering-content-the-key-to-engaging-yt-shorts/"><u>In 2024, Mastering Content  The Key to Engaging YT Shorts</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-detailed-tutorial-to-rotate-videos-in-cyberlink-powerdirector/"><u>Updated Detailed Tutorial to Rotate Videos in Cyberlink PowerDirector</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tealthy-search-strategies-for-elusive-youtube-videos/"><u>[New] Stealthy Search Strategies for Elusive YouTube Videos</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-huawei-nova-y91-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Huawei Nova Y91 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-vivo-y55s-5g-2023-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Vivo Y55s 5G (2023) Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-go-through-this-guide-on-all-steps-in-freezing-frame-sequences-in-videos-using-filmora-details-include-splitting-the-clip-reversing-speed-and-more-f/"><u>Updated Go Through This Guide on All Steps in Freezing Frame Sequences in Videos Using Filmora. Details Include Splitting the Clip, Reversing Speed, and More for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-effortlessly-convert-youtube-videos-online/"><u>How to Effortlessly Convert YouTube Videos Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-the-joy-twice-the-fun-televised-repetition-made-easy-for-2024/"><u>Twice the Joy, Twice the Fun  Televised Repetition Made Easy for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-treasures-on-youtube-understanding-unlisted-footage/"><u>Hidden Treasures on YouTube  Understanding 'Unlisted' Footage</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-instantly-access-all-episodes-premium-downloader-tools-reviewed/"><u>[New] 2024 Approved  Instantly Access All Episodes  Premium Downloader Tools Reviewed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-quick-realignment-youtube-on-mac-display-ratio/"><u>[New] In 2024, Quick Realignment  YouTube on Mac Display Ratio</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/treamers-guide-validating-your-channels-income/"><u>[New] Streamer's Guide  Validating Your Channel's Income</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-pause-non-selected-youtube-video-suggestions/"><u>[Updated] In 2024, Pause Non-Selected YouTube Video Suggestions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-unveiling-the-secrets-to-effortless-youtube-sharing-on-fb-groups/"><u>[New] In 2024, Unveiling the Secrets to Effortless YouTube Sharing on FB Groups</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-snickerslide-lighten-up-your-online-presence/"><u>[New] SnickerSlide  Lighten Up Your Online Presence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-minecraft-community-image-bank-access/"><u>In 2024, Minecraft Community Image Bank Access</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-streamline-your-video-capture-with-macbook-cam-settings/"><u>In 2024, Streamline Your Video Capture with MacBook Cam Settings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/utting-edge-tools-for-unique-youtube-channel-names/"><u>[New] Cutting-Edge Tools for Unique YouTube Channel Names</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-enhance-sound-clarity-with-dynamic-range-compression-techniques/"><u>Updated Enhance Sound Clarity with Dynamic Range Compression Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/treamers-guide-validating-your-channels-income-for-2024/"><u>[New] Streamer's Guide  Validating Your Channel's Income for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-top-8-pitfalls-for-novice-youtube-creators/"><u>[Updated] In 2024, Top 8 Pitfalls for Novice YouTube Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/isual-sizzle-how-to-make-your-youtube-logo-pop-for-2024/"><u>[New] Visual Sizzle  How to Make Your YouTube Logo Pop for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/0-mock-musicals-that-bring-smiles-for-2024/"><u>[New] 10 Mock Musicals That Bring Smiles for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/sh-creativity-top-8-sites-offering-free-green-screen-footage-and-backgrounds-for-2024/"><u>Unleash Creativity  Top 8 Sites Offering Free Green Screen Footage & Backgrounds for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-from-camera-roll-to-youtube-posting-short-clips-seamlessly/"><u>In 2024, From Camera Roll to YouTube  Posting Short Clips Seamlessly</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-ultimate-checklist-to-successful-video-marketing-with-tags-for-2024/"><u>[New] The Ultimate Checklist to Successful Video Marketing with Tags for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/op-video-editors-for-youtube-on-the-houseno-cost-included/"><u>[New] Top Video Editors for YouTube on the House—No Cost Included</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-video-marketing-strategies-integrating-logowatermark-for-brand-identity/"><u>[New] In 2024, Video Marketing Strategies  Integrating Logo/Watermark for Brand Identity</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/new-2024-approved-discover-the-process-of-slowing-down-time-lapse-videos-on-your-iphone/"><u>New 2024 Approved Discover the Process of Slowing Down Time-Lapse Videos on Your iPhone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-transitioning-shadows-a-minute-later/"><u>In 2024, Transitioning Shadows  A Minute Later</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-modifying-sound-intensity-in-video-and-music-files/"><u>Updated Modifying Sound Intensity in Video and Music Files</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tive-visual-branding-crafting-compelling-youtube-logos/"><u>Effective Visual Branding  Crafting Compelling YouTube Logos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/public-melodies-for-calmness-for-2024/"><u>Public Melodies for Calmness for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-masterclasses-in-applying-online-vhs-filters-and-graphics/"><u>[New] In 2024, Masterclasses in Applying Online VHS Filters and Graphics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-football-inscriptions-premier-fifa-youtube-insights/"><u>[New] 2024 Approved  Football Inscriptions  Premier FIFA YouTube Insights</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-comprehensive-guide-to-crafting-great-fb-cover-videos-for-2024/"><u>[Updated] The Comprehensive Guide to Crafting Great FB Cover Videos for 2024</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-2024-approved-motion-tracking-apps-the-ultimate-guide-for-android-and-ios/"><u>New 2024 Approved Motion Tracking Apps The Ultimate Guide for Android and iOS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-navigating-the-short-form-space-youtubes-bite-vs-tiktok-written-by-a-marketing-analyst-with-expertise-in-social-media-trends-and-platforms-for-2024./"><u>[Updated] Navigating the Short-Form Space  YouTube's Bite Vs. TikTok' Written by a Marketing Analyst with Expertise in Social Media Trends and Platforms. For 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-guide-to-retrieving-and-saving-gifs-from-facebooks-domain-for-2024/"><u>[New] Guide to Retrieving and Saving GIFs From Facebook's Domain for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/g-a-splash-with-youtube-ad-banners-and-thumbnails/"><u>Making a Splash with YouTube Ad Banners & Thumbnails</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-top-30-camcorders-recommended-for-snow-activities/"><u>[New] In 2024, Top 30 Camcorders Recommended for Snow Activities</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-numbers-game-how-much-does-adsense-pay-on-a-thousand-video-glimpses/"><u>The Numbers Game  How Much Does AdSense Pay on a Thousand Video Glimpses?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-realme-v30t-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Realme V30T Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nnovators-uniting-video-sound-and-imagery-for-2024/"><u>[New] Innovators Uniting Video, Sound & Imagery for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-data-from-vivo-v29-by-fonelab-android-recover-data/"><u>Easy steps to recover deleted data from Vivo V29</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/switch-cards-between-apple-iphone-11-pro-and-other-iphones-will-move-all-phone-services-drfone-by-drfone-transfer-from-ios/"><u>Switch Cards Between Apple iPhone 11 Pro and other iPhones Will Move All Phone Services? | Dr.fone</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/new-how-to-make-animated-videos-for-business-simple-guide/"><u>New How to Make Animated Videos for Business Simple Guide</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-top-facebook-audio-downloaders-convert-to-mp3-instantly/"><u>New 2024 Approved Top Facebook Audio Downloaders Convert to MP3 Instantly</u></a></li>
+<li><a href="https://games-able.techidaily.com/1719164865100-lighteconomonitor-27m2v-hd-gamers-choice/"><u>LightEconoMonitor: 27M2V HD Gamers Choice!</u></a></li>
+</ul></div>

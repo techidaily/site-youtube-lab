@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unwanted Comments Made Easy  An Overview\""
-date: 2024-06-17T20:45:49.843Z
-updated: 2024-06-18T20:45:49.843Z
+date: 2024-07-13T16:49:32.728Z
+updated: 2024-07-14T16:49:32.728Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +63,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -110,9 +110,12 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
@@ -151,3 +154,67 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-a-damaged-video-file-of-oppo-k11x-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair a Damaged video file of Oppo K11x?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-in-playlist-distribution-youtube-guide-for-2024/"><u>Haste in Playlist Distribution  YouTube Guide for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-from-novice-to-expert-pro-gopro-filming-made-easy/"><u>[New] From Novice to Expert  Pro Gopro Filming Made Easy</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719149244288-breaking-barriers-transmit-fb-posts-and-notes-on-key-apps-easily/"><u>Breaking Barriers: Transmit FB Posts & Notes on Key Apps Easily</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-learn-and-create-the-ultimate-youtube-trailer-blueprint-in-filmora-for-2024/"><u>[Updated] Learn and Create  The Ultimate YouTube Trailer Blueprint in Filmora for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-realme-12-5g-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Realme 12 5G Phone Now with These Tips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-strategic-marketing-insights-for-maximizing-youtube-shorts-popularity-for-2024/"><u>[Updated] Strategic Marketing Insights for Maximizing YouTube Shorts Popularity for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unlock-youtube-monetization-a-focus-on-short-video-profits/"><u>2024 Approved  Unlock YouTube Monetization  A Focus on Short Video Profits</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-perfecting-the-art-of-ppt-video-creation/"><u>[Updated] Perfecting the Art of PPT Video Creation</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-nokia-g22-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Nokia G22 Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-masterful-approach-to-creating-attractive-yt-summaries/"><u>In 2024, Masterful Approach to Creating Attractive YT Summaries</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-epic-soundscape-trending-audio-for-cutting-edge-youtube-short-videos/"><u>2024 Approved  Epic Soundscape  Trending Audio for Cutting-Edge YouTube Short Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-mp4-editing-on-mac-top-selections-for-youtubers/"><u>[New] Mastering MP4 Editing on Mac  Top Selections for YouTubers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-any-realme-c33-2023-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Realme C33 2023 Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-expressiveness-enhancing-youtube-comments-via-emojis/"><u>[Updated] Expressiveness  Enhancing YouTube Comments via Emojis</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-best-free-video-editing-software-for-cutting-mp4-files/"><u>Updated In 2024, Best Free Video Editing Software for Cutting MP4 Files</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xplore-free-youtube-channel-imagery-tools/"><u>[New] Explore Free YouTube Channel Imagery Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-from-novice-to-pro-simplified-youtube-live-streaming-with-obs/"><u>[Updated] In 2024, From Novice to Pro  Simplified YouTube Live Streaming with OBS</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Xiaomi Redmi Note 13 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-list-best-general-knowledge-trivia-series-2024/"><u>[Updated] Ultimate List  Best General Knowledge Trivia Series 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-enrich-your-viewing-habit-with-essential-movie-channels/"><u>2024 Approved  Enrich Your Viewing Habit with Essential Movie Channels</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-comfort-selecting-snug-winter-themes-for-filming-for-2024/"><u>Layered Comfort  Selecting Snug Winter Themes for Filming for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-optimizing-profits-on-youtube-studio-for-all-device-users/"><u>2024 Approved  Optimizing Profits on YouTube  Studio for All-Device Users</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevating-your-videos-visual-impact-youtubthumbnail-design-on-macos-for-2024/"><u>Elevating Your Video's Visual Impact  YoutubThumbnail Design on macOS for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-earning-potential-for-videos-amassing-1-million-views/"><u>2024 Approved  Earning Potential for Videos Amassing 1 Million Views</u></a></li>
+<li><a href="https://extra-support.techidaily.com/melodic-mix-audio-meets-images-online-for-2024/"><u>Melodic Mix  Audio Meets Images Online for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unlock-google-meets-potential-on-youtube-with-this-guide/"><u>2024 Approved  Unlock Google Meet's Potential on YouTube with This Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-the-art-of-viral-videos-for-higher-youtube-popularity/"><u>[Updated] In 2024, Mastering The Art of Viral Videos for Higher YouTube Popularity</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/content-creation-on-facebook-aspect-ratio-choice-for-2024/"><u>Content Creation on Facebook  Aspect Ratio Choice for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-how-to-insert-youtube-links-for-an-engaging-ppt-experience/"><u>In 2024, How to Insert YouTube Links for an Engaging PPT Experience</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-unveil-the-power-of-facetime-direct-messages-and-calls-on-snapchat/"><u>[New] In 2024, Unveil the Power of FaceTime Direct Messages and Calls on Snapchat</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtubes-next-gen-streaming-made-easy-with-obs-tutorial-for-2024/"><u>[Updated] Youtube's Next Gen Streaming Made Easy with OBS Tutorial for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unlock-flawless-video-thumbnails-instantly/"><u>[Updated] 2024 Approved  Unlock Flawless Video Thumbnails Instantly</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-trailblazer-in-photo-music-fusion-crafting/"><u>[Updated] 2024 Approved  Trailblazer in Photo-Music Fusion Crafting</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-surging-up-the-search-listings-key-tips-for-optimizing-your-videos/"><u>[Updated] In 2024, Surging Up the Search Listings  Key Tips for Optimizing Your Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-time-is-money-learn-to-slash-youtube-video-durations/"><u>2024 Approved  Time Is Money - Learn to Slash YouTube Video Durations</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/new-in-2024-discovering-the-best-vocal-enhancement-tools-an-examination-and-comparison/"><u>New In 2024, Discovering the Best Vocal Enhancement Tools An Examination & Comparison</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-in-2024-hard-to-remove-black-background-in-after-effects-heres-the-best-way-to-deal-with-it/"><u>Updated In 2024, Hard to Remove Black Background in After Effects? Heres the Best Way to Deal With It</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-secrets-to-smoothly-resolving-youtube-short-issues/"><u>In 2024, Secrets to Smoothly Resolving YouTube Short Issues</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-econo-audio-amps-for-youtubers-with-limited-dough-for-2024/"><u>[Updated] Econo Audio Amps for Youtubers with Limited Dough for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mastering-sound-enhance-videos-with-windows-11-audio-integration/"><u>In 2024, Mastering Sound  Enhance Videos with Windows 11 Audio Integration</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-ultimate-playbook-to-youtube-hub-mastery/"><u>In 2024, The Ultimate Playbook to YouTube Hub Mastery</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/udience-choice-great-movies-not-on-the-main-list-for-2024/"><u>[New] Audience Choice  Great Movies Not on the Main List for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/09759480-updated-youth-voices-channeling-lifes-milestinasubscriber-channel-for-impactful-personal-storytelling/"><u>[Updated] Youth Voices  Channeling Life's Milestinasubscriber Channel for Impactful Personal Storytelling</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/visual-symphony-adding-music-to-your-youtube-masterpieces/"><u>Audiovisual Symphony  Adding Music to Your YouTube Masterpieces</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-youtube-banner-blueprints-a-gamers-design-handbook/"><u>[Updated] 2024 Approved  YouTube Banner Blueprints  A Gamers' Design Handbook</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/pinnacle-microphone-selections-for-4k-camera-excellence/"><u>Pinnacle Microphone Selections for 4K Camera Excellence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-elevate-storytelling-free-soundtrack-options-available/"><u>[New] 2024 Approved  Elevate Storytelling - Free Soundtrack Options Available</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-xiaomi-redmi-note-13-proplus-5g-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Xiaomi Redmi Note 13 Pro+ 5G Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-best-instant-windows-photograph-gazing-tool/"><u>[Updated] Best Instant Windows Photograph Gazing Tool</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-transforming-imovie-projects-into-youtube-shows/"><u>In 2024, Transforming iMovie Projects Into YouTube Shows</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-vivo-y78t-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after Vivo Y78t has been deleted.</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On OnePlus Nord N30 SE | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-honor-100-pro-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Honor 100 Pro to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/passionate-communicator-evaluation-revision-viii/"><u>Passionate Communicator Evaluation - Revision VIII</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-going-viral-guide-keyword-strategies-for-cut-to-the-chase-videos/"><u>[Updated] 2024 Approved  Going Viral Guide  Keyword Strategies for Cut-to-the-Chase Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-premier-gamers-streaming-software/"><u>[Updated] 2024 Approved  Premier Gamers' Streaming Software</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-learn-how-to-upload-music-to-your-youtube-channel/"><u>[Updated] Learn How to Upload Music to Your YouTube Channel</u></a></li>
+</ul></div>

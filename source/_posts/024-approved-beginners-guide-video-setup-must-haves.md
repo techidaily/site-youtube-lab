@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Beginner's Guide  Video Setup Must-Haves\""
-date: 2024-06-17T20:23:26.116Z
-updated: 2024-06-18T20:23:26.116Z
+date: 2024-07-13T16:22:30.902Z
+updated: 2024-07-14T16:22:30.902Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,9 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -123,3 +126,45 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-network-locked-sim-card-inserted-on-your-lava-blaze-pro-5g-phone-unlock-it-now-by-drfone-android/"><u>In 2024, Network Locked SIM Card Inserted On Your Lava Blaze Pro 5G Phone? Unlock It Now</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-that-make-a-difference-your-20-best-choices-for-2024/"><u>Fonts That Make a Difference  Your 20 Best Choices for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-best-practices-in-extracting-youtube-media/"><u>[New] 2024 Approved  Best Practices in Extracting YouTube Media</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-best-10-free-youtube-subtitle-extractors-and-downloaders/"><u>[New] 2024 Approved  Best 10 Free YouTube Subtitle Extractors & Downloaders</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-conquer-the-shadows-5-ways-to-fix-black-screen-with-obs/"><u>In 2024, Conquer the Shadows  5 Ways to Fix Black Screen with OBS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-channeling-cashflow-a-beginners-guide-to-youtube-earning/"><u>[New] 2024 Approved  Channeling Cashflow  A Beginner’s Guide to YouTube Earning</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-designing-effective-thumbnails-with-imagery/"><u>[New] 2024 Approved  Designing Effective Thumbnails with Imagery</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-evaluating-rapid-subscriptions-impact-on-video-engagement/"><u>[New] 2024 Approved  Evaluating Rapid Subscription's Impact on Video Engagement</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/step-into-tomorrow-with-2023s-lg-bp550-for-2024/"><u>Step Into Tomorrow with 2023'S LG BP550 for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-treasury-of-thought-provoking-youtube-content-for-2024/"><u>[New] A Treasury of Thought-Provoking YouTube Content for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/2024-approved-youtube-acoustic-library/"><u>2024 Approved YouTube Acoustic Library</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-dominating-the-youtube-sphere-key-strategies-for-top-tier-presence/"><u>[New] 2024 Approved  Dominating the YouTube Sphere  Key Strategies for Top-Tier Presence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-best-soundshapers-for-content-makers-on-youtube/"><u>[New] 2024 Approved  Best Soundshapers for Content Makers on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/023s-top-social-moment-infographics/"><u>[New] 2023'S Top Social Moment Infographics</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-youtube-profitability-anywhere-anytime/"><u>[Updated] Elevate Your Youtube Profitability Anywhere, Anytime</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/top-10-recorders-that-wont-break-your-wallet/"><u>Top 10 Recorders That Won't Break Your Wallet</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-cracking-the-code-to-youtube-income-through-views/"><u>[New] In 2024, Cracking the Code to YouTube Income Through Views</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-crafting-a-captivated-audience-in-3-steps/"><u>[New] 2024 Approved  Crafting a Captivated Audience in 3 Steps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/globalscreen-top-ranked-local-and-live-tv-streams-for-2024/"><u>GlobalScreen  Top-Ranked Local & Live TV Streams for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-discovering-the-ultimate-10-free-youtube-artist-collaborators/"><u>[New] 2024 Approved  Discovering the Ultimate 10 Free YouTube Artist Collaborators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-10-common-vlogging-fears-and-how-to-beat-them/"><u>[New] 2024 Approved  10 Common Vlogging Fears and How To Beat Them</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/shared-sights-untold-histories-revealed-for-2024/"><u>Shared Sights  Untold Histories Revealed for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-reimagine-old-school-vhs-with-modern-computer-techniques/"><u>2024 Approved  Reimagine Old-School VHS with Modern Computer Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-up-your-videos-7-premium-royalty-free-audio-clips/"><u>Spice Up Your Videos  7 Premium, Royalty-Free Audio Clips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-discover-10-spectacular-reactions-on-creative-youtube-videos/"><u>[New] 2024 Approved  Discover 10 Spectacular Reactions on Creative YouTube Videos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-stream-anything-from-vivo-v29-to-apple-tv-drfone-by-drfone-android/"><u>In 2024, How To Stream Anything From Vivo V29 to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-culinary-kings-and-queens-youtube-food-experts/"><u>[New] 2024 Approved  Culinary Kings & Queens  YouTube Food Experts</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-xiaomi-14-pro-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Xiaomi 14 Pro</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-crafting-engaging-channels-using-tubebuddys-framework/"><u>[New] 2024 Approved  Crafting Engaging Channels Using TubeBuddy's Framework</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pro-whatsapp-tips-unlocking-untapped-potentials/"><u>[New] Pro-WhatsApp Tips  Unlocking Untapped Potentials</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-elevate-your-media-content-via-youtube-studio-editing-skills/"><u>[New] 2024 Approved  Elevate Your Media Content via YouTube Studio Editing Skills</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-premium-5-professional-drones-buyers-guide/"><u>[New] Premium 5 Professional Drones - Buyers Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-calculator-projected-profits-from-youtube/"><u>[New] 2024 Approved  Calculator  Projected Profits From YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-creating-momentum-in-life-coaching-video-series/"><u>[New] 2024 Approved  Creating Momentum in Life Coaching Video Series</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-elevating-online-presence-how-to-flawlessly-transmit-upside-down-videos-on-youtube/"><u>[New] 2024 Approved  Elevating Online Presence  How to Flawlessly Transmit Upside-Down Videos on Youtube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-channel-personality-complimentary-youtube-graphics/"><u>[New] 2024 Approved  Channel Personality  Complimentary YouTube Graphics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-creating-a-singular-stream-from-diverse-youtube-videos/"><u>[New] 2024 Approved  Creating a Singular Stream From Diverse YouTube Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-viewers-attention-with-these-10-youtube-responses/"><u>Spark Viewer's Attention with These 10 YouTube Responses</u></a></li>
+</ul></div>

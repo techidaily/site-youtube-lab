@@ -1,7 +1,7 @@
 ---
 title: "\"Streamlining Your Method for Erasing YouTube Post-Comments for 2024\""
-date: 2024-06-17T20:08:36.805Z
-updated: 2024-06-18T20:08:36.805Z
+date: 2024-07-13T16:04:34.738Z
+updated: 2024-07-14T16:04:34.738Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +63,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -110,9 +110,12 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
@@ -151,3 +154,44 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/-influencer-economy-leaders-for-2024/"><u>Elite Influencer Economy Leaders for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-oppo-a2-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-contacts-on-itel-a60-without-backup-by-fonelab-android-recover-contacts/"><u>The way to recover deleted contacts on Itel A60 without backup.</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-piracy-safe-youtube-to-mp4-conversion-tips-for-2024/"><u>Avoid Piracy  Safe YouTube to MP4 Conversion Tips for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-cover-art-crafting-for-fighting-games/"><u>Quick Cover Art Crafting for Fighting Games</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Samsung Galaxy Z Flip 5? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-premium-wedding-films-online-youtube-and-vimeo-for-2024/"><u>Top 9 Premium Wedding Films Online  Youtube & Vimeo for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/10-best-imovie-like-video-editors-for-android-users/"><u>10 Best iMovie-Like Video Editors for Android Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-comprehensive-look-at-youtube-shorts-template-design/"><u>[New] A Comprehensive Look at YouTube Shorts Template Design</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-discords-best-places-to-connect-with-partners/"><u>In 2024, Discord's Best Places to Connect with Partners</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-out-with-yt-shorts-essential-guidelines-to-follow/"><u>Stand Out with YT Shorts  Essential Guidelines to Follow</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-gear-picks-for-beginning-creators-for-2024/"><u>Prime Gear Picks for Beginning Creators for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-disconnect-from-youtube-shorts-made-simple-for-2024/"><u>Total Disconnect From YouTube Shorts Made Simple for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-of-vogue-establishing-your-channel-in-the-cosmetic-world/"><u>Voice of Vogue  Establishing Your Channel in the Cosmetic World</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-engagement-crafting-effective-thumbnails-for-2024/"><u>Boost Engagement  Crafting Effective Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-audience-expansion-without-breaking-the-bank-for-2024/"><u>Rapid Audience Expansion Without Breaking the Bank for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-vivo-y56-5g-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Vivo Y56 5G Phone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/achieve-cinematic-brilliance-the-11-ultimate-tutorials-on-color-grading-for-2024/"><u>Achieve Cinematic Brilliance  The 11 Ultimate Tutorials on Color Grading for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-compreshift-guide-to-creating-profitable-and-engaging-youtube-collaborations/"><u>[New] A Compreshift Guide to Creating Profitable & Engaging YouTube Collaborations</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unraveling-instagrams-complex-world-of-data-a-beginner-to-pro-guide-for-2024/"><u>Unraveling Instagram's Complex World of Data  A Beginner to Pro Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-freedom-top-8-tools-transforming-youtube-into-avis-for-2024/"><u>Video Freedom  Top 8 Tools Transforming YouTube Into Avis for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-for-confirming-youtube-identity/"><u>Steps for Confirming YouTube Identity</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-proven-techniques-for-identifying-professional-video-artists/"><u>In 2024, Proven Techniques for Identifying Professional Video Artists</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-peek-into-the-heart-of-youtubes-video-operations-for-2024/"><u>[New] A Peek Into the Heart of YouTube's Video Operations for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-production-pro-tips-incorporating-audio-into-youtube-content-for-2024/"><u>Video Production Pro Tips  Incorporating Audio Into YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-on-guide-to-optimize-your-youtube-channels-with-adsense-for-2024/"><u>Hands-On Guide to Optimize Your YouTube Channels with AdSense for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/resisting-insta-imposters-protect-your-profiles-prestige-for-2024/"><u>Resisting Insta Imposters  Protect Your Profile's Prestige for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-acquisitions-starting-off-with-profitable-youtube-channel-buys/"><u>Ideal Acquisitions  Starting Off with Profitable YouTube Channel Buys</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-comprehensive-look-at-youtuber-snippets/"><u>[New] A Comprehensive Look at Youtuber Snippets</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-out-with-yt-shorts-essential-guidelines-to-follow-for-2024/"><u>Stand Out with YT Shorts  Essential Guidelines to Follow for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/a-fresh-perspective-facebook-prioritizes-recommendations-for-entrepreneurs/"><u>A Fresh Perspective: Facebook Prioritizes Recommendations for Entrepreneurs</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-in-2024-top-picks-for-4k-proxy-video-editing-8-essential-apps/"><u>Updated In 2024, Top Picks for 4K Proxy Video Editing 8 Essential Apps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-grab-your-complete-guide-to-effortless-video-capture/"><u>Quick-Grab  Your Complete Guide to Effortless Video Capture</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-ranking-10-best-youtube-news-networks/"><u>The Ultimate Ranking  10 Best YouTube News Networks</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-to-poco-c65-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Poco C65 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-methods-unsettle-youtube-playback-scheme-for-2024/"><u>Rapid Methods  Unsettle YouTube Playback Scheme for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-down-long-form-videos-the-insiders-guide-to-youtube-chapter-inclusion/"><u>Break Down Long-Form Videos  The Insider's Guide to YouTube Chapter Inclusion</u></a></li>
+</ul></div>

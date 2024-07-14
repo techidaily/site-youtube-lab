@@ -1,7 +1,7 @@
 ---
 title: "\"Snapchat to Subscribers  How Jake Crafted YouTube Magic\""
-date: 2024-06-17T19:42:44.311Z
-updated: 2024-06-18T19:42:44.311Z
+date: 2024-07-13T15:33:30.176Z
+updated: 2024-07-14T15:33:30.176Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,9 @@ For the majority of his years in school, Jake was the class clown. As he got old
 
 But before Jake fully invested his energy into training for the U.S. Navy SEALS, his brother, Logan, convinced him to make videos with him again (by this time, Logan had already built up a large following on Vine, the short-form video hosting service).
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![jake-paul-and-his-brother-logan-paul](https://images.wondershare.com/filmora/article-images/jake-paul-and-his-brother-logan-paul.jpg)
 
 Image resource: [BBC NEWS](https://www.bbc.com/news/av/world-us-canada-42548207/logan-and-jake-paul-the-brothers-dominating-social-media)
@@ -119,3 +122,53 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-say-goodbye-to-hiss-and-hum-mastering-noise-reduction-in-final-cut-pro-x/"><u>New In 2024, Say Goodbye to Hiss and Hum Mastering Noise Reduction in Final Cut Pro X</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/monitoring-your-instagram-fan-loss-rate-for-2024/"><u>Monitoring Your Instagram Fan-Loss Rate for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unleash-creativity-with-youtube-studio-editor/"><u>[New] 2024 Approved  Unleash Creativity with YouTube Studio Editor</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-compreenas-guide-to-choosing-ideal-lenses-for-filmmaking/"><u>[New] A Compreenas Guide to Choosing Ideal Lenses for Filmmaking</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-youtube-video-ranking-what-factors-affect-your-rank/"><u>[Updated] In 2024, YouTube Video Ranking - What Factors Affect Your Rank?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/wift-guide-image-to-youtube-thumbnail-transformation-techniques-for-2024/"><u>[New] Swift Guide  Image to YouTube Thumbnail Transformation Techniques for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ess-youtube-experience-on-apple-gear-downloading-made-easy-for-2024/"><u>Seamless Youtube Experience on Apple Gear  Downloading Made Easy for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtubes-opposite-end-video-retrospective-techniques/"><u>[Updated] YouTube's Opposite End  Video Retrospective Techniques</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-quickfirerecorder-firefox-plugin-for-2024/"><u>[New] QuickFireRecorder Firefox Plugin for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-honor-90-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Honor 90 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-in-depth-guide-to-video-money-making-across-platforms/"><u>[New] In 2024, In-Depth Guide to Video Money-Making Across Platforms</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-how-to-gauge-if-an-mcn-is-right-for-your-youtube-journey/"><u>[Updated] In 2024, How to Gauge if an MCN Is Right for Your YouTube Journey</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-filmmakers-guide-to-selecting-excellent-lenses-for-2024/"><u>[New] The Filmmaker's Guide to Selecting Excellent Lenses for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-boost-your-linkedin-video-performance-with-these-proven-aspect-ratios/"><u>New In 2024, Boost Your LinkedIn Video Performance with These Proven Aspect Ratios</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/gen-social-media-tactics-youtube-content-on-facebook/"><u>Next-Gen Social Media Tactics  YouTube Content on Facebook</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-10-strategies-for-educators-starting-their-own-youtube-series/"><u>[New] 2024 Approved  10 Strategies for Educators Starting Their Own YouTube Series</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xploring-video-marketing-youtube-or-tiktok-for-2024/"><u>[New] Exploring Video Marketing  YouTube or TikTok for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-best-screen-replayer-for-high-impact-youtubing-experience/"><u>[New] In 2024, Best Screen Replayer for High-Impact YouTubing Experience</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ltimate-guide-to-leveraging-youtube-video-endings/"><u>The Ultimate Guide to Leveraging YouTube Video Endings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-newbies-ultimate-youtube-gear-handbook/"><u>[Updated] Newbies' Ultimate YouTube Gear Handbook</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-maximizing-impact-livestreaming-360-degree-video-magic-on-youtube/"><u>[Updated] Maximizing Impact  Livestreaming 360-Degree Video Magic on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/treamlining-co-productions-a-guide-to-more-followers/"><u>[New] Streamlining Co-Productions  A Guide to More Followers</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-hidden-gems-10-unique-facebook-meme-pages-for-2024/"><u>[New] Hidden Gems  10 Unique Facebook Meme Pages for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-indulge-with-top-youtube-movies-guides/"><u>[Updated] In 2024, Indulge with Top YouTube Movies Guides</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/0-tricks-for-turning-youtube-watchlists-around/"><u>[New] 10 Tricks for Turning YouTube Watchlists Around</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/creating-smooth-volume-curves-using-keyframes-in-filmora-on-macos/"><u>Creating Smooth Volume Curves Using Keyframes in Filmora on macOS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-adjust-privacy-settings-for-secure-online-viewing/"><u>[New] 2024 Approved  Adjust Privacy Settings for Secure Online Viewing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hering-content-control-youtube-vs-creative-commons-license-for-2024/"><u>Deciphering Content Control  YouTube Vs. Creative Commons License for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-optimize-for-popularity-top-youtube-seo-devices-unveiled/"><u>In 2024, Optimize for Popularity  Top YouTube SEO Devices Unveiled</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-pros-picks-best-microphones-for-asmr-recording/"><u>[New] In 2024, Pros' Picks  Best Microphones for ASMR Recording</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-masterclass-guide-top-free-apps-for-iphone-and-ipad-edits-for-2024/"><u>[Updated] Masterclass Guide  Top Free Apps for iPhone & iPad Edits for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ssential-picks-discover-the-top-12-easy-to-use-flipscreen-cams/"><u>[New] Essential Picks  Discover the Top 12 Easy-to-Use Flipscreen Cams</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-tecno-phantom-v-flip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Tecno Phantom V Flip? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ified-blue-screen-usage-guide-for-2024/"><u>Simplified Blue Screen Usage Guide for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-break-free-from-adobe-10-innovative-premiere-elements-alternatives/"><u>New 2024 Approved Break Free From Adobe 10 Innovative Premiere Elements Alternatives</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-auditory-refinement-how-to-subtract-reverberation-from-your-recordings-for-unblemished-quality/"><u>Updated Auditory Refinement How to Subtract Reverberation From Your Recordings for Unblemished Quality</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-successfully-embed-youtube-playlists-via-web-scripts/"><u>How to Successfully Embed YouTube Playlists via Web Scripts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-from-shots-to-screens-the-importance-of-camera-lenses-in-vlogs/"><u>[New] In 2024, From Shots to Screens  The Importance of Camera Lenses in Vlogs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-online-video-leaderships-who-takes-the-crown-vimeo-youtubes-and-dailymotions-for-2024/"><u>[Updated] Online Video Leaderships  Who Takes the Crown – Vimeo, YouTubes & DailyMotions for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-mastering-youtube-insights-for-channel-expansion/"><u>[New] In 2024, Mastering YouTube Insights for Channel Expansion</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-financial-scale-one-million-youtube-viewers-pay/"><u>[New] In 2024, The Financial Scale  One Million YouTube Viewers' Pay</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/lotline-path-to-youtube-prosperity/"><u>[New] Plotline Path to YouTube Prosperity</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/t-strategies-on-calculating-your-youtube-audience-impact-and-revenue/"><u>Expert Strategies on Calculating Your YouTube Audience Impact and Revenue</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-unveiling-the-artistry-in-tiktoks-anime-culture-from-choreographies-to-memes/"><u>[Updated] In 2024, Unveiling the Artistry in TikTok's Anime Culture  From Choreographies to Memes</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-a2-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi A2 Phone without Any Data Loss</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/are-reviews-for-goods-online-monetized/"><u>Are Reviews For Goods Online Monetized?</u></a></li>
+</ul></div>
