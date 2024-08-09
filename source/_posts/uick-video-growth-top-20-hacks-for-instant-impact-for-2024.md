@@ -1,0 +1,234 @@
+---
+title: "\"[New] Quick Video Growth  Top 20 Hacks for Instant Impact for 2024\""
+date: 2024-08-08T14:41:14.723Z
+updated: 2024-08-09T14:41:14.723Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [New] Quick Video Growth: Top 20 Hacks for Instant Impact for 2024\""
+excerpt: "\"This Article Describes [New] Quick Video Growth: Top 20 Hacks for Instant Impact for 2024\""
+keywords: "Quick Video Boost,Speedy Video Growth,Rapid Video Expansion,Instant Video Prosperity,Hasty Video Enhancement,Swift Video Uptake,Accelerated Video Climb"
+thumbnail: https://thmb.techidaily.com/f039a729b962f9ef9ca84af335ac6a5c033da72e1971abe6cb320e3e4a83ec5c.jpg
+---
+
+## Quick Video Growth: Top 20 Hacks for Instant Impact
+
+# YouTube Shortcuts You Should Know in 2024
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+YouTube, as one of the most popular free streaming video portals, the majority of people use it, probably several times a day. However, how many of you know that there are more than 20 shortcuts that help you use the website comparatively more conveniently?
+
+With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
+
+## Amazing YouTube Keyboard Shortcuts You May Not Know
+
+To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Category 1: YouTube Playback Hotkeys
+
+While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
+
+| Keyboard Shortcut | Function                               |
+| ----------------- | -------------------------------------- |
+| 'K'               | Play and Pause (Works as a toggle key) |
+| 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
+### Category 2: Scrolling YouTube Videos Back and Forth
+
+This section talks about the shortcut keys to skim the video forward and backward during playback:
+
+| Keyboard Shortcut                    | Function                                                                                                                                                                     |
+| ------------------------------------ | ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
+| 'L'                                  | Skip the video 10 seconds forward                                                                                                                                            |
+| 'J'                                  | Skip the video 10 seconds backward                                                                                                                                           |
+| '→' (Right Arrow)                    | Skip the video 5 seconds forward                                                                                                                                             |
+| '←' (Left Arrow)                     | Skip the video 5 seconds backward                                                                                                                                            |
+| 'SHIFT' + 'N'                        | Skip to the next video in the playlist or to the next suggested video                                                                                                        |
+| 'K' or 'Spacebar'; then '.' (Period) | Pressing 'K' or 'Spacebar' pauses the video; pressing the '.' (Period) key repeatedly moves the video forward one frame at a time (Period key on the Numpad isn't supported) |
+| 'K' or 'Spacebar'; then ',' (Comma)  | Pressing 'K' or 'Spacebar' pauses the video; pressing the ',' (Comma) key repeatedly moves the video backward one frame at a time (Period key on the Numpad isn't supported) |
+| '0' (Zero)                           | Takes the video to the beginning                                                                                                                                             |
+
+If you’re watching videos on YouTube mobile app, you can use double-tap on the right side of the video player to skip 10 seconds forward, and double-tap on the left side of the video player to skip the video 10 seconds backward. Every double-tap forwards/rewinds the video in 10-seconds increments. E.g., Tapping 6 times on the right skips the video 30 seconds forward. Tapping 6 times on the left skips the video 30 seconds backward.
+
+Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
+
+### Category 3: Manage Playback Speed
+
+This category contains information on increasing or decreasing the playback speed of a YouTube video:
+
+| Keyboard Shortcut      | Function                |
+| ---------------------- | ----------------------- |
+| 'SHIFT' + '.' (Period) | Increase playback speed |
+| 'SHIFT' + ',' (Comma)  | Decrease playback speed |
+
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
+### Category 4: Managing the Captions
+
+This category talks about managing the video captions using the shortcut keys:
+
+| Keyboard Shortcut  | Function                                                                                                             |
+| ------------------ | -------------------------------------------------------------------------------------------------------------------- |
+| 'C'                | Enable or disable captions (Works as a toggle key)                                                                   |
+| 'O' (The letter O) | Increase or decrease the brightness level of the captions (Works as a toggle key)                                    |
+| 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
+| '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
+| '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
+### Category 5: Managing the Audio Video
+
+This category shows the shortcut keys to manage audio for a YouTube video:
+
+| Keyboard Shortcut | Function              |
+| ----------------- | --------------------- |
+| 'M'               | Mute YouTube video    |
+| '↑'               | Increase volume by 5% |
+| '↓'               | Decrease volume by 5% |
+
+### Category 6: Switching Between Screen Modes
+
+The shortcut keys given in this table enable you to switch between different screen modes:
+
+| Keyboard Shortcut | Function                                                                      |
+| ----------------- | ----------------------------------------------------------------------------- |
+| 'F'               | Switch between the full-screen and normal mode (Works as a toggle key)        |
+| 'T'               | Switch between the theater and normal mode (Works as a toggle key)            |
+| 'I'               | Switch between the independent player and normal mode (Works as a toggle key) |
+
+Double press F/T/I on the keyboard will exit the full-screen/theater model/independent mode accordingly.
+
+If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
+
+### Category 7: Viewing 360o/VR Videos
+
+In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
+
+| Keyboard Shortcut           | Function                                              |
+| --------------------------- | ----------------------------------------------------- |
+| 'W', 'A', 'S', 'D'          | Up, left, down, and right camera panning respectively |
+| '+' (Plus Key on Numpad)    | Zoom in                                               |
+| '-' (Minus Key on Numpad)   | Zoom out                                              |
+| '-' (Minus Key on Keyboard) | Decrease font size                                    |
+| '+' (Plus Key on Keyboard)  | Increase font size                                    |
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Bonus: How to Get the YouTube Shortcut List with One-Click
+
+In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
+
+| Keyboard Shortcut | Function                                                   |
+| ----------------- | ---------------------------------------------------------- |
+| 'SHIFT' + '?'     | Show the important keyboard shortcuts assigned for YouTube |
+
+So, when you press the Shift+? on YouTube, you will see a full list of shortcuts.
+
+![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
+
+**Conclusion**
+
+Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
+
+As one of the most popular video editing software among YouTubers, Filmora provides lots of effects, title templates, transitions, and elements as well as powerful video editing tools such as instant cutter tool, [scene detection](https://tools.techidaily.com/wondershare/filmora/download/), [beat detection](https://tools.techidaily.com/wondershare/filmora/download/), [motion tracking](https://tools.techidaily.com/wondershare/filmora/download/), animation keyframe, and much more. All these editing features and effects makes Filmora as one of the best video editing software for all creators.
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-revolutionizing-video-revenue-a-conducive-guide-to-youtube-profits/"><u>[New] 2024 Approved  Revolutionizing Video Revenue  A Conducive Guide to Youtube Profits</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube/"><u>[New] 2024 Approved  Ryan Kaji’s Net Worth  11-Year-Old Boy Gets Highest-Paid From YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-scale-up-your-youtube-audience-by-the-hundredfold/"><u>[New] 2024 Approved  Scale Up Your YouTube Audience by the Hundredfold</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-seamless-navigation-to-your-individual-playlist-library-on-youtube/"><u>[New] 2024 Approved  Seamless Navigation to Your Individual Playlist Library on YouTube</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-secret-social-scrolls-best-kept-facebook-memes/"><u>[New] 2024 Approved  Secret Social Scrolls  Best-Kept Facebook Memes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-securing-a-stable-stream-of-earnings-on-youtube/"><u>[New] 2024 Approved  Securing a Stable Stream of Earnings on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-shake-the-sound-mobile-beats-best-ripplers/"><u>[New] 2024 Approved  Shake the Sound  Mobile Beats' Best Ripplers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-shaping-your-shots-strategies-for-solo-video-content/"><u>[New] 2024 Approved  Shaping Your Shots  Strategies for Solo Video Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-shortcut-to-go-to-tags-maximizing-your-youtube-impact/"><u>[New] 2024 Approved  Shortcut to Go-To Tags  Maximizing Your YouTube Impact</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-smartphone-youtube-experience-apple-vs-android-review/"><u>[New] 2024 Approved  Smartphone YouTube Experience  Apple vs Android Review</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-sourav-joshis-path-to-wealth-via-youtube/"><u>[New] 2024 Approved  Sourav Joshi's Path to Wealth via YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-stats-galore-visualize-youtubes-fascinating-facts-2017/"><u>[New] 2024 Approved  Stats Galore! Visualize YouTube's Fascinating Facts (2017)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-step-into-the-world-of-chroma-keying-youtubes-guide-to-green-screens/"><u>[New] 2024 Approved  Step Into the World of Chroma Keying – YouTube's Guide to Green Screens</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-blueprint-to-establishing-a-distinctive-marketing-persona/"><u>[New] 2024 Approved  The Blueprint to Establishing a Distinctive Marketing Persona</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-complete-blueprint-for-success-adding-channels-as-features-on-youtube/"><u>[New] 2024 Approved  The Complete Blueprint for Success  Adding Channels as Features on Youtube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-guide-to-dynamic-youtube-openers-in-imovie/"><u>[New] 2024 Approved  The Ultimate Guide to Dynamic YouTube Openers in iMovie</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-guide-to-rapidly-eliminating-youtube-feedback/"><u>[New] 2024 Approved  The Ultimate Guide to Rapidly Eliminating YouTube Feedback</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-newbies-roadmap-building-a-channel-making-cash/"><u>[New] 2024 Approved  The Ultimate Newbie's Roadmap  Building a Channel, Making Cash</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-playlist-guide-for-youtube-enthusiasts-online-and-mobile/"><u>[New] 2024 Approved  The Ultimate Playlist Guide for YouTube Enthusiasts Online & Mobile</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-resource-for-creating-professional-impactful-videodumps/"><u>[New] 2024 Approved  The Ultimate Resource for Creating Professional, Impactful Videodumps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-vloggers-selection-premium-camera-lenses-compared/"><u>[New] 2024 Approved  The Vlogger's Selection  Premium Camera Lenses Compared</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-years-predictions-rendered-in-infographics/"><u>[New] 2024 Approved  The Year's Predictions Rendered in Infographics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-todays-hot-tickets-top-youtube-tracks-for-the-day/"><u>[New] 2024 Approved  Today’s Hot Tickets  Top Youtube Tracks for the Day</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-top-15-funny-youtube-channels-to-watch-when-youre-bored/"><u>[New] 2024 Approved  Top 15 Funny YouTube Channels to Watch When You're Bored</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-top-7-video-enhancement-cameras-to-skyrocket-your-blogging/"><u>[New] 2024 Approved  Top 7 Video Enhancement Cameras To Skyrocket Your Blogging</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-twice-the-joy-twice-the-fun-televised-repetition-made-easy/"><u>[New] 2024 Approved  Twice the Joy, Twice the Fun  Televised Repetition Made Easy</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unleash-creativity-filming-and-editing-on-the-go-with-a-phone/"><u>[New] 2024 Approved  Unleash Creativity  Filming & Editing on the Go with a Phone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unleash-the-power-of-optimization-5-secrets-to-skyrocket-your-audience/"><u>[New] 2024 Approved  Unleash the Power of Optimization  5 Secrets to Skyrocket Your Audience</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unleash-your-youtube-potential-steps-to-finding-and-managing-video-collab-partners/"><u>[New] 2024 Approved  Unleash Your YouTube Potential  Steps to Finding & Managing Video Collab Partners</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unveiling-subscriber-lists-a-youtube-guide/"><u>[New] 2024 Approved  Unveiling Subscriber Lists  A YouTube Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-visionblend-editor/"><u>[New] 2024 Approved  VisionBlend Editor</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-why-are-your-video-shorts-thumbnails-not-showing/"><u>[New] 2024 Approved  Why Are Your Video Shorts' Thumbnails Not Showing?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-outros-that-grow-your-channel-faster/"><u>[New] 2024 Approved  YouTube Outros that Grow Your Channel Faster</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-ensuring-seamless-capture-of-online-teams-gatherings-for-2024/"><u>[New] Ensuring Seamless Capture of Online Teams' Gatherings for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-rediscover-classics-at-your-fingertits-pick-from-the-ultimate-5-gb-emulator-list-on-pc/"><u>[Updated] 2024 Approved  Rediscover Classics at Your Fingertits  Pick From The Ultimate 5 GB Emulator List on PC</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-copyright-clarity-for-instagram-tracks/"><u>[Updated] In 2024, Copyright Clarity for Instagram Tracks</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-a-comprehensive-guide-to-android-sound-and-ringtone-customization/"><u>2024 Approved  A Comprehensive Guide to Android Sound and Ringtone Customization</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-maintaining-confidentiality-with-professional-zoom-recordings/"><u>2024 Approved  Maintaining Confidentiality with Professional Zoom Recordings</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/bidding-adieu-to-ea-new-price-prohibitive-for-gaming/"><u>Bidding Adieu to EA: New Price Prohibitive for Gaming</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-motorola-moto-g-5g-2023-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Motorola Moto G 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/efficiently-enhance-iphone-videos-dimensions-in-focus/"><u>Efficiently Enhance iPhone Videos  Dimensions in Focus</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/expressing-affection-through-keys-the-ultimate-guide-to-typing-a-love-icon/"><u>Expressing Affection Through Keys: The Ultimate Guide to Typing a Love Icon</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/future-file-fortresses-top-five-innovations-in-cloud-storage-for-2024/"><u>Future File Fortresses  Top Five Innovations in Cloud Storage for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-becoming-an-instagram-editor-extraordinaire/"><u>In 2024, Becoming an Instagram Editor Extraordinaire</u></a></li>
+<li><a href="https://driver-install.techidaily.com/mastering-the-art-of-mouse-driver-restoration/"><u>Mastering the Art of Mouse Driver Restoration</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/step-by-step-to-stunning-timelapses-a-comprehensive-guide-using-gopro-for-2024/"><u>Step-By-Step to Stunning Timelapses  A Comprehensive Guide Using GoPro for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-ultimate-guide-to-creating-click-enticing-youtube-thumbnails/"><u>The Ultimate Guide to Creating Click-Enticing YouTube Thumbnails</u></a></li>
+</ul></div>
