@@ -1,0 +1,176 @@
+---
+title: "[Updated] Dodging Account Penaltinas on Youtube"
+date: 2024-08-23T08:51:29.355Z
+updated: 2024-08-24T08:51:29.355Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes [Updated] Dodging Account Penaltinas on Youtube"
+excerpt: "This Article Describes [Updated] Dodging Account Penaltinas on Youtube"
+keywords: "Avoid Youtube Penalization,YouTube Content Integrity,Youtube Monetization Safely,Maintain Youtube Status,Steer Clear Of Account Suspension,Prevent Youtube Termination,Comply With Youtube Rules"
+thumbnail: https://thmb.techidaily.com/9b3d4059cce82d617824aff75bbe2c1cfb1dda056b7a7373daee332b511aa58b.jpg
+---
+
+## Dodging Account Penaltinas on Youtube
+
+# How to Avoid and Reverse Strikes on Your YouTube Channel
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Do you monetize your videos? Or, do you like to Livestream? These are two perks of having a YouTube account in good standing. You can lose these privileges, have your ability to post videos frozen, and even have your account terminated if you start accumulating strikes.
+
+If you receive a strike, you will usually be able to get rid of it. This article will show you how.
+
+**Table of Content:**
+
+[1\. Copyright Strikes](#strikes)
+
+[2. Wrongful Copyright Strikes](#wrong)
+
+[3. Community Guidelines Strikes](#community)
+
+![YouTube Strike](https://images.wondershare.com/filmora/article-images/youtube-strike.jpg)
+
+ There are two types of strikes: **Community Guideline Strikes** and **Copyright Strikes**. Your account and all your videos will be deleted if you get three of either one of these types of strikes, but YouTube is fair about how these strikes are given out and how you can reverse them.
+
+## 1\. Copyright Strikes
+
+You get a copyright strike when you use media in your video which someone else owns the copyrights to. Music, clips, photographs, and sound effects are examples of the kinds of media you may use that could be owned by someone else.
+
+The most obvious way to earn a copyright strike is to repost content which you did not create, i.e. clips from a television show or a popular song. If you know that the content you got a strike for was not yours and did not fall under [‘fair use](https://tools.techidaily.com/wondershare/filmora/download/)’, then there are two ways you can resolve it.
+
+1\. You can complete YouTube’s simple course on copyright infringement ([Copyright School](https://www.youtube.com/copyright%5Fschool)) and wait three months. Copyright strikes expire in three months so long as you complete the course (they will not expire if you don’t take the course).
+
+2\. you can contact the holder of the copyright and ask them to retract their claim. You will probably have to offer to delete your video. Keep in mind that it is completely up to the rights holder whether you deleting your video is enough for them to retract their claim. They are allowed to say ‘no’.
+
+Deleting your video, especially if you do so without contacting the rights holder, will not automatically reverse your copyright strike.
+
+The majority of copyright strikes that you as a YouTube creator receive – if you receive any – will not be as black and white as ‘someone else owns it, you shouldn’t have used it’. If you know that you have a license to use the song or other media you got the strike for, or feel like your use of a clip falls under ‘fair use’, then your path to reversing the strike will be different.
+
+## 2\. Wrongful Copyright Strikes
+
+YouTube’s system for detecting copyright infringement is automated. This means that you can get a copyright strike without actually breaking any rules. These strikes are generally easy to reverse.
+
+For creators, the most common instance of this is being flagged for using copyrighted music. When you [download royalty-free music](https://tools.techidaily.com/wondershare/filmora/download/) – whether you download it for free or pay for it – you might not realize that that music is still copyrighted to someone else and can still be flagged by YouTube’s system.
+
+If this has happened to you, reversing it is simple.
+
+1\. Submit a counter-notification through the form provided and include either your licensing information or a link to where it can be found online.
+
+2\. After you submit your counter-notification, the copyright holder will have 10 business days to respond. Since in this scenario the rights holder will know they have allowed their content to be licensed out, there should be no conflict and your video will be reinstated.
+
+‘Fair use’ is another thing YouTube’s system has no way of detecting. ‘Fair use’ means that you are using content that you do not own, and which you do not have a license to use, but that you are using it in a way that is legally protected. Satire, criticism, education, and news reporting are areas that may be protected by fair use, although every situation is different.
+
+There is no situation in which crediting a rights holder, adding a disclaimer, or simply not monetizing your video will make it fair use.
+
+To reverse a copyright strike where you believe your video should be protected as ‘fair use’, submit a counter-notification through the web form YouTube provides. The rights holder will have 10 business days to provide YouTube with evidence that they have initiated a court action against your content. There is a chance that they will not agree with you about the ‘fair use’ status of your video. You could be in for a bit of a fight.
+
+If your account has been suspended for accumulating multiple strikes, you will no longer be able to access the online counter-notification form and will have to send a free-form counter-notification. [Information on that can be found here](https://support.google.com/youtube/answer/6005919).
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->
+## 3\. Community Guidelines Strikes
+
+Most video creators – people who post vlogs, travel videos, and various kinds of tutorials – will never receive this type of strike. Sexual content, hateful content, threats, and scams are among the things you could post which would result in a community guidelines strike. Creators, in general, are not interested in posting cruel or graphic content.
+
+The only thing some video creators might have to be careful of is **misleading metadata**. You can get community guidelines to strike for intentionally using the title, tags, and description of your video to build up an expectation of the content your video does not deliver on. For example, if you post a personal vlog and title it ‘Call of Duty Review’ to try and capitalize on people who might be searching for gaming videos then you might receive a strike.
+
+Blatantly using keywords that have nothing to do with your content is not something you can do accidentally, but it is possible to be misleading in your metadata without trying to be dishonest. YouTube is a very competitive place, and many creators are turning towards title strategies which could be considered ‘clickbait’. If you say in your title that you had a baby, but reveal in your actual video that ‘had a baby’ meant ‘wrote a new song’, will that get you a community guidelines strike? Probably not, but it can be a thin line.
+
+In general, just don’t mention anything in your title or tags which you do not talk about in your video.
+
+Community Guidelines strikes expire after three months. As long as you only have one strike, it will not affect your channel or what you can do on YouTube. If you receive a second strike within the three months of your first strike, you will lose the ability to post videos for two weeks. If you receive a third strike before either of your previous strikes has expired, your account will be terminated.
+
+ Have you experienced a copyright strike against your YouTube channel? Let us know what happened in the comments.
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+## Create Original Videos with Excellent Video Editor
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-the-leading-screen-recorders-for-effective-teaching-methods/"><u>[New] 2024 Approved  The Leading Screen Recorders for Effective Teaching Methods</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/igital-diving-into-youtubes-veiled-video-vaults/"><u>[New] Digital Diving Into YouTube’s Veiled Video Vaults</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-hidden-shotshaper-advanced-stealthy-methods-for-capturing-images-for-2024/"><u>[New] Hidden ShotShaper  Advanced Stealthy Methods for Capturing Images for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-how-to-master-the-art-of-instagram-videos-length-adjustments/"><u>[New] In 2024, How to Master the Art of Instagram Videos' Length Adjustments</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-optimize-your-content-searchability-with-these-7-top-tier-youtube-tags-extractor-tools/"><u>[New] In 2024, Optimize Your Content Searchability with These 7 Top-Tier Youtube Tags Extractor Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-essence-of-youtubes-content-craft-room/"><u>[New] In 2024, The Essence of YouTube's Content Craft Room</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-video-thumbnail-creation-for-maximum-clicks-for-2024/"><u>[New] Mastering Video Thumbnail Creation for Maximum Clicks for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/utro-essentials-made-simple-top-6-free-edition-for-2024/"><u>[New] Outro Essentials Made Simple, Top 6 Free Edition for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nap-into-position-handhran-balancing-tricks-for-2024/"><u>[New] Snap Into Position  Handhran Balancing Tricks for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-ultimate-list-of-budget-friendly-editor-apps-for-2024/"><u>[New] The Ultimate List of Budget-Friendly Editor Apps for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ideo-sharing-giants-clash-vimeo-vs-youtube-for-2024/"><u>[New] Video Sharing Giants Clash  Vimeo vs YouTube for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-100plus-best-examples-and-tips-to-craft-your-facebook-bios/"><u>[Updated] 2024 Approved  100+ Best Examples & Tips to Craft Your Facebook Bios</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-step-by-step-guide-to-professional-filmmaking-via-youtube/"><u>[Updated] 2024 Approved  Step-by-Step Guide to Professional Filmmaking via YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-clip-conquest-top-tags-for-dominating-video-trends-on-social-media/"><u>[Updated] Clip Conquest  Top Tags for Dominating Video Trends on Social Media</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-inspire-your-brand-with-smart-channel-name-genesis/"><u>[Updated] In 2024, Inspire Your Brand with Smart Channel Name Genesis</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-strategic-interaction-for-sustainable-subscriber-acquisition/"><u>[Updated] In 2024, Strategic Interaction for Sustainable Subscriber Acquisition</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-ultimate-guide-to-global-exploration-by-channel/"><u>[Updated] In 2024, The Ultimate Guide to Global Exploration, By Channel</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-sifting-through-time-a-guide-to-twitter-archives/"><u>[Updated] Sifting Through Time  A Guide to Twitter Archives</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-straightforward-guide-to-photo-uploads-on-instagram/"><u>[Updated] The Straightforward Guide to Photo Uploads on Instagram</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-tailored-titling-techniques-for-impactful-youtube-channels/"><u>2024 Approved  Tailored Titling Techniques for Impactful YouTube Channels</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-ultimate-guide-for-effective-youtubers-game-sessions/"><u>2024 Approved  The Ultimate Guide for Effective YouTubers' Game Sessions</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-ultimate-speed-strategy-for-facebook-video-uploads-and-downloads/"><u>2024 Approved  Ultimate Speed Strategy for Facebook Video Uploads & Downloads</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-youtube-legality-taking-content-offline/"><u>2024 Approved  YouTube Legality  Taking Content Offline</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/bling-channel-summaries-that-attract/"><u>Assembling Channel Summaries That Attract</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-earning-potential-on-youtube-shorts/"><u>Boosting Earning Potential on YouTube Shorts</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-vivo-v27-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ulent-fronts-navigating-the-minefield-of-fake-youtube-viewers-for-2024/"><u>Fraudulent Fronts  Navigating the Minefield of Fake YouTube Viewers for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-quickly-switch-between-facebook-accounts/"><u>How to Quickly Switch Between Facebook Accounts</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-tecno-phantom-v-flip-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Tecno Phantom V Flip</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-accelerated-learning-for-chromakey-artistry/"><u>In 2024, Accelerated Learning for Chromakey Artistry</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-comprehensive-youtube-etiquette-guide/"><u>In 2024, Comprehensive YouTube Etiquette Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-any-xiaomi-redmi-13c-5g-phone-password-using-emergency-call-by-drfone-android/"><u>In 2024, How To Unlock Any Xiaomi Redmi 13C 5G Phone Password Using Emergency Call</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-invigorating-cold-season-selecting-warm-video-themes/"><u>In 2024, Invigorating Cold Season  Selecting Warm Video Themes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-monetization-mastery-elevating-your-youtube-earning-strategy/"><u>In 2024, Monetization Mastery  Elevating Your YouTube Earning Strategy</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-ranked-top-picks-for-free-skype-tones/"><u>In 2024, Ranked Top Picks for Free Skype Tones</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-6-plus-drfone-by-drfone-virtual-ios/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/spotlight-on-shared-screen-space-for-2024/"><u>Spotlight on Shared Screen Space for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ltimate-guide-undoing-your-yt-playback-sequence/"><u>The Ultimate Guide  Undoing Your YT Playback Sequence</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/troubleshoot-manual-timezone-setting-in-microsoft-os/"><u>Troubleshoot Manual Timezone Setting in Microsoft OS</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-samsung-galaxy-a24s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Samsung Galaxy A24s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/king-youtube-videos-a-guide-to-sequential-viewing-for-2024/"><u>Unlocking YouTube Videos  A Guide to Sequential Viewing for 2024</u></a></li>
+</ul></div>
