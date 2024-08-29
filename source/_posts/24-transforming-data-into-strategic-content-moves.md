@@ -1,0 +1,187 @@
+---
+title: "In 2024, Transforming Data Into Strategic Content Moves"
+date: 2024-08-28T16:33:38.295Z
+updated: 2024-08-29T16:33:38.295Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes In 2024, Transforming Data Into Strategic Content Moves"
+excerpt: "This Article Describes In 2024, Transforming Data Into Strategic Content Moves"
+keywords: "\"Data Insight Transformation,Strategic Content Creation,Data-Driven Decisions,Informed Writing Techniques,Actionable Content Derivatives,Content Value Synthesis,Knowledge to Advantage\""
+thumbnail: https://thmb.techidaily.com/1b3acf6f92837e9104aa399e6aa268354b94b6b827af6bb095b68b19082ca48f.png
+---
+
+## Transforming Data Into Strategic Content Moves
+
+# How to View YouTube Statistics
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Learn how to view YouTube statistics and you can grow your channel faster. By paying attention to your statistics, which are available for free to every YouTuber in the **Analytics** section of the **Creator Studio**, you will be able to see how successful your individual videos are and replicate that success.
+
+The information available for each video includes how many new subscribers it attracted and how much watch time it has so far (which is important if you want to monetize someday). By looking at which videos are performing well in these areas you can determine what you are doing right and replicate that success in future videos.
+
+* **[How to View Your YouTube Statistics](#yourstats)**
+* **[Interpreting YouTube Watch Time Reports](#watchtime)**
+* **[Interpreting YouTube Interaction Reports](#interaction)**
+* **[How to View Other People's YouTube Statistics](#otherpeople)**
+
+### Making Better YouTube Videos with Filmora to Get More Views
+
+As one of the best video editing software for YouTube, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. After editing, you can upload the video to YouTube directly when export. Download the free trial version below and start making YouTube videos with Filmora.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+[![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## How to View Your YouTube Statistics
+
+In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
+
+In order to check which of your videos are performing the best, click on **Watch time** under **Watch time reports**. At the top of the page there’ll be a graph of your watch time in general, and if you scroll down you’ll see a list of your videos ranked by watch time. The best performing ones will be at the top and, to see more stats related to these high-performing videos, simply click on their titles. Afterwards, you’ll be able to click around the different sections in your Analytics and see reports relating to the specific video you clicked on.
+
+The two main types of analytics reports are Watch Time Reports and Interaction Reports.
+
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
+### 1. Interpreting YouTube Watch Time Reports
+
+To find **Watch time reports** you just need to log into your Google account, go to the **Creator studio**, click the analytics tab, and then click on **watch time**. You can see the watch time of every video on your channel, which is important data to have because watch time is the most important factor when it comes to ranking your video in search results.
+
+A watch time report includes the total amount of time that your video, or a selection of videos, is actually being watched for. In order to make sure that you are publishing only quality videos you need to make sure that your viewers are consistently sticking to your videos and watching them all away through, or at least to the half-way mark. Watch time represents one of the most meaningful metrics in ensuring that you are engaging your audience.
+
+YouTube analytics can now display a watch time of every video that you have produced. Seeing the metrics on how long people are actually watching every video that you produce can show you what you’ve done right in the past and what you need to do more of to continue raising your watch time.
+
+Alongside watch time you can see the average duration individual viewers are watching your videos for. The average percentage of your video that gets viewed will showcase areas where you may be struggling with your video content. For example, if an abnormally high number of viewers are clicking away during your intro, there’s probably something about that clip that needs to be changed.
+
+In the watch time reports for individual videos, you will be able to see data on where your views are coming from and which demographics are watching the most. Where your viewers are watching, in terms of desktop or mobile, is also interesting data that is available in this section.
+
+Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### 2. Interpreting YouTube Interaction Reports
+
+Interaction reports are related to the actions viewers take – i.e. subscribing to your channel, liking your videos, or leaving a comments. You can find interaction reports in the **Creator Studio** under **Analytics**.
+
+Interaction reports can be broken down into several different reports that can help determine the overall performance of any YouTube videos. The main interaction reports that you should be interested in include:
+
+**1\. Subscribers:** You can find extensive data on your subscribers, like demographics including age groups and gender. Learning more about your subscribers can help you to tailor your content. For example, if you learn that your viewers are mostly young women under 24 in the USA, you can do research into what is currently popular with young women under 24 in the USA.
+
+[Want to see your subscriber count in real-time?](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**2\. Likes and dislikes:** Likes and dislikes aren't a powerful metric when it comes to search engine rankings, but they provide useful information to creators. If you’re getting a lot of dislikes on a video, you should look into why. If you're getting a lot of likes on a video, it can indicate that you should focus on creating similar content.
+
+**3\. Playlists:** A viewer watching a video in a playlist is much more likely to keep watching more videos from that playlist, making playlists great for the growth of your channel. Reports in this section will help you figure out which of your playlists is performing best, which could give you an idea of which types of videos or video topics are going over best with your viewers.
+
+**4\. Comments:** Reading comments is a great way to figure out what your viewers think, but that's not all they're good for. If viewers return to a video to continue talking to you or other viewers then that will drive up your views and watch time. If a video is especially good at generating discussion, you should figure out why (i.e. your sign-off question) and keep doing it.
+
+**5\. Sharing:** Discovering where your video is being shared can be important for figuring out what platforms you should be on besides YouTube. If your video is shared and viewed a lot on Twitter, you should consider making a Twitter account for your channel.
+
+**6\. Cards:** Tracking the performance of your Cards will help you optimize them to direct traffic between your videos. By testing out different time stamps for cards you’ll find the perfect places to put them. By trying different messages in your cards you’ll learn how to write ‘calls to action’ that mobilize your viewers.
+
+**End screens:** End Screens are essential for keeping viewers on your channel. The report of the click-through rates of your end screens is important for helping you figure out which kinds of links work, and which style of ends screen is most effective for you. Are people more likely to click when you talk to them through the end screen, or when it’s a static card?
+
+**7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
+## How to View Other Peoples YouTube Statistics
+
+If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
+
+Now that you know how to view YouTube statistics, what will you do with them?
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-navigating-to-facebooks-story-archives-quickly/"><u>[New] 2024 Approved  Navigating to Facebook's Story Archives Quickly</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-resolved-shorts-display-issue-on-youtube/"><u>[New] 2024 Approved  Resolved  Shorts Display Issue on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-rookie-riches-economical-channels-for-monetization/"><u>[New] 2024 Approved  Rookie Riches  Economical Channels for Monetization</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-saving-youtube-videos-a-legal-overview/"><u>[New] 2024 Approved  Saving YouTube Videos  A Legal Overview</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-seamless-music-integration-transform-your-favorite-tunes-into-youtube-content/"><u>[New] 2024 Approved  Seamless Music Integration  Transform Your Favorite Tunes Into YouTube Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-seo-innovation-pivotal-tech-to-elevate-your-vids/"><u>[New] 2024 Approved  SEO Innovation  Pivotal Tech to Elevate Your Vids</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-silent-to-clear-the-ultimate-guide-to-professional-audio-recording/"><u>[New] 2024 Approved  Silent to Clear  The Ultimate Guide to Professional Audio Recording</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-small-shop-success-through-social-video-content/"><u>[New] 2024 Approved  Small Shop Success Through Social Video Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-smooth-streaming-selective-stabilizer-guidebook/"><u>[New] 2024 Approved  Smooth Streaming  Selective Stabilizer Guidebook</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-step-into-wealthy-creator-land-via-youtube-shorts-revenue/"><u>[New] 2024 Approved  Step Into Wealthy Creator Land via YouTube Shorts Revenue</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-step-by-step-guide-to-elevating-video-presence-through-thumbnails/"><u>[New] 2024 Approved  Step-by-Step Guide to Elevating Video Presence Through Thumbnails</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-step-by-step-guide-to-rearranging-youtube-playlists/"><u>[New] 2024 Approved  Step-by-Step Guide to Rearranging YouTube Playlists</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-strategic-approaches-for-creating-impactful-youtubes-finality/"><u>[New] 2024 Approved  Strategic Approaches for Creating Impactful Youtubes' Finality</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-streamlined-success-top-10-youtube-channels-to-start-your-biz-today/"><u>[New] 2024 Approved  Streamlined Success  Top 10 YouTube Channels to Start Your Biz Today</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-tailoring-thumbnails-for-increased-video-engagement-on-youtube/"><u>[New] 2024 Approved  Tailoring Thumbnails for Increased Video Engagement on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-taking-control-your-comprehensive-yt-studio-manual/"><u>[New] 2024 Approved  Taking Control  Your Comprehensive YT Studio Manual</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-basics-of-youtube-compliance-guidelines/"><u>[New] 2024 Approved  The Basics of YouTube Compliance Guidelines</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-blueprint-for-building-a-youtube-empire-in-quick-time/"><u>[New] 2024 Approved  The Blueprint for Building a YouTube Empire in Quick Time</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-easy-fix-for-a-desired-list-directionality/"><u>[New] 2024 Approved  The Easy Fix for a Desired List Directionality</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-insiders-guide-to-youtube-money-minimum-video-views-needed/"><u>[New] 2024 Approved  The Insider's Guide to YouTube Money  Minimum Video Views Needed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-glossary-of-youtube-shorts-terms/"><u>[New] 2024 Approved  The Ultimate Glossary of YouTube Shorts Terms</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-thriving-despite-cyberbullying-and-scathing-feedback/"><u>[New] 2024 Approved  Thriving Despite Cyberbullying and Scathing Feedback</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-top-10-fearful-video-blogs-overcoming-each-challenge/"><u>[New] 2024 Approved  Top 10 Fearful Video Blogs  Overcoming Each Challenge</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unified-youtube-behavior-manual/"><u>[New] 2024 Approved  Unified YouTube Behavior Manual</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unveiling-how-content-makers-profit-from-shorter-videos/"><u>[New] 2024 Approved  Unveiling How Content Makers Profit From Shorter Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unveiling-truth-understanding-youtubes-seo-keywords/"><u>[New] 2024 Approved  Unveiling Truth  Understanding YouTube's SEO Keywords</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-winning-the-subscriber-race-on-youtube/"><u>[New] 2024 Approved  Winning the Subscriber Race on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-worldwide-web-watchers-10-top-youtube-stars/"><u>[New] 2024 Approved  Worldwide Web Watchers  10 Top YouTube Stars</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-your-next-travel-companion-best-youtubers-list/"><u>[New] 2024 Approved  Your Next Travel Companion  Best Youtubers' List</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-angle-adjustment-a-step-by-step-editing-guide/"><u>[New] 2024 Approved  Youtube Angle Adjustment  A Step-by-Step Editing Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ridging-soundscapes-and-visuals-essentials-for-innovative-asmr-videos/"><u>[New] Bridging Soundscapes & Visuals – Essentials for Innovative ASMR Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-epic-martial-arts-arcade-classics-revisited-for-2024/"><u>[New] Epic Martial Arts Arcade Classics Revisited for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-a-step-by-step-approach-to-pinpointing-stellar-photos-on-pexels/"><u>[New] In 2024, A Step-by-Step Approach to Pinpointing Stellar Photos on Pexels</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-mastering-the-art-of-personalizing-video-covers-for-facebook/"><u>[New] Mastering the Art of Personalizing Video Covers for Facebook</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-shockingly-simple-steps-for-suddenly-massive-video-views/"><u>[New] Shockingly Simple Steps for Suddenly Massive Video Views</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-craft-excellence-top-10-free-drawing-tools-for-mac/"><u>[Updated] In 2024, Craft Excellence  Top 10 Free Drawing Tools for Mac</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-today-in-virtual-reality-hardware/"><u>[Updated] In 2024, Today in Virtual Reality Hardware</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-synthetic-adventures-starts-here-top-vr-tools-10/"><u>[Updated] Synthetic Adventures Starts Here  Top VR Tools (10)</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/77-3d-printing-marvel-from-aliexpress-does-it-deliver-quality-expert-analysis-inside/"><u>$77 3D Printing Marvel From AliExpress - Does It Deliver Quality? Expert Analysis Inside</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-meta-and-omni-universe-showcase-analysis/"><u>2024 Approved  Meta & Omni Universe Showcase Analysis</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unlocking-the-power-of-high-dynamic-range-in-photography/"><u>2024 Approved  Unlocking the Power of High Dynamic Range in Photography</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-driver-downloads-for-your-lenovo-x1-carbon-windows-107-supported/"><u>Easy Driver Downloads for Your Lenovo X1 Carbon: Windows 10/7 Supported</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/everything-you-need-to-know-about-the-youtube-shorts-fund-for-2024/"><u>Everything You Need to Know About the YouTube Shorts Fund for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/experience-uninterrupted-gameplay-fixing-lols-network-connections-effectively/"><u>Experience Uninterrupted Gameplay: Fixing LoL's Network Connections Effectively</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/grandiose-photographic-epic-weaver-for-2024/"><u>Grandiose Photographic Epic Weaver for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-motorola-moto-g24-frp-by-drfone-android/"><u>How Can We Bypass Motorola Moto G24 FRP?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-13-to-other-iphone-12-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 13 to other iPhone 12 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-rhythm-research-capture-and-review-music-files/"><u>In 2024, Rhythm Research  Capture & Review Music Files</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-adjusting-your-screen-preferences-in-windows-11/"><u>Ultimate Guide: Adjusting Your Screen Preferences in Windows 11</u></a></li>
+<li><a href="https://techidaily.com/unlock-android-phone-if-you-forget-the-honor-magic-6-lite-password-or-pattern-lock-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you forget the Honor Magic 6 Lite password or pattern lock</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Oppo Find N3 Flip | Dr.fone</u></a></li>
+</ul></div>
