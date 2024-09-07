@@ -1,7 +1,7 @@
 ---
 title: "\"[New] YouTube Editing Made Easy  Shortening Video Lengths for 2024\""
-date: 2024-09-02T08:15:40.577Z
-updated: 2024-09-03T08:15:40.577Z
+date: 2024-09-06T19:38:11.920Z
+updated: 2024-09-07T19:38:11.920Z
 tags:
   - ai video
   - ai youtube
@@ -14,6 +14,12 @@ keywords: "\"Simplify Video Edits,Shorter Vids Guide,YouTube Cut Videos,Edit & R
 thumbnail: https://thmb.techidaily.com/253a511a8eebe03ad95bca3519e71144f55137cbd051ad18a83009076fc1de06.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## YouTube Editing Made Easy: Shortening Video Lengths
 
 # How to Trim YouTube Videos?
@@ -44,12 +50,30 @@ Make sure that you’re signed into your YouTube channel, then click on your **p
 
 ![Trim YouTube videos after uploading ](https://images.wondershare.com/filmora/article-images/youtube-video-editor-youtube-studio.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Click on the **Trim button** to start trimming the video and drag the **blue bars** located at the start and the end of the file to designate the portion of the video you’d like to remove. Preview the changes and confirm what you’ve made by clicking on the **Save** button located in the upper right corner of the screen and the new shortened version of the video will become available within a couple of hours.
 
 ![ YouTube Studio - Trim YouTube videos after uploading ](https://images.wondershare.com/filmora/article-images/preview-save-video-trimming-youtube-studio.jpg)
 
 In this way, you don’t need to take down the original video, edit it and re-upload. One of the benefits of trimming YouTube videos with the Trim feature in YouTube Editor is that this will keep your video URL and views and ranks etc.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Trimming a Video Before Posting On YouTube with [Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) \[4 Ways\]
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -62,6 +86,12 @@ All you have to do in order to trim a video after you’ve placed it on the time
 
 ![Trim YouTube Videos with Filmora Trimmer  Tool](https://images.wondershare.com/filmora/guide/trim-sides.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Method 2: Using Filmora Split Tool
 
 Filmora’s **Split tool** can help you separate the portion of the clip you want to remove from the segment you’d like to keep. Simply **place the playhead** at the exact location in the video clip where you want to make **a cut**, and click on the **Split icon** that looks like a pair of scissors. After the video is split, you should click on the clip you no longer need in order to select it and then hit the **Delete** button on your keyboard to remove it from the timeline.
@@ -79,8 +109,16 @@ The **Instant Cutter Tool** enables you to quickly trim or merge high-resolution
 ![Trim YouTube Videos with Filmora Instant Cutter Tool](https://images.wondershare.com/filmora/article-images/instant-cutter-filmora-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Using Online Video Editing Platforms to Trim YouTube Videos
 
@@ -88,9 +126,6 @@ In case you’re looking for a tool that lets you save extracts of scenes from Y
 
 ![Trim YouTube Videos online ](https://images.wondershare.com/filmora/article-images/yt-cutter-youtube-trimmer.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 This online video editing platform is remarkably easy to use since you just have to **copy** **the link to the YouTube video** you’d like to trim into **YT Cutter’s URL box** and then select how long the new video should be. Click on the **Start and End buttons** to set the duration of the video and click on the **Download button** to choose if you want to create **a video, GIF or an audio file**. The trimmed YouTube video will be available for download as soon as the platform processes it, and you just need to specify a folder on your hard drive before clicking on **the Save button**.
 
 There’re many [online video trimmers](https://tools.techidaily.com/wondershare/filmora/download/) available on the market, some of them are totally free to use, check our guide about [How to Trim Videos for Free Online](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -98,7 +133,16 @@ There’re many [online video trimmers](https://tools.techidaily.com/wondershare
  **Read More to Get :** [How to Download YouTube Videos without Any Software Easily >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Conclusion
 
@@ -106,9 +150,6 @@ There’re many [online video trimmers](https://tools.techidaily.com/wondershare
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
