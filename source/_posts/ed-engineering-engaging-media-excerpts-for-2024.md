@@ -1,0 +1,162 @@
+---
+title: "[Updated] Engineering Engaging Media Excerpts for 2024"
+date: 2024-09-11T14:45:59.662Z
+updated: 2024-09-12T14:45:59.662Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes [Updated] Engineering Engaging Media Excerpts for 2024"
+excerpt: "This Article Describes [Updated] Engineering Engaging Media Excerpts for 2024"
+keywords: "Media Attraction,Interactive Content,Engineering Stories,Engaging Designs,Captivating Visuals,Engineered Images,Compelling Excerpts"
+thumbnail: https://thmb.techidaily.com/84a7e5fe8a2d746104e06bccf0ffdc78d9a7d9997cdcaec1704f07c09aed014e.jpg
+---
+
+## Engineering Engaging Media Excerpts
+
+# How to Make a Channel Trailer
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Your channel trailer is the video viewers who are not already subscribed to you will see when they visit your channel page. It is your chance to make a quick pitch to them about why they should subscribe. You can use your channel trailer to let new visitors to your channel know what kind of videos you make and to convince them to subscribe. Here are 5 tips to make an effective YouTube channel trailer.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Part 1: 5 Tips for Making a Great Channel Trailer
+
+Here are our top 5 recommendations for anybody creating a YouTube channel trailer:
+
+#### Reach Out – It’s All About Your Viewers
+
+Use your channel trailer to try to connect to the individual viewer watching it. Greet that one person as one person, as a ‘you’, instead of as a member of a group (i.e., avoid saying ‘you guys’).
+
+The more you can make your trailer about the person watching it, the better. You are telling them about yourself, but you are doing it for their benefit. Address them directly (i.e. ‘If you like…’ or ‘you don’t want to miss’.) and make everything you say about them. For example, instead of saying ‘I post tutorials about’, try ‘you can learn about’.
+
+#### Flaunt Your Personality – It’s All About You
+
+One of the golden rules of YouTube is ‘be yourself’. People will subscribe because they enjoy your personality and want to see more of it.
+
+Use your trailer as an opportunity to showcase your unique perspective. Be yourself, and be the person that is excited to be making great YouTube videos. You are at your best when you let people see how much you care about something, so show your viewers how much you care about delivering great video content. This is what will make people want to subscribe.
+
+#### Talk about All the Cool Stuff You Do
+
+The best channel trailers give viewers a window into your channel. You need to show people what to expect from you as a personality, but you also need to tell them what to expect in terms of your videos.
+
+Your channel trailer should include information like: what kinds of videos you make, why you make them, and what your upload schedule is.
+
+Be specific. Instead of saying you make videos about makeup, say you make look tutorials and talk about your favorite styles. Instead of saying you are a gamer, tell your potential subscribers what games you post about and what some of your favorites are.
+
+A specific schedule is important for getting people to subscribe. Generally, viewers do not subscribe to channels that have not posted in a long time. They subscribe because they do not want to miss out on new content, and if you follow a schedule, they will trust that that new content is on its way.
+
+#### Ask Them to Subscribe
+
+Do not forget to ask the person to view your trailer to subscribe.
+
+A lot of people go into YouTube thinking people will subscribe if they like their videos, and so making great videos is the only way to get people to subscribe. This is not true.
+
+Making great videos is the first step to getting subscribers, but the second step is to ask for them. Not everyone subscribes to every channel they visit and enjoy. A person who enjoys your videos is more likely to subscribe if you prompt them to.
+
+#### 30 Seconds
+
+The ideal length for a YouTube channel trailer is 30 seconds, or between 30 seconds and 1 minute.
+
+The people viewing your trailer did not come to YouTube for the purpose of watching it. They are unlikely to give it much time before they continue browsing. This means you need to grab their attention tightly right away, but it also means you need to keep your trailer bite-sized.
+
+Thirty seconds should be long enough to tell people what your channel is about, show off your personality, and ask them to subscribe. If you take much longer, viewers will click away before they hear your full pitch.
+
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Part 2: How to Add a Channel Trailer Using Wondershare Filmora
+
+Here are a few simple steps to setting up your channel trailer.
+
+1. Turn on channel customization. Go to My Channel and click the gear icon over your channel’s banner. Switch **Customize the layout of your channel** from off to on.
+2. Upload your trailer video like you would any other video.
+3. Go to your channel and click on the **For new visitors** tab, which should appear after you’ve turned on customization.
+4. Click **Channel trailer** and choose your video, or paste in its URL.
+
+If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-overcoming-blackout-problems-for-a-clearer-youtube-experience/"><u>[New] 2024 Approved Overcoming Blackout Problems for a Clearer YouTube Experience</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-discovering-the-essence-of-excellent-screen-capture-with-recmeister/"><u>[New] In 2024, Discovering the Essence of Excellent Screen Capture with Recmeister</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ideo-narrative-enhancer/"><u>[New] Video Narrative Enhancer</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-ugly-side-of-digital-video-profits/"><u>[Updated] 2024 Approved The Ugly Side of Digital Video Profits</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-navigate-video-settings-ideal-size-and-aspect-ratio-for-youtube/"><u>[Updated] Navigate Video Settings Ideal Size & Aspect Ratio for YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/amplifying-photos-keeping-precision/"><u>Amplifying Photos Keeping Precision</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-getting-acquainted-with-youtube-tvs-distinctive-features/"><u>In 2024, Getting Acquainted with YouTube TV's Distinctive Features</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-infinix-gt-10-pro-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Infinix GT 10 Pro Lock Screen Password?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-battle-of-video-players-vlc-vs-mx/"><u>In 2024, The Battle of Video Players VLC Vs. MX</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pictorial-mosaic-construction-with-digital-photography-for-2024/"><u>Pictorial Mosaic Construction with Digital Photography for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/star-wars-battlefront-2-mishap-heres-how-to-tackle-error-code-327-successfully/"><u>Star Wars Battlefront 2 Mishap? Here's How to Tackle Error Code 327 Successfully</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/unlock-your-iphone-x-in-minutes-with-iccid-code-everything-you-need-to-know-by-drfone-ios/"><u>Unlock Your iPhone X in Minutes with ICCID Code Everything You Need to Know</u></a></li>
+</ul></div>
+
