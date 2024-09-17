@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Fundamental Equipment for Channel Foundations"
-date: 2024-09-11T14:47:41.172Z
-updated: 2024-09-12T14:47:41.172Z
+date: 2024-09-16T21:35:04.142Z
+updated: 2024-09-17T21:37:44.144Z
 tags:
   - ai video
   - ai youtube
@@ -55,13 +55,6 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -84,19 +77,6 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
-<!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -112,10 +92,10 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -126,38 +106,24 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -180,20 +146,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-10-mp4-players-you-cant-miss/"><u>[New] 2024 Approved 10 MP4 Players You Can't Miss</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-challenges-vs-viral-hits-can-likebeat-tiktoks-growth/"><u>[New] In 2024, Challenges Vs. Viral Hits Can LikeBeat TikTok's Growth?</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-master-the-visuals-top-tips-for-dynamic-and-appealing-live-videos/"><u>[New] In 2024, Master the Visuals Top Tips for Dynamic and Appealing Live Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/recision-problem-solving-for-youtube-short-success/"><u>[New] Precision Problem-Solving for YouTube Short Success</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-asgard-reborn-the-ragnarok-chronicles/"><u>[Updated] 2024 Approved Asgard Reborn The Ragnarök Chronicles</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-tips-for-effective-youtube-end-screen-usage/"><u>[Updated] 2024 Approved Tips for Effective YouTube End Screen Usage</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-a-step-by-step-guide-for-creating-channel-trailers-that-convert-viewers-into-customers/"><u>[Updated] In 2024, A Step-by-Step Guide for Creating Channel Trailers that Convert Viewers Into Customers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-stream-at-peak-performance-best-gpu-selection-guide-for-2024/"><u>[Updated] Stream at Peak Performance Best GPU Selection Guide for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/a-concise-guide-to-starting-an-inclusive-chat-room-in-skype-accessible-on-different-operating-systems-for-2024/"><u>A Concise Guide to Starting an Inclusive Chat Room in Skype, Accessible on Different Operating Systems for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-techniques-for-reducing-mov-file-sizes-effectively/"><u>Best Techniques for Reducing Mov File Sizes Effectively</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-blitzing-sharing-easy-youtube-playlist-methods/"><u>In 2024, Blitzing Sharing Easy YouTube Playlist Methods</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/jpeg-recovery-software-revives-damaged-images/"><u>JPEG Recovery Software - Revives Damaged Images</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/protect-privacy-10-best-free-face-blurring-apps-for-images-and-footage-for-2024/"><u>Protect Privacy 10 Best Free Face Blurring Apps for Images and Footage for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/smilesketcher-generate-memes-with-a-click/"><u>SmileSketcher Generate Memes with a Click</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/remier-software-selection-for-youtube-intros-for-2024/"><u>The Premier Software Selection for YouTube Intros for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rime-mp3-converters-the-ultimate-list-from-youtube/"><u>[New] Prime MP3 Converters The Ultimate List From YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-key-to-a-profitable-yt-channel-accurate-monetization-verification-for-2024/"><u>[New] The Key to a Profitable YT Channel Accurate Monetization Verification for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hy-you-must-enable-av1-for-ultimate-video-experience-on-youtube-for-2024/"><u>[New] Why You Must Enable AV1 for Ultimate Video Experience on YouTube for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-25plus-futuristic-insights-on-ar-enhanced-worlds/"><u>[Updated] 25+ Futuristic Insights on AR-Enhanced Worlds</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-early-birds-guide-to-youtube-skip-these-8-potential-pitfalls/"><u>[Updated] In 2024, The Early Bird's Guide to YouTube Skip These 8 Potential Pitfalls</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-musical-mentorship-series-top-15-youtube-wisdom-from-pros/"><u>[Updated] Musical Mentorship Series - Top 15 YouTube Wisdom From Pros</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-navigating-online-marketplaces-for-yt-channel-sales/"><u>2024 Approved Navigating Online Marketplaces for YT Channel Sales</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/high-end-computers-a-showcase-of-excellence-for-2024/"><u>High-End Computers A Showcase of Excellence for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-captivate-audience-attention-with-your-yt-shorts-for-2024/"><u>How to Captivate Audience Attention with Your YT Shorts for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-samsung-galaxy-a34-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Samsung Galaxy A34 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-vivo-v27-pro-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Vivo V27 Pro Phone Now with These Tips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-seamlessly-retrieve-tags-list-of-7-premium-free-youtube-extractors/"><u>In 2024, Seamlessly Retrieve Tags List of 7 Premium Free YouTube Extractors</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-the-art-of-youtube-editing-a-compreenasive-guidebook/"><u>In 2024, The Art of YouTube Editing A Compreenasive Guidebook</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/revamping-your-online-image-the-best-methods-for-altering-your-videa-profile-photo/"><u>Revamping Your Online Image: The Best Methods for Altering Your Videa Profile Photo</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-15-apps-to-hack-wifi-password-on-nokia-c32-by-drfone-android/"><u>Top 15 Apps To Hack WiFi Password On Nokia C32</u></a></li>
 </ul></div>
 

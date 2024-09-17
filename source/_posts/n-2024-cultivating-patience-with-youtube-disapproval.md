@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Cultivating Patience with YouTube Disapproval"
-date: 2024-09-11T14:52:27.543Z
-updated: 2024-09-12T14:52:27.543Z
+date: 2024-09-12T20:13:32.534Z
+updated: 2024-09-17T20:58:25.575Z
 tags:
   - ai video
   - ai youtube
@@ -25,19 +25,6 @@ thumbnail: https://thmb.techidaily.com/5eb42b490725ed54872c9c11b47aee171fe6d7919
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
-
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -67,13 +54,6 @@ thumbnail: https://thmb.techidaily.com/5eb42b490725ed54872c9c11b47aee171fe6d7919
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -95,19 +75,29 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-ios-recording-tools-guide/"><u>[New] In 2024, IOS Recording Tools Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-top-10-no-cost-digital-video-editors-the-2023-guide/"><u>[New] In 2024, Top 10 No-Cost Digital Video Editors The 2023 Guide</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-track-talkative-youtube-threads/"><u>[New] Track Talkative YouTube Threads</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-decoding-youtubes-operations-following-uploads/"><u>[Updated] Decoding YouTube’s Operations Following Uploads</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-the-ultimate-walkthrough-for-movie-making-on-windows-8/"><u>[Updated] The Ultimate Walkthrough for Movie Making on Windows 8</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-vogue-videos-compiling-free-youtube-channel-frames/"><u>[Updated] Vogue Videos Compiling FREE YouTube Channel Frames</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-transforming-viewers-into-revenue-youtube-money-secrets-unveiled/"><u>2024 Approved Transforming Viewers Into Revenue YouTube Money Secrets Unveiled</u></a></li>
-<li><a href="https://howto.techidaily.com/app-wont-open-on-your-oppo-a18-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Oppo A18? Here Are All Fixes | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/asus-pce-ac68-wireless-network-adapter-download-latest-drivers/"><u>ASUS PCE-AC68 Wireless Network Adapter Download - Latest Drivers</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/exploring-nvidias-ai-service-for-personalized-creation/"><u>Exploring NVIDIA's AI Service for Personalized Creation</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-from-apple-iphone-xs-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock From Apple iPhone XS You Should Try Out</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Motorola G54 5G | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-honor-90-gt-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Honor 90 GT | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ty-guffaws-uncover-the-top-15-youtube-comedy-talents/"><u>Quality Guffaws Uncover the Top 15 YouTube Comedy Talents</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ix-best-film-alternates-ranked-7-picks-for-2024/"><u>[New] Six Best Film Alternates Ranked #7 Picks for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/echnique-for-anonymous-footage-via-image-smoothing/"><u>[New] Technique for Anonymous Footage via Image Smoothing</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/op-audiovisual-enhancements-for-video-producers-for-2024/"><u>[New] Top Audiovisual Enhancements for Video Producers for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-amplify-audience-response-with-unique-instagram-quiz-features/"><u>[Updated] 2024 Approved Amplify Audience Response with Unique Instagram Quiz Features</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-unlocking-fun-navigating-ifunny-meme-app/"><u>[Updated] 2024 Approved Unlocking Fun Navigating iFunny Meme App</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-smartphone-browser-showdown-youtube-app-analysis/"><u>2024 Approved Smartphone Browser Showdown YouTube App Analysis</u></a></li>
+<li><a href="https://win11.techidaily.com/blue-screen-breakdown-an-insiders-approach/"><u>Blue Screen Breakdown: An Insider's Approach</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-comedy-canvas-painting-laughter-with-top-10-video-concepts/"><u>In 2024, Comedy Canvas Painting Laughter with Top 10 Video Concepts</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/rectifying-broken-system-defragmenter-execution/"><u>Rectifying Broken System Defragmenter Execution</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unlocking-powershell-and-cmd-in-a-targeted-folder-with-simple-steps/"><u>Unlocking PowerShell and CMD in a Targeted Folder with Simple Steps</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/voice-log-export-and-critique-for-2024/"><u>Voice Log Export & Critique for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

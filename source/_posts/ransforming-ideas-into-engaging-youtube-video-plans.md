@@ -1,7 +1,7 @@
 ---
 title: "[New] Transforming Ideas Into Engaging YouTube Video Plans"
-date: 2024-07-13T16:40:13.473Z
-updated: 2024-07-14T16:40:13.473Z
+date: 2024-09-13T16:18:13.448Z
+updated: 2024-09-17T18:23:42.280Z
 tags:
   - ai video
   - ai youtube
@@ -39,9 +39,6 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
@@ -62,9 +59,23 @@ The first step in writing a script is to develop an outline for the story. You m
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -100,6 +111,13 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -108,14 +126,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,6 +139,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-battle-of-the-capture-tools-obs-studio-against-bandicam/"><u>[New] 2024 Approved Battle of the Capture Tools OBS Studio Against Bandicam</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-conceal-dont-reveal-how-to-blur-faces-online/"><u>[New] In 2024, Conceal, Don't Reveal How to Blur Faces Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-top-10-youtube-growth-titles-where-creativity-soars-quickly/"><u>[New] In 2024, Top 10 YouTube Growth Titles Where Creativity Soars Quickly</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/eo-booster-essentials-for-top-online-videos/"><u>[New] SEO Booster Essentials for Top Online Videos</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-streamlined-techniques-to-record-screen-dialogue/"><u>[Updated] 2024 Approved Streamlined Techniques to Record Screen Dialogue</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-amplify-video-aesthetics-filters-for-every-screen/"><u>2024 Approved Amplify Video Aesthetics Filters for Every Screen</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-generate-giggle-worthy-graphics/"><u>2024 Approved Generate Giggle-Worthy Graphics</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/developing-an-ai-powered-conversation-agent-using-your-private-information/"><u>Developing an AI-Powered Conversation Agent Using Your Private Information</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ahead-with-the-top-yt-thumbnail-techniques-for-2024/"><u>Stay Ahead with the Top YT Thumbnail Techniques for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/zippyzoom-pauseframe-playback/"><u>ZippyZoom PauseFrame Playback</u></a></li>
+</ul></div>
 

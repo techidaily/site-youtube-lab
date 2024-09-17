@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  YouTube Shorts Ultimate Guide\""
-date: 2024-07-13T16:39:31.638Z
-updated: 2024-07-14T16:39:31.638Z
+date: 2024-09-16T20:08:32.715Z
+updated: 2024-09-17T17:18:20.354Z
 tags:
   - ai video
   - ai youtube
@@ -91,6 +91,13 @@ Tap **Music** from the bottom of the screen to add background music to the video
 
 ![Edit YouTube Shorts video - Add text and music](https://images.wondershare.com/filmora/article-images/edit-youtube-short-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Likewise, you can tap **Text** to add captions as well. As for the text type, the app offers various formatting options such as alignment (left, center, and right), text highlighter, font changer, and even color selector. Further, the Speed and Timer icons at the top-right area allow you to manage the playback speed anywhere between 0.3x to 3x, and automatically stop the recording after the set time limit respectively. Once everything is set up, tap **NEXT** from the top-right corner to proceed to the next step.
 
 **Step 3: Pick Target Audience Type**
@@ -119,6 +126,13 @@ For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.12 or later
@@ -143,6 +157,13 @@ Select the clip in the Timeline, and use the **Split**, **Crop**, **Speed**, etc
 
 ![Edit YouTube Shorts video in Filmora - split/crop/change speed](https://images.wondershare.com/filmora/article-images/split-crop-youtube-shorts-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can even click the **Edit** button, and use the available editing features like **Motion Tracking** and **Stabilization** to add text or objects to a moving body in the video and stabilize the clip if the camera shook during the recording session respectively. Click **OK** to save the changes when done.
 
 ![Edit YouTube Shorts video in Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-filmora-advanced-editing.jpg)
@@ -159,15 +180,19 @@ Similarly, you can select the **Effects** and **Elements** tools to add effects 
 
 ![Add effects to YouTube Shorts video with Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-add-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 After this, optionally, you can go to **Split Screen** from the standard toolbar at the top, and use your preferred Split Screen preset to club multiple video clips into one screen. In Filmora, you can add as many as 6 screens in a video.
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For Win 7 or later (64-bit)
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -181,6 +206,13 @@ For macOS 10.12 or later
 Once everything is set up, click **EXPORT** from the top of the window, go to the **Local** tab on the **Export** window, select **MP4** from the formats list in the left, give a name and configure other settings from the available options in the right, and click **EXPORT** from the bottom-right corner to create a **YouTube Shorts** video. Once the clip is generated, you can upload the video to YouTube using **#Shorts** in the title or description to publish the video under the **YouTube Shorts** section.
 
 ![Edit YouTube Shorts video in Filmora- export](https://images.wondershare.com/filmora/article-images/export-youtube-shorts-video-in-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### FAQs About YouTube Shorts
 
@@ -216,14 +248,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -232,6 +261,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/nhance-audio-visual-fidelity-use-av1-on-youtube-for-2024/"><u>[New] Enhance Audio-Visual Fidelity Use AV1 on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ncors-guide-to-enriched-video-engagement-through-commentary-and-alert-embeddings/"><u>[New] Incor's Guide to Enriched Video Engagement Through Commentary and Alert Embeddings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/inute-video-crafters-for-2024/"><u>[New] Minute Video Crafters for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-prioritize-performance-our-picks-for-the-best-video-players/"><u>[New] Prioritize Performance Our Picks for the Best Video Players</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/op-facts-in-the-asmr-world-for-2024/"><u>[New] Top Facts in the ASMR World for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-unlock-iphones-full-video-loop-potential/"><u>2024 Approved Unlock iPhone's Full Video Loop Potential</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/ableton-live-mastering-volume-dampening/"><u>Ableton Live Mastering Volume Dampening</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/hochtief-ag/"><u>Hochtief AG</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-vivo-y02t-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Vivo Y02T? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-motorola-moto-g14-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Motorola Moto G14 | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/painting-in-a-digital-age-chatgpt-and-ai-art-collaboration/"><u>Painting in a Digital Age: ChatGPT & AI Art Collaboration</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-solutions-repairing-black-screen-problem-in-facetime-calls/"><u>Step-by-Step Solutions: Repairing Black Screen Problem in FaceTime Calls</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Path to Higher Engagement  Essential Shortcuts for YouTubers\""
-date: 2024-07-13T16:39:39.266Z
-updated: 2024-07-14T16:39:39.266Z
+date: 2024-09-10T16:56:24.510Z
+updated: 2024-09-17T20:48:46.183Z
 tags:
   - ai video
   - ai youtube
@@ -41,9 +41,6 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
 This section talks about the shortcut keys to skim the video forward and backward during playback:
@@ -62,6 +59,13 @@ This section talks about the shortcut keys to skim the video forward and backwar
 If you’re watching videos on YouTube mobile app, you can use double-tap on the right side of the video player to skip 10 seconds forward, and double-tap on the left side of the video player to skip the video 10 seconds backward. Every double-tap forwards/rewinds the video in 10-seconds increments. E.g., Tapping 6 times on the right skips the video 30 seconds forward. Tapping 6 times on the left skips the video 30 seconds backward.
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 3: Manage Playback Speed
 
@@ -93,6 +97,13 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -132,6 +143,13 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -148,14 +166,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -164,6 +179,15 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-knowledge.techidaily.com/new-harness-the-power-of-gopro-for-captivating-time-lapse-videos/"><u>[New] Harness the Power of GoPro for Captivating Time-Lapse Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/earning-leaders-most-influential-edu-tutorials-yt/"><u>[New] Learning Leaders Most Influential Edu Tutorials YT</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-short-film-producer-yt/"><u>[Updated] Short Film Producer YT</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-lava-yuva-2-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Lava Yuva 2 Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-huawei-nova-y71-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Huawei Nova Y71</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/premium-screen-recording-selections-for-2024/"><u>Premium Screen Recording Selections for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ready-set-update-your-quick-dual-checklist-for-upgrading-to-windows-11-creators-edition/"><u>Ready, Set, Update! Your Quick Dual Checklist for Upgrading to Windows 11 Creators Edition</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-hurdles-how-to-triumph-over-ten-common-obstacles-for-2024/"><u>Vlogging Hurdles How to Triumph Over Ten Common Obstacles for 2024</u></a></li>
+</ul></div>
 

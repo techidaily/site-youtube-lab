@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Streamlined Steps to Delete YouTube Discussions Fast"
-date: 2024-07-13T16:41:40.910Z
-updated: 2024-07-14T16:41:40.910Z
+date: 2024-09-16T21:14:51.838Z
+updated: 2024-09-17T17:17:23.001Z
 tags:
   - ai video
   - ai youtube
@@ -83,6 +83,13 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -112,15 +119,32 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
@@ -137,14 +161,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -153,6 +174,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-fight-for-finesse-the-best-of-royale-battles-for-2024/"><u>[New] Fight for Finesse The Best of Royale Battles for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/aking-the-leap-essential-video-gatherings-post-vidcon/"><u>[New] Taking the Leap Essential Video Gatherings (Post-VidCon)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-unseen-snaps-and-hushed-user-signal-to-check-for-blocks/"><u>[New] Unseen Snaps and Hushed User Signal to Check for Blocks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-earning-equations-decoding-the-mathematics-behind-youtube-income-monitoring/"><u>2024 Approved Earning Equations Decoding the Mathematics Behind YouTube Income Monitoring</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unleash-high-definition-content-with-youtubes-av1-feature/"><u>2024 Approved Unleash High-Definition Content with YouTube’s AV1 Feature</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-from-novice-to-pro-your-step-by-step-guide-to-youtube-live-images/"><u>In 2024, From Novice to Pro Your Step-by-Step Guide to YouTube Live Images</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-expanding-your-expression-methods-for-adapting-your-natural-voice/"><u>New 2024 Approved Expanding Your Expression Methods for Adapting Your Natural Voice</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/the-art-of-minimizing-lag-with-additional-ram-for-minecraft/"><u>The Art of Minimizing Lag with Additional RAM for Minecraft</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-ultimate-guide-to-unlocking-your-apple-iphone-7-plus-on-metropcs-by-drfone-ios/"><u>The Ultimate Guide to Unlocking Your Apple iPhone 7 Plus on MetroPCS</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-guide-successfully-starting-up-evil-genius-2-after-initial-failure/"><u>Troubleshooting Guide: Successfully Starting Up Evil Genius 2 After Initial Failure</u></a></li>
+</ul></div>
 

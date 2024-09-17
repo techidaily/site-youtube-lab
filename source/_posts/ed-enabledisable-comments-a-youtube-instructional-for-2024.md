@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enable/Disable Comments  A YouTube Instructional for 2024\""
-date: 2024-09-11T14:49:28.206Z
-updated: 2024-09-12T14:49:28.206Z
+date: 2024-09-10T19:51:22.818Z
+updated: 2024-09-17T20:35:53.559Z
 tags:
   - ai video
   - ai youtube
@@ -35,13 +35,6 @@ Keeping all these points in mind, the following sections explain **how to enable
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -57,13 +50,6 @@ Use your favorite web browser to go to YouTube and sign in to your Google accoun
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Step 3: Turn Off Comments
 
@@ -82,19 +68,6 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
 
@@ -122,13 +95,6 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -151,13 +117,6 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -173,13 +132,6 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -216,15 +168,21 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-chortle-chamber-ideas-for-7-amusing-online-sessions-for-2024/"><u>[New] Chortle Chamber Ideas for 7 Amusing Online Sessions for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ultivating-a-visionary-channel-with-best-video-ideas/"><u>[New] Cultivating a Visionary Channel with Best Video Ideas</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-enhance-videos-seamlessly-using-youtube-studio-editor/"><u>[New] In 2024, Enhance Videos Seamlessly Using YouTube Studio Editor</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-enhance-your-photos-on-instagram-with-easy-free-filters-access/"><u>[New] In 2024, Enhance Your Photos on Instagram with Easy, Free Filters Access</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-transform-your-clips-step-by-step-youtube-end-screen-tutorials/"><u>[New] In 2024, Transform Your Clips Step-by-Step YouTube End Screen Tutorials</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nfographic-insight-whats-hot-on-23-social-sphere-for-2024/"><u>[New] Infographic Insight What's Hot on '23 Social Sphere for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-dangerous-depths-top-10-roguelite-showdowns/"><u>[Updated] In 2024, Dangerous Depths Top 10 Roguelite Showdowns</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-top-pick-for-mp4-recorders-on-market/"><u>[Updated] In 2024, Top Pick for MP4 Recorders on Market</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-leveraging-fb-livestream-for-post-produced-content-dissemination/"><u>2024 Approved Leveraging FB Livestream for Post-Produced Content Dissemination</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-top-tools-to-reduce-long-link-lengths/"><u>In 2024, Youtube's Top Tools to Reduce Long Link Lengths</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-pro-tips-for-capturing-stunning-igtv-content-on-mobile-and-dslr/"><u>[New] 2024 Approved Pro Tips for Capturing Stunning IGTV Content on Mobile & DSLR</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ltimate-guide-to-the-best-10-video-saving-devices/"><u>[New] Ultimate Guide to the Best 10 Video Saving Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-effective-approach-to-swiftly-eliminate-video-comments/"><u>[Updated] In 2024, Effective Approach to Swiftly Eliminate Video Comments</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-virtual-escapades-you-cant-afford-to-miss/"><u>[Updated] In 2024, Virtual Escapades You Can't Afford to Miss</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-realme-c55-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Realme C55? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-use-creative-commons-copyright-licenses-in-2024/"><u>How to Use Creative Commons Copyright Licenses, In 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-snapchat-location-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-honor-magic-6-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Honor Magic 6 Bricked Devices | Dr.fone</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

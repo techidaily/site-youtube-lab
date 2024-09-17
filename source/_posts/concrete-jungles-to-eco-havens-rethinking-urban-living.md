@@ -1,7 +1,7 @@
 ---
 title: "\"From Concrete Jungles to Eco Havens  Rethinking Urban Living\""
-date: 2024-09-11T14:53:15.306Z
-updated: 2024-09-12T14:53:15.306Z
+date: 2024-09-16T18:12:33.872Z
+updated: 2024-09-17T18:35:16.032Z
 tags:
   - ai video
   - ai youtube
@@ -42,13 +42,6 @@ thumbnail: https://thmb.techidaily.com/259bceb776cdbf3be867bf48c477b3f9885a0b2e9
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Why YouTube channel description is important
 
  If you have a YouTube channel and if you are not getting the number of views that you wish to have, there are possibly several problems. Maybe, your content is not enticing enough. Or maybe, it is because you do not have the right YouTube channel description. Generally speaking, the description of your channel will provide visitors of a snapshot of what the channel is all about. It appears in the about tab of your page. This is an elevator pitch, which will be an opportunity for you to show other people why they should watch your videos.
@@ -80,34 +73,13 @@ thumbnail: https://thmb.techidaily.com/259bceb776cdbf3be867bf48c477b3f9885a0b2e9
 
 ![Find My Channel ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
 
 ![Customize the layout of your channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Click on "About."
 
 ![Edit YouTube Channel Description - About ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Then you can edit the channel description here
 
@@ -132,13 +104,6 @@ thumbnail: https://thmb.techidaily.com/259bceb776cdbf3be867bf48c477b3f9885a0b2e9
 
 ![YouTube description ](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 1. Take full advantage of the First Line
 
  As the most important text in the YouTube video description, the text in the first line will appear both in the YouTube search result and the social media. It is recommended to write a short video description but for SEO purpose, keep in mind to contain the main keywords and write a clickbaity text.
@@ -150,19 +115,6 @@ thumbnail: https://thmb.techidaily.com/259bceb776cdbf3be867bf48c477b3f9885a0b2e9
  It is highly recommended to add additional relevant content to the video description to help audience to get to know you better. You can add a brief summary of the video content or the transcript of the video here. Normally, you can add anything that is worth mentioning such as the equipment or software that you are using to make the video.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -185,15 +137,25 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-step-into-the-arena-joining-lives-on-tiktok/"><u>[New] In 2024, Step Into the Arena Joining Lives on TikTok</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ake-a-memorable-mark-with-your-own-thumbnails/"><u>[New] Make a Memorable Mark with Your Own Thumbnails</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/wo-sides-to-every-story-how-to-create-balanced-reaction-videos-on-youtube-2-pov-approach-for-2024/"><u>[New] Two Sides to Every Story – How to Create Balanced Reaction Videos on YouTube (2 POV Approach) for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-canvas-on-a-screen-ranking-the-best-8-drawing-apps-for-iphones/"><u>[Updated] 2024 Approved Canvas on a Screen Ranking the Best 8 Drawing Apps for iPhones</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-from-live-demos-to-online-sharing-mastering-idevice-screenshots-for-video-content/"><u>[Updated] 2024 Approved From Live Demos to Online Sharing Mastering iDevice Screenshots for Video Content</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-superior-streaming-made-simple-enabling-av1-in-youtube-for-2024/"><u>[Updated] Superior Streaming Made Simple Enabling AV1 in YouTube for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-google-pixel-fold-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Google Pixel Fold to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/mastering-the-art-of-file-recovery-from-iphones-after-system-reinitialization-processes/"><u>Mastering the Art of File Recovery From iPhones After System Reinitialization Processes</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ng-and-title-strategies-for-youtube-success-stories/"><u>Tagging and Title Strategies for YouTube Success Stories</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-fundamentals-of-starting-an-instantaneous-broadcast-for-2024/"><u>The Fundamentals of Starting an Instantaneous Broadcast for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/armonize-your-youtube-presence-with-these-ideal-microphones-for-various-channels-for-2024/"><u>[New] Harmonize Your YouTube Presence With These Ideal Microphones for Various Channels for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-20plus-amazing-youtube-shortcuts-you-should-know/"><u>[New] In 2024, 20+ Amazing YouTube Shortcuts You Should Know</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-instagram-flips-mastering-the-video-360-turn/"><u>[New] Instagram Flips Mastering the Video 360-Turn</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ove-in-full-view-discovering-youtube-and-vimeos-top-7-wedding-movies/"><u>[New] Love in Full View Discovering Youtube & Vimeo's Top 7 Wedding Movies</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-instagram-visual-mastery-crop-and-edit-videos-like-pros/"><u>[Updated] Instagram Visual Mastery Crop and Edit Videos Like Pros</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-visionary-graphs-on-upcoming-23-trends/"><u>[Updated] Visionary Graphs on Upcoming '23 Trends</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-your-one-stop-guide-30-prime-websites-offering-free-vectr-and-graphic-services/"><u>2024 Approved Your One-Stop Guide 30 Prime Websites Offering Free Vectr & Graphic Services</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ting-content-flow-uploading-imovie-films-to-youtube/"><u>Directing Content Flow Uploading IMovie Films to YouTube</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/expert-tips-to-restore-your-apple-airpods-microphone-functionality-on-windows-11-systems/"><u>Expert Tips to Restore Your Apple AirPods' Microphone Functionality on Windows 11 Systems</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-ready-to-ride-mastering-the-convenient-features-of-mods-latest-e-bike-sidecar/"><u>Get Ready To Ride: Mastering The Convenient Features Of Mod's Latest E-Bike Sidecar</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/orb-shaper-essentials-for-2024/"><u>Orb Shaper Essentials for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/switching-to-imessages-a-step-by-step-guide-for-android-users/"><u>Switching to iMessages: A Step-by-Step Guide for Android Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/form-spaces-and-elevate-brands-the-ultimate-apps-list-for-youtube-artistry-for-2024/"><u>Transform Spaces & Elevate Brands The Ultimate Apps List for YouTube Artistry for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

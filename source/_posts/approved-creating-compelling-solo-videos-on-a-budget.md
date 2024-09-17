@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Creating Compelling Solo Videos on a Budget\""
-date: 2024-07-13T16:37:53.056Z
-updated: 2024-07-14T16:37:53.056Z
+date: 2024-09-11T16:35:08.268Z
+updated: 2024-09-17T18:45:19.008Z
 tags:
   - ai video
   - ai youtube
@@ -53,6 +53,13 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -95,12 +102,22 @@ Looking to find the right lights for your video recording set? Check out our [To
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -108,14 +125,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,6 +138,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-diy-split-screen-video-tutorials-for-youtube-enthusiasts/"><u>[Updated] DIY Split-Screen Video Tutorials for YouTube Enthusiasts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-elevate-your-content-instagram-stories-with-podcasts/"><u>[Updated] In 2024, Elevate Your Content Instagram Stories with Podcasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/r-in-the-market-top-15-finance-videos-for-2024/"><u>A Year in the Market Top 15 Finance Videos for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/deciphering-the-process-of-bulk-downloads-from-tiktoks-treasure-trove/"><u>Deciphering the Process of Bulk Downloads From TikTok's Treasure Trove</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-resolve-pc-game-crashes-in-red-dead-online/"><u>How To Resolve PC Game Crashes in Red Dead Online</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-x90s-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Vivo X90S Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/iate-hit-list-top-10-videos-watched-first-hour/"><u>Immediate Hit List Top 10 Videos Watched First Hour</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-the-dynamics-of-canon-timelapse-imagery/"><u>In 2024, Exploring the Dynamics of Canon Timelapse Imagery</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-least-expensive-stock-images-online-for-2024/"><u>Leading Least Expensive Stock Images Online for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/inting-your-individual-playlist-hub-on-youtube-for-2024/"><u>Pinpointing Your Individual Playlist Hub on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ole-of-youtube-images-in-video-promotion-and-discovery/"><u>The Role of Youtube Images in Video Promotion and Discovery</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-audio-and-video-showcase-excellent-webcams-for-podcasts-for-2024/"><u>Ultimate Audio & Video Showcase Excellent Webcams for Podcasts for 2024</u></a></li>
+</ul></div>
 

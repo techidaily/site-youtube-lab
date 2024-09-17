@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 4 Ways To Set Up Your Talking-Head Shots For YouTube\""
-date: 2024-07-13T16:40:34.757Z
-updated: 2024-07-14T16:40:34.757Z
+date: 2024-09-16T16:25:47.696Z
+updated: 2024-09-17T16:01:11.549Z
 tags:
   - ai video
   - ai youtube
@@ -53,6 +53,13 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -67,9 +74,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -77,6 +81,19 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -108,14 +125,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,6 +138,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-progopro-tips-for-cinematic-results/"><u>[New] 2024 Approved ProGoPro Tips for Cinematic Results</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nnovative-orderings-in-youtube-music-playlists-for-2024/"><u>[New] Innovative Orderings in YouTube Music Playlists for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nnovators-uniting-video-sound-and-imagery/"><u>[New] Innovators Uniting Video, Sound & Imagery</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/uick-guide-embedding-time-markers-on-youtube-videos-desktopmobile/"><u>[New] Quick Guide Embedding Time Markers on YouTube Videos (Desktop/Mobile)</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-uncomplicated-guide-for-crafting-and-editing-multiple-snaps-in-snapchat/"><u>[Updated] 2024 Approved Uncomplicated Guide for Crafting and Editing Multiple Snaps in Snapchat</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expert-guide-to-mastering-zero-cost-timer-functionality/"><u>[Updated] Expert Guide to Mastering Zero Cost Timer Functionality</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-simple-path-your-guide-to-convert-youtube-audio-on-mac/"><u>[Updated] Simple Path Your Guide to Convert YouTube Audio on Mac</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-virtual-makeup-mavens-top-youtube-creators/"><u>[Updated] Virtual Makeup Mavens Top YouTube Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-cut-to-impress-youtube-video-editing-made-simple/"><u>2024 Approved Cut to Impress YouTube Video Editing Made Simple</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-free-high-quality-youtube-banner-samples-inside/"><u>2024 Approved Free High-Quality YouTube Banner Samples Inside</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-mastering-youtube-video-edits-the-ultimate-step-by-step-guide/"><u>2024 Approved Mastering YouTube Video Edits The Ultimate Step-by-Step Guide</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-clear-path-a-step-by-step-approach-to-buying-an-exceptional-4k-monitor/"><u>2024 Approved The Clear Path A Step-By-Step Approach to Buying an Exceptional 4K Monitor</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-realme-gt-5-240w-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Realme GT 5 (240W) | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-vivo-v27-pro-pin-by-drfone-android-unlock-android-unlock/"><u>How to remove Vivo V27 Pro PIN</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-top-earner-youtube-star-global-leader/"><u>In 2024, Top Earner YouTube Star - Global Leader</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-art-of-language-acquisition-through-scientifically-backed-melodies/"><u>The Art of Language Acquisition Through Scientifically Backed Melodies</u></a></li>
+</ul></div>
 

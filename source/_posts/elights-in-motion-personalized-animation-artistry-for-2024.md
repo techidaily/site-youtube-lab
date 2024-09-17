@@ -1,7 +1,7 @@
 ---
 title: "\"DIY Delights in Motion  Personalized Animation Artistry for 2024\""
-date: 2024-09-11T14:48:14.201Z
-updated: 2024-09-12T14:48:14.201Z
+date: 2024-09-13T16:19:54.115Z
+updated: 2024-09-17T17:46:35.759Z
 tags:
   - ai video
   - ai youtube
@@ -51,23 +51,9 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
@@ -75,22 +61,15 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -100,10 +79,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -127,18 +106,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/oost-engagement-and-growth-unlocking-youtube-analytics-via-social-blade/"><u>[New] Boost Engagement and Growth - Unlocking YouTube Analytics via Social Blade</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-leading-marketplaces-for-bespoke-wrapping-marvels/"><u>[New] Leading Marketplaces for Bespoke Wrapping Marvels</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-finding-your-portal-to-youtubes-video-mastery-hub/"><u>[Updated] 2024 Approved Finding Your Portal to YouTube's Video Mastery Hub</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-organize-content-streamlined-tips-for-building-your-personal-youtube-watch-later-collection/"><u>[Updated] In 2024, Organize Content Streamlined Tips for Building Your Personal YouTube Watch Later Collection</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-supercharge-videos-download-premium-effs/"><u>2024 Approved Supercharge Videos - Download Premium Effs</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/t-ratios-unveiled-your-guide-to-stellar-yt-images/"><u>Aspect Ratios Unveiled Your Guide to Stellar YT Images</u></a></li>
-<li><a href="https://driver-error.techidaily.com/1721105166381-cant-switch-bluetooth-off-my-laptop-is-frozen/"><u>Can't Switch Bluetooth OFF - My Laptop Is Frozen!</u></a></li>
-<li><a href="https://app-tips.techidaily.com/concealing-applications-a-step-by-step-guide-for-android-ios-devices/"><u>Concealing Applications: A Step-by-Step Guide for Android, iOS Devices</u></a></li>
-<li><a href="https://fox-http.techidaily.com/ice-and-elegance-the-2022-winter-olympics-in-china-for-2024/"><u>Ice & Elegance The 2022 Winter Olympics in China for 2024</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/navigating-new-gadgets-with-toms-hardware-experts/"><u>Navigating New Gadgets with Tom’s Hardware Experts</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/priority-concerns-for-second-hand-tech-enthusiasts/"><u>Priority Concerns for Second-Hand Tech Enthusiasts</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/step-by-step-guide-to-creating-virtual-space-with-iphone/"><u>Step-by-Step Guide to Creating Virtual Space with iPhone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-best-monitors-for-xbox-series-x/"><u>The Best Monitors for Xbox Series X</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-pixelgrabber-evaluation-with-vendors-offerings/"><u>[New] 2024 Approved PixelGrabber Evaluation with Vendors' Offerings</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-what-to-do-if-the-facebook-message-shows-its-you-in-this-video/"><u>[New] 2024 Approved What To Do If the Facebook Message Shows It’s You in This Video?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-best-youtube-to-webm-tools-a-compreenasive-review-and-ranking/"><u>[New] In 2024, Best YouTube-to-WebM Tools A Compreenasive Review & Ranking</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-extracting-youtube-music-three-secure-ways-without-financial-burden/"><u>[New] In 2024, Extracting YouTube Music Three Secure Ways Without Financial Burden</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/aking-the-leap-essential-video-gatherings-post-vidcon/"><u>[New] Taking the Leap Essential Video Gatherings (Post-VidCon)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-instant-tv-viewing-of-popular-facebook-feeds/"><u>[Updated] Instant TV Viewing of Popular Facebook Feeds</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-powerdirector-2024-insiders-guide-full-review-and-steps-to-mastery/"><u>[Updated] PowerDirector 2024 Insider's Guide Full Review & Steps to Mastery</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-crafting-a-viral-path-best-hashtags-for-youtube-riches/"><u>2024 Approved Crafting a Viral Path Best Hashtags for YouTube Riches</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-earning-equations-decoding-the-mathematics-behind-youtube-income-monitoring/"><u>2024 Approved Earning Equations Decoding the Mathematics Behind YouTube Income Monitoring</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unleash-high-definition-content-with-youtubes-av1-feature/"><u>2024 Approved Unleash High-Definition Content with YouTube’s AV1 Feature</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Honor X50i+? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-from-novice-to-pro-your-step-by-step-guide-to-youtube-live-images/"><u>In 2024, From Novice to Pro Your Step-by-Step Guide to YouTube Live Images</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-realme-v30-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Realme V30</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/1715701185775-integrated-recorder-functions-mate-10-20-and-p-series-p20-p10-phones/"><u>Integrated Recorder Functions Mate 10, 20 & P-Series (P20, P10) Phones.</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Infinix Hot 30 5G? | Dr.fone</u></a></li>
 </ul></div>
 

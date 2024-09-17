@@ -1,7 +1,7 @@
 ---
 title: "\"Easy Guide  Unearthing Your YouTube Compliments & Critiques for 2024\""
-date: 2024-07-13T16:40:47.817Z
-updated: 2024-07-14T16:40:47.817Z
+date: 2024-09-16T16:05:59.819Z
+updated: 2024-09-17T21:25:19.544Z
 tags:
   - ai video
   - ai youtube
@@ -77,9 +77,6 @@ Tap the **More Options** icon from the top-left corner of the browser, and then 
 
 Tap the **Menu** icon from the top-left corner of the YouTube page, and tap **History** from the menu that appears. On the **History** page, tap **Comments** from the right pane to view/access your YouTube comments that you posted in the past.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Access the Desktop Version of YouTube](https://images.wondershare.com/filmora/article-images/view-past-youtube-comments-iphone.jpg)
 
 ### 3\. Find Your YouTube Comments on an Android Smartphone
@@ -148,6 +145,13 @@ Tap the **More** button from the right of an inappropriate comment, and tap **Hi
 
 ![Find  YouTube Comments mobile](https://images.wondershare.com/filmora/article-images/find-youtube-channel-comments-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Find Someone’s YouTube Comments by User Name
 
 If any of your YouTube videos has thousands of comments and you need to find a particular one from a specific user, checking each remark manually would be an extremely time-consuming and tedious task. Therefore, it is a good idea to let an efficient application do the job for you.
@@ -170,6 +174,13 @@ Choose **Comments** from the search type drop-down list, enter the name of the u
 
 ![Serach  YouTube Comments of specific users](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How to Edit and Reply to YouTube Comments?
 
 Editing an existing YouTube comment that you have posted earlier, or replying to the one published by someone else is simple. The process is given below:
@@ -183,6 +194,19 @@ Use any of the methods explained above to locate your YouTube comment that you w
 Locate the comment that you want to reply to, click **REPLY** from under the comment, type your text in the available field, and click **REPLY**.
 
 ![Reply  YouTube Comments](https://images.wondershare.com/filmora/article-images/reply-youtube-comments.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Moderate YouTube Comments?
 
@@ -199,6 +223,26 @@ From the bottom of the navigation bar on the left of the **YouTube Studio** page
 Go to the **Community** category from the left pane, and go to the **Defaults** tab from the right. Next, choose **Hide all comments for review** from the **Comments on your new videos** drop-down list, and click **SAVE** from the bottom-right corner of the box to moderate all YouTube comments that your new videos receive from this point onward.
 
 ![set  YouTube Community Comments moderation](https://images.wondershare.com/filmora/article-images/set-up-youtube-community-comments-moderaiton.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 6: Tips for Writing Good YouTube Comments
 
@@ -230,14 +274,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -246,6 +287,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-from-flat-to-fantastic-animated-text-transformations/"><u>[New] In 2024, From Flat to Fantastic Animated Text Transformations</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-capture-lifes-moments-flawlessly-phones-with-superior-image-stabilizing-tech/"><u>[Updated] Capture Life's Moments Flawlessly Phones with Superior Image Stabilizing Tech</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-global-content-makers-conference/"><u>[Updated] In 2024, Global Content Makers' Conference</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-superior-streaming-recorders-for-youtube-vloggers/"><u>[Updated] Superior Streaming Recorders for YouTube Vloggers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-comprehensive-manual-for-effective-morphvox-voice-changes/"><u>[Updated] The Comprehensive Manual for Effective MorphVOX Voice Changes</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-understanding-video-length-and-content-strategy-in-youtube-shorts/"><u>2024 Approved Understanding Video Length and Content Strategy in YouTube Shorts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/dive-into-audacity-simple-steps-to-record-on-mac-devices/"><u>Dive Into Audacity Simple Steps to Record on Mac Devices</u></a></li>
+<li><a href="https://fox-access.techidaily.com/effortless-voice-personalization-for-competitive-players-for-2024/"><u>Effortless Voice Personalization for Competitive Players for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-climbing-the-youtube-search-rankings-key-seo-strategies-unveiled/"><u>In 2024, Climbing the YouTube Search Rankings Key SEO Strategies Unveiled</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-unveiling-types-and-methods-for-hand-detection-systems/"><u>In 2024, Unveiling Types and Methods for Hand Detection Systems</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ize-views-the-art-of-timestamp-integration-on-youtube-for-2024/"><u>Maximize Views The Art of Timestamp Integration on YouTube for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-vivo-t2x-5g-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Vivo T2x 5G</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-up-your-own-mac-based-sports-chat-space-for-2024/"><u>Setting Up Your Own Mac-Based Sports Chat Space for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/shifting-spectrum-skills-pro-tips-unveiled/"><u>Shifting Spectrum Skills - Pro Tips Unveiled</u></a></li>
+</ul></div>
 

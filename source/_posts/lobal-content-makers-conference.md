@@ -1,7 +1,7 @@
 ---
 title: "[New] Global Content Makers' Conference"
-date: 2024-07-13T16:35:48.631Z
-updated: 2024-07-14T16:35:48.631Z
+date: 2024-09-10T20:04:21.819Z
+updated: 2024-09-17T20:48:54.133Z
 tags:
   - ai video
   - ai youtube
@@ -76,17 +76,41 @@ To help them relax after long days at the summit, YouTube provided creators with
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
+
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -104,14 +128,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -120,6 +141,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-integrating-vids-on-twitter-plus-tumblr-platforms/"><u>[New] Integrating Vids on Twitter + Tumblr Platforms</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/op-ten-video-cards-selection-guide-for-youtube-aficionados/"><u>[New] Top-Ten Video Cards Selection Guide for YouTube Aficionados</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-laughing-along-to-mimicked-melodies/"><u>[Updated] In 2024, Laughing Along to Mimicked Melodies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-conversion-made-simple-learn-how-without-spending-a-dime-for-2024/"><u>[Updated] YouTube Conversion Made Simple – Learn How Without Spending a Dime for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-how-to-live-without-the-temptation-of-youtube-shorts/"><u>2024 Approved How To Live Without the Temptation of YouTube Shorts</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-ultimate-workshop-designers-app/"><u>2024 Approved Ultimate Workshop Designer's App</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unveiling-the-best-mobile-tools-to-pull-videos-from-youtube/"><u>2024 Approved Unveiling the Best Mobile Tools to Pull Videos From YouTube</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-samsung-galaxy-s23-ultra-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/effortless-intel-optane-driver-acquisition-and-upgrading-techniques-for-windows-devices/"><u>Effortless Intel Optane Driver Acquisition and Upgrading Techniques for Windows Devices</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/ghostly-replay-techniques-for-editors-for-2024/"><u>Ghostly Replay Techniques for Editors for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Xiaomi Redmi A2+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ize-video-impact-via-creator-studio-utilization-for-2024/"><u>Maximize Video Impact via Creator Studio Utilization for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-to-oppo-k11x-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Oppo K11x Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/video-grabber-tool-decompiler-for-2024/"><u>Video Grabber Tool Decompiler for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/edit-mastery-harnessing-the-power-of-jump-cuts/"><u>Vlog Edit Mastery Harnessing the Power of Jump Cuts</u></a></li>
+</ul></div>
 

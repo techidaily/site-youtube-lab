@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Quickly Create a YouTube Animation for Your Subscribe Button with Filmora"
-date: 2024-07-13T16:35:34.406Z
-updated: 2024-07-14T16:35:34.406Z
+date: 2024-09-15T17:49:38.810Z
+updated: 2024-09-17T18:09:26.793Z
 tags:
   - ai video
   - ai youtube
@@ -62,9 +62,6 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 15:** To animate the click of the cursor, move ahead a little bit into your timeline and scale down the cursor to around 70%. Move it a little further and scale it up to 100%.![subscribe-button15](https://images.wondershare.com/filmora/article-images/subs-button15.png)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 16:** You can add the sound of mouse click to make it more realistic. You can find this sound anywhere on the internet. Download it and import it into Filmora. Now place it into the timeline where it can match the movement of the cursor.![subscribe-button16](https://images.wondershare.com/filmora/article-images/subs-button16.png)
 
 **Step 17:** Now it's time to make this subscribe animation button disappear. Move forward into the time to the end, at around 4 seconds. Double click on the red button in the timeline and add a key frame at its actual scale.![subscribe-button17](https://images.wondershare.com/filmora/article-images/subs-button17.png)
@@ -91,14 +88,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -107,6 +101,30 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-ace-your-project-advanced-srt-tweaks-on-a-mac/"><u>[New] In 2024, Ace Your Project Advanced SRT Tweaks on a Mac</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-unparalleled-asmr-channel-selection/"><u>[New] In 2024, Unparalleled ASMR Channel Selection</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/eamless-streaming-screen-record-and-upload-from-macpc/"><u>[New] Seamless Streaming Screen Record & Upload From Mac/PC</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-navigate-youtube-gaming-success-with-right-tags/"><u>[Updated] 2024 Approved Navigate YouTube Gaming Success with Right Tags</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-navigating-online-marketplaces-for-yt-channel-sales/"><u>[Updated] 2024 Approved Navigating Online Marketplaces for YT Channel Sales</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-tap-into-endless-stock-imagery-through-favorite-4-youtube-vids/"><u>[Updated] In 2024, Tap Into Endless Stock Imagery Through Favorite 4 Youtube Vids</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-monthly-income-for-content-creators-on-youtube-in-2024/"><u>[Updated] Monthly Income for Content Creators on YouTube, In 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-the-hidden-world-of-your-online-footprint-unveiling-facebooks-secrets/"><u>2024 Approved The Hidden World of Your Online Footprint - Unveiling Facebook’s Secrets</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/a-guide-to-the-best-headsets-and-goggles-in-metaverse/"><u>A Guide to the Best Headsets and Goggles in Metaverse</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-in-ar-games-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>How to Simulate GPS Movement in AR games On Vivo Y100i Power 5G? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-pro-max-to-androidios-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 Pro Max To Android/iOS? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-aural-adventures-discovering-the-top-15-instructional-music-videos/"><u>In 2024, Aural Adventures Discovering the Top 15 Instructional Music Videos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-asus-rog-phone-8-pro-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Asus ROG Phone 8 Pro to Mac? | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-issues-with-windows-11-spotlight-display-problems/"><u>Resolving Issues with Windows 11 Spotlight Display Problems</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/troubleshooting-elevated-processor-load-from-antimalware-service-executable-on-win11-and-win10-systems/"><u>Troubleshooting Elevated Processor Load From 'Antimalware Service Executable' On Win11 & Win10 Systems</u></a></li>
+<li><a href="https://facebook.techidaily.com/whatsapp-as-a-gateway-for-instagrams-2fa-messages/"><u>WhatsApp as a Gateway for Instagram's 2FA Messages</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

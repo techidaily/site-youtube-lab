@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Taking the Leap  Essential Video Gatherings (Post-VidCon)\""
-date: 2024-09-11T14:51:11.693Z
-updated: 2024-09-12T14:51:11.693Z
+date: 2024-09-11T16:25:52.811Z
+updated: 2024-09-17T21:31:36.836Z
 tags:
   - ai video
   - ai youtube
@@ -42,19 +42,6 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 1. **[VidCon](http://vidcon.com/)**
 
 **VidCon US:** June (Anaheim, California)
@@ -64,13 +51,6 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -134,13 +114,6 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -165,13 +138,6 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
 #### 5. **[RTX](https://www.rtxaustin.com/)**
@@ -183,13 +149,6 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -228,13 +187,6 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 **London, UK:** August
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
@@ -281,20 +233,25 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-arsenal-of-skills-the-finest-7-fps-selections/"><u>[New] 2024 Approved Arsenal of Skills The Finest 7 FPS Selections</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-instant-techniques-mix-up-your-youtube-watchlist/"><u>[New] 2024 Approved Instant Techniques Mix Up Your YouTube Watchlist</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/he-leading-7-android-apps-to-cut-out-intrusive-ads-for-2024/"><u>[New] The Leading 7 Android Apps to Cut Out Intrusive Ads for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-gamings-finest-top-10-gpu-picks-for-clear-online-broadcasts/"><u>[Updated] 2024 Approved Gaming's Finest Top 10 GPU Picks for Clear Online Broadcasts</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-6-youtuber-quizzes-to-know-what-type-of-youtuber-you-are/"><u>[Updated] 6 YouTuber Quizzes to Know What Type of YouTuber You Are</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-beginners-companion-swift-iphone-screen-recording/"><u>[Updated] Beginner's Companion Swift Iphone Screen Recording</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-youtube-visuals-perfecting-banners-and-thumbnails/"><u>[Updated] In 2024, YouTube Visuals Perfecting Banners and Thumbnails</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/a-guide-to-fixing-the-mapi3error-when-not-found/"><u>A Guide to Fixing the Mapi3#Error When Not Found</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Realme 12 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/o-upload-shorts-video-on-youtube-for-2024/"><u>How to Upload Shorts Video on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-ultimate-streaming-hits-for-movie-lovers/"><u>In 2024, Ultimate Streaming Hits for Movie Lovers</u></a></li>
-<li><a href="https://win-blog.techidaily.com/mastering-the-maintenance-of-your-gaming-experience-avoiding-crashes-in-forza-horizon-5-on-windows-machines/"><u>Mastering the Maintenance of Your Gaming Experience: Avoiding Crashes in Forza Horizon 5 on Windows Machines</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-filmora-free-trial-vs-torrent-which-one-is-safe-and-legit/"><u>New 2024 Approved Filmora Free Trial vs Torrent Which One Is Safe and Legit?</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/uture-of-development-understanding-the-impact-of-next-gen-frameworks/"><u>The Future of Development Understanding the Impact of Next-Gen Frameworks</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/trouble-hearing-sound-in-your-presentation-expert-tips-to-resolve-powerpoint-audio-issues/"><u>Trouble Hearing Sound in Your Presentation? Expert Tips to Resolve PowerPoint Audio Issues</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-analysis-of-the-latest-video-show-app-24-release/"><u>[New] Expert Analysis of the Latest Video Show App '24 Release</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-preserving-the-past-in-motion-photo-to-video-transition/"><u>[New] Preserving the Past in Motion Photo to Video Transition</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/op-ten-video-cards-selection-guide-for-youtube-aficionados/"><u>[New] Top-Ten Video Cards Selection Guide for YouTube Aficionados</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-ultimate-choice-the-10-free-cross-platform-video-calling-tools/"><u>[Updated] 2024 Approved Ultimate Choice The 10 Free, Cross-Platform Video Calling Tools</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-the-ultimate-6-mac-methods-for-recording-live-tv-shows-like-netflix-for-2024/"><u>[Updated] The Ultimate 6 Mac Methods for Recording Live TV Shows Like Netflix for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-conversion-made-simple-learn-how-without-spending-a-dime-for-2024/"><u>[Updated] YouTube Conversion Made Simple – Learn How Without Spending a Dime for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-how-to-live-without-the-temptation-of-youtube-shorts/"><u>2024 Approved How To Live Without the Temptation of YouTube Shorts</u></a></li>
+<li><a href="https://win11.techidaily.com/boosting-productivity-with-customized-windows-cmd/"><u>Boosting Productivity with Customized Windows Cmd</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-poco-c55-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Poco C55</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/your-perfect-vlog-title-best-free-name-generators/"><u>Find Your Perfect Vlog Title - Best Free Name Generators</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-do-ai-chatbots-work-and-the-reason-for-their-widespread-appeal/"><u>How Do AI Chatbots Work & The Reason for Their Widespread Appeal</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ize-video-impact-via-creator-studio-utilization-for-2024/"><u>Maximize Video Impact via Creator Studio Utilization for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/edit-mastery-harnessing-the-power-of-jump-cuts/"><u>Vlog Edit Mastery Harnessing the Power of Jump Cuts</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

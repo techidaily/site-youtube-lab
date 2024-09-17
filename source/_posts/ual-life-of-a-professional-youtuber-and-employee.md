@@ -1,7 +1,7 @@
 ---
 title: "The Dual Life of a Professional YouTuber & Employee"
-date: 2024-09-11T14:53:12.615Z
-updated: 2024-09-12T14:53:12.615Z
+date: 2024-09-14T16:59:52.174Z
+updated: 2024-09-17T21:53:00.599Z
 tags:
   - ai video
   - ai youtube
@@ -51,29 +51,9 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3. Check the weather forecast in advance
 
@@ -84,10 +64,10 @@ When starting a YouTube channel, many YouTubers like myself don’t have the mon
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
@@ -95,13 +75,6 @@ This week I am on PTO (paid time off) which has given me a lot more time to film
 In the event that life gets too crazy, it’s perfectly fine to do just audio. Many of us are always on the go which means it’s the perfect time to listen to great advice while driving to work, waiting on the bus, or working at the gym. Someone out there would love to hear your advice. I started to do this with my Tea Time Talk Audios and the response was great.
 
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Make a YouTube Video with Wondershare Filmora
 
@@ -111,20 +84,13 @@ Just try it and create your own YouTube video!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -148,18 +114,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/est-alternative-top-10-flv-to-youtube-converter-apps-for-2024/"><u>[New] Best Alternative Top 10 FLV to YouTube Converter Apps for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nstant-influence-youtubes-hourly-video-tops/"><u>[New] Instant Influence Youtube's Hourly Video Tops</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-optimal-webcams-enhancing-audio-experience/"><u>[New] Optimal Webcams Enhancing Audio Experience</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-optimizing-podcast-visibility-via-instagram-channels/"><u>[New] Optimizing Podcast Visibility via Instagram Channels</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-acoustic-mastery-secrets-for-exceptional-audio-capture/"><u>[Updated] 2024 Approved Acoustic Mastery Secrets for Exceptional Audio Capture</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-elevate-your-youtube-shorts-top-10-strategies-for-uniqueness/"><u>2024 Approved Elevate Your YouTube Shorts Top 10 Strategies for Uniqueness</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-filming-made-easy-selecting-the-right-audio-devices/"><u>2024 Approved Filming Made Easy Selecting the Right Audio Devices</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Vivo V29 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-streamlining-sound-systems-uploads-for-your-youtube-hub/"><u>In 2024, Streamlining Sound Systems Uploads for Your Youtube Hub</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-asus-rog-phone-7-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Asus ROG Phone 7 | Dr.fone</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/in-depth-amazon-fire-hd-10-kids-tablet-evaluation-top-features-and-parent-friendly-settings/"><u>In-Depth Amazon Fire HD 10 Kid's Tablet Evaluation: Top Features and Parent-Friendly Settings</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/should-i-switch-from-iphone-to-google-pixel-drfone-by-drfone-transfer-from-ios/"><u>Should I Switch From iPhone To Google Pixel? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-from-pixels-to-popularity-crafting-engaging-youtube-thumbnails/"><u>[New] In 2024, From Pixels to Popularity Crafting Engaging YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-youtube-footage-enhancement-without-borders/"><u>[New] In 2024, YouTube Footage Enhancement Without Borders</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-live-from-the-cloud-effective-dji-drone-broadcasting-tips/"><u>[Updated] Live From the Cloud Effective DJI Drone Broadcasting Tips</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-maximize-your-laptops-dvd-potential-easily/"><u>[Updated] Maximize Your Laptop's DVD Potential Easily</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-scholarstreams-essential-educational-youtube-sites-for-2024/"><u>[Updated] ScholarStreams Essential Educational YouTube Sites for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-save-big-top-6-inexpensive-action-cams-under-100-deals/"><u>2024 Approved Save Big Top 6 Inexpensive Action Cams Under $100 Deals</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/5-premier-racer-simulators-that-captivate-you-for-2024/"><u>5 Premier Racer Simulators That Captivate You for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-realme-narzo-60-5g-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Realme Narzo 60 5G to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/evaluating-the-cost-effective-lg-49-um7300-a-comprehensive-budget-4k-tv-review/"><u>Evaluating the Cost-Effective LG 49 UM7300: A Comprehensive Budget 4K TV Review</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-earning-potential-steps-to-join-the-youtube-premium-club/"><u>In 2024, Earning Potential Steps to Join the YouTube Premium Club</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/quality-matters-the-advantages-and-disadvantages-of-different-fps/"><u>Quality Matters The Advantages & Disadvantages of Different FPS</u></a></li>
 </ul></div>
 

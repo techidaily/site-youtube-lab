@@ -1,7 +1,7 @@
 ---
 title: "Thriving Despite Cyberbullying and Scathing Feedback"
-date: 2024-07-13T16:42:35.518Z
-updated: 2024-07-14T16:42:35.518Z
+date: 2024-09-11T17:44:46.767Z
+updated: 2024-09-17T17:21:57.741Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,9 +52,6 @@ thumbnail: https://thmb.techidaily.com/a488fef564f5e308e5c3875f24f2cb9db2970eba8
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -69,14 +60,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,6 +73,33 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-essential-insights-into-hands-free-interaction/"><u>[New] In 2024, Essential Insights Into Hands-Free Interaction</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-organizing-epics-implementing-chapters-in-vimeo-media/"><u>[New] Organizing Epics Implementing Chapters in Vimeo Media</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-facebook-video-presentation-boost-adding-bb-and-lc-frameworks-for-2024/"><u>[Updated] Facebook Video Presentation Boost Adding BB and LC Frameworks for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-highest-ranking-youtube-tracker-for-popular-video-insight/"><u>[Updated] Highest-Ranking YouTube Tracker for Popular Video Insight</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-audience-expansion-strategies-that-honor-youtube-standards/"><u>[Updated] In 2024, Audience Expansion Strategies That Honor YouTube Standards</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-youtubes-highest-income-stream-successors/"><u>[Updated] In 2024, YouTube's Highest Income Stream Successors</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-insider-tips-for-getting-the-most-out-of-youtube-tv-for-2024/"><u>[Updated] Insider Tips for Getting the Most Out of YouTube TV for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-windows-snapshot-simplified-2-methods/"><u>[Updated] Windows Snapshot Simplified (2 Methods)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-basic-steps-to-hassle-free-high-dynamic-range-hdr/"><u>2024 Approved Basic Steps to Hassle-Free High Dynamic Range (HDR)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-highest-rated-smartphone-camera-and-recording-apps-iphone-vs-android/"><u>2024 Approved Highest Rated Smartphone Camera & Recording Apps IPhone vs Android</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-harmonizing-tracks-in-youtube-music/"><u>In 2024, Harmonizing Tracks in YouTube Music</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/proven-techniques-to-convert-and-download-pinterest-video-audio-for-2024/"><u>Proven Techniques to Convert and Download Pinterest Video Audio for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Huawei P60? | Dr.fone</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

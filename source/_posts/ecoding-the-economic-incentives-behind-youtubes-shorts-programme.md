@@ -1,7 +1,7 @@
 ---
 title: "[New] Decoding the Economic Incentives Behind YouTube's Shorts Programme"
-date: 2024-07-13T16:41:25.593Z
-updated: 2024-07-14T16:41:25.593Z
+date: 2024-09-12T18:31:41.236Z
+updated: 2024-09-17T19:59:32.498Z
 tags:
   - ai video
   - ai youtube
@@ -26,9 +26,6 @@ YouTube offers content creators a platform for creating a lucrative career. Of t
 
 YouTube launched YouTube Shorts Funds in 2021 to financially support creators who produce engaging and popular Shorts content. The monetization scheme would distribute $100 million to high-performing creators on the platform. The creators would receive high engagement and views from their Shorts for funding.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube shorts fund](https://images.wondershare.com/filmora/article-images/2023/everything-you-need-to-know-about-the-youtube-shorts-fund-1.jpeg)
 
 The main objective of the YouTube Shorts fund is to encourage creativity, diversity, and innovation in Shorts content creation. The fund operated between 2021 and 2022\. It lets creators earn $100 - $10,000 a month for their content.
@@ -68,6 +65,13 @@ To become a member of the YPP and start accessing Shorts funding this way, the m
 * At least 500 subscribers (You previously needed 1,000)
 * At least 3,000 public watch hours over the last 13 months (You previously needed 4,000)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Additional Steps of Actions to Activate YouTube Shorts Funding**
 
 In addition to the basic eligibility requirements, creators are also required to take additional measures to comply with YouTube’s requirements. Additional steps include:
@@ -84,6 +88,13 @@ The YPP Shorts Fund program includes the following features:
 * **Watch Page Monetization** – Creators earn ad revenue from long-form content, YouTube Premium content, and live streams
 * **Shorts Monetization Module** – Creators earn money from ads that play between YouTube Shorts.
 * **Commerce Product Addendum** – Additional monetization features, including Super Chats. Channel Memberships, Super Thanks, and Super Stickers.
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **How Much Can You Make with Short** **s**
 
@@ -112,9 +123,23 @@ The best way to earn from the YouTube Shorts Fund is to create quality content. 
 
 Filmora can help create visually appealing and engaging videos, ultimately increasing the chances of monetization on YouTube. The following features make editing videos on Filmora quick and easy.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. **Auto Reframe**
 
 You may have recorded horizontal videos and want to upload them as Shorts. The Auto Reframe feature allows you to automatically resize the video in seconds. You only need to choose the clip you want to resize and reframe it. No editing skills are required to do this.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. **Add Text to Video**
 
@@ -140,14 +165,24 @@ The YouTube Shorts Fund offers an exceptional for creators to make additional in
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -156,6 +191,22 @@ The YouTube Shorts Fund offers an exceptional for creators to make additional in
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-audience-alchemy-converting-shorts-to-sensations-for-2024/"><u>[New] Audience Alchemy Converting Shorts to Sensations for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-nine-all-inclusive-free-holiday-movies-streamed-on-youtube/"><u>[New] In 2024, Nine All-Inclusive Free Holiday Movies Streamed on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/avigating-the-path-to-youtube-video-co-creation-and-partnerships-for-2024/"><u>[New] Navigating the Path to YouTube Video Co-Creation & Partnerships for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-fumbling-clips-to-viral-videos-youtube-edits-made-easy-with-sony-vegas/"><u>[Updated] 2024 Approved From Fumbling Clips to Viral Videos YouTube Edits Made Easy with Sony Vegas</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-apex-design-suite-assessment-for-2024/"><u>[Updated] Apex Design Suite Assessment for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-dji-aerial-palette-changes-get-20-free-with-pay-options-available-for-2024/"><u>[Updated] DJI Aerial Palette Changes - Get 20 FREE with Pay Options Available for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-eliminating-robotic-ratings-to-grow-views/"><u>[Updated] Eliminating Robotic Ratings to Grow Views</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-enabledisable-comments-a-youtube-instructional-for-2024/"><u>[Updated] Enable/Disable Comments A YouTube Instructional for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-stand-out-in-the-stream-top-name-generators-reviewed-for-2024/"><u>[Updated] Stand Out in the Stream Top Name Generators Reviewed for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/converti-il-tuo-video-wmv-al-formato-swf-con-la-guida-e-le-risorse-online-di-movavi-gratuito/"><u>Converti Il Tuo Video WMV Al Formato SWF Con La Guida E Le Risorse Online Di Movavi - Gratuito</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/creating-stunning-hdr-portraits-step-by-step/"><u>Creating Stunning HDR Portraits Step-by-Step</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>How to Fake Snapchat Location on Apple iPhone 12 Pro | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/turning-off-instagrams-igtv-in-a-nutshell/"><u>Turning Off Instagram's IGTV in a Nutshell</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ical-wonders-in-musical-worlds/"><u>Whimsical Wonders in Musical Worlds</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/be-to-gif-a-simple-no-download-guide-for-video-creators-for-2024/"><u>YouTube-to-GIF A Simple, No-Download Guide for Video Creators for 2024</u></a></li>
+</ul></div>
 

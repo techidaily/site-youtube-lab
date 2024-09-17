@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, How to Illuminate  A Guide to Great Vlog Images\""
-date: 2024-07-13T16:37:22.091Z
-updated: 2024-07-14T16:37:22.091Z
+date: 2024-09-16T17:34:11.699Z
+updated: 2024-09-17T20:38:05.080Z
 tags:
   - ai video
   - ai youtube
@@ -30,9 +30,6 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ## Video Lighting Basics: Three Point Lighting
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -49,9 +46,6 @@ The final step to creating three point lighting is to set up another light behin
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -82,9 +76,6 @@ If your strong main light is too hard on your eyes then you can use a translucen
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -99,14 +90,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -115,6 +103,25 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ecoding-youtubes-clandestine-content-with-orderliness/"><u>[New] Decoding YouTube's Clandestine Content with Orderliness</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-professional-video-editors-showdown-filmora-versus-democracy-creator/"><u>[New] In 2024, Professional Video Editors Showdown Filmora Versus Democracy Creator</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-parody-basics-tips-for-entertaining-mocks/"><u>[Updated] 2024 Approved Parody Basics Tips for Entertaining Mocks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-top-facts-in-the-asmr-world/"><u>[Updated] Top Facts in the ASMR World</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/44cm44or44k944kz44oz5lik44gn5qw95puy44gu44kr44od44oi44go44ge44gg5oqa6kgt44cn/"><u>「パソコン上で楽曲のカットという技術」</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-secure-sharpening-hiding-unwanted-details/"><u>2024 Approved Secure Sharpening Hiding Unwanted Details</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ual-hook-creating-captivating-youtube-thumbnails-to-drive-traffic/"><u>A Visual Hook Creating Captivating YouTube Thumbnails to Drive Traffic</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Huawei Nova Y91 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-zte-axon-40-lite-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, ZTE Axon 40 Lite ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/secret-strategies-to-protect-your-chatgpt-interactions-from-prying-eyes/"><u>Secret Strategies to Protect Your ChatGPT Interactions From Prying Eyes</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-on-iphone-7-plus-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock on iPhone 7 Plus</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

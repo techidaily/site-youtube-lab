@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Enable/Disable Comments  A YouTube Instructional\""
-date: 2024-07-13T16:39:45.851Z
-updated: 2024-07-14T16:39:45.851Z
+date: 2024-09-10T19:24:54.575Z
+updated: 2024-09-17T18:37:09.663Z
 tags:
   - ai video
   - ai youtube
@@ -56,9 +56,6 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ![Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 #### 2\. Define Acceptable Comment Types
@@ -151,14 +148,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -167,6 +161,29 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-elevating-your-channels-identity-with-titles/"><u>[New] 2024 Approved Elevating Your Channel's Identity with Titles</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-how-to-record-your-favorite-youtube-show-regardless-of-your-gear-for-2024/"><u>[New] How to Record Your Favorite YouTube Show, Regardless of Your Gear for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-unlocking-monetization-potential-the-modern-creators-manual-for-mobile/"><u>[New] In 2024, Unlocking Monetization Potential The Modern Creator’s Manual for Mobile</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-revolutionize-your-gaming-by-recording-on-win10-for-2024/"><u>[New] Revolutionize Your Gaming by Recording on Win10 for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-15-premium-free-music-websites-every-videographer-needs-for-2024/"><u>[Updated] 15 Premium, Free Music Websites Every Videographer Needs for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-mastering-slow-motion-instagram-a-reel-guide/"><u>[Updated] Mastering Slow-Motion Instagram A Reel Guide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-uniting-realms-a-comparative-study-of-mr-ar-and-vr-technologies/"><u>[Updated] Uniting Realms A Comparative Study of MR, AR, and VR Technologies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-shorts-vs-tiktok-which-one-is-better-for-short-videos-for-2024/"><u>[Updated] YouTube Shorts Vs. TikTok Which One Is Better for Short Videos for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-enhancing-virtual-meeting-clarity-with-zoom-focus/"><u>2024 Approved Enhancing Virtual Meeting Clarity with Zoom Focus</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-pushing-boundaries-with-innovative-vsco-techniques/"><u>2024 Approved Pushing Boundaries with Innovative VSCO Techniques</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/capture-every-click-with-spring-screen-recorder/"><u>Capture Every Click with Spring Screen Recorder</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ssing-the-benefits-with-creative-commons-licenses-for-2024/"><u>Harnessing the Benefits with Creative Commons Licenses for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-best-days-to-unveil-a-podcast-series/"><u>In 2024, Best Days to Unveil a Podcast Series</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/aging-youtube-top-5-digital-strategies-for-brand-success-for-2024/"><u>Leveraging YouTube Top 5 Digital Strategies for Brand Success for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/be-to-igtv-migration-step-by-step-guide/"><u>YouTube-to-IGTV Migration Step-by-Step Guide</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

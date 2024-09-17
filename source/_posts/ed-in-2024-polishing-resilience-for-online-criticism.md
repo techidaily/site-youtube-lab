@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Polishing Resilience for Online Criticism"
-date: 2024-07-13T16:39:47.998Z
-updated: 2024-07-14T16:39:47.998Z
+date: 2024-09-10T21:43:22.071Z
+updated: 2024-09-17T18:38:44.495Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/2f5a7138163b464da142425b5cd4fc9ef8759bb93
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -29,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/2f5a7138163b464da142425b5cd4fc9ef8759bb93
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,9 +52,6 @@ thumbnail: https://thmb.techidaily.com/2f5a7138163b464da142425b5cd4fc9ef8759bb93
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -69,14 +60,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,6 +73,27 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/dding-a-digital-clock-to-your-youtube-video-playback/"><u>[New] Adding a Digital Clock to Your YouTube Video Playback</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rafting-success-on-youtube-standard-studio-or-beta-for-2024/"><u>[New] Crafting Success on YouTube Standard Studio or Beta for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-ultimate-how-to-for-your-youtube-music-collection/"><u>[New] In 2024, The Ultimate How-To for Your YouTube Music Collection</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-a-complete-guide-to-youtubes-live-image-lore/"><u>[Updated] 2024 Approved A Complete Guide to YouTube's Live Image Lore</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-lecture-audio-recording-techniques-for-mac-users/"><u>[Updated] In 2024, Lecture Audio Recording Techniques for Mac Users</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ver-10-swift-growing-youtube-sources-for-inspiration/"><u>Discover 10 Swift-Growing YouTube Sources for Inspiration</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/full-guide-on-mirroring-your-tecno-spark-20-to-your-pcmac-drfone-by-drfone-android/"><u>Full Guide on Mirroring Your Tecno Spark 20 to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-lava-blaze-2-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Lava Blaze 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ative-approaches-to-youtube-teaser-trailblazing-for-2024/"><u>Innovative Approaches to YouTube Teaser Trailblazing for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/izing-returns-15-top-stock-market-vids-for-2024/"><u>Maximizing Returns 15 Top Stock Market Vids for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-face-off-the-best-face-swap-apps-for-iphone-and-android-for-2024/"><u>New Face Off The Best Face Swap Apps for iPhone and Android for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-list-of-top-11-ios-data-handling-apps-beyond-apples-itunes/"><u>The Ultimate List of Top 11 iOS Data Handling Apps, Beyond Apple's iTunes</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/wireless-printing-mastery-setup-and-software-download-guide-for-brother-printers/"><u>Wireless Printing Mastery - Setup & Software Download Guide for Brother Printers</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, What to Do When YouTube Shorts Thumbnails Fail to Appear?"
-date: 2024-07-13T16:35:38.806Z
-updated: 2024-07-14T16:35:38.806Z
+date: 2024-09-13T17:58:26.398Z
+updated: 2024-09-17T18:23:38.666Z
 tags:
   - ai video
   - ai youtube
@@ -103,6 +103,19 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![shorts tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-1.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Pause the video.
 
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
@@ -129,6 +142,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![library tab on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-3.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Scroll down to find "Liked Videos." Click on it.
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
@@ -138,8 +158,12 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Unfortunately, custom thumbnails not showing on Shorts does not have a fix yet. So to attract viewers, you must leverage the things in your control. You must title your videos in a way that will make users click the video. Also, adding effects and filters on the video using an editor like Wondershare Filmora can help.
@@ -149,6 +173,13 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 ![filmora mobile feature showcase](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-filmora.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The best thing is that you don't need to transfer the video from your phone to your computer and back. Wondershare Filmora is available on mobile. And it's one of the best tools for enhancing a short-form video.
 
@@ -184,6 +215,19 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
@@ -224,8 +268,6 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -233,6 +275,22 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-boutonniere-bookmarks-casino-critique/"><u>[New] BOUTONNIERE BOOKMARKS Casino Critique</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-from-flat-to-fantastic-animated-text-transformations/"><u>[New] In 2024, From Flat to Fantastic Animated Text Transformations</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-follower-shedding-insight-for-2024/"><u>[New] Instagram Follower Shedding Insight for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-global-content-makers-conference/"><u>[Updated] In 2024, Global Content Makers' Conference</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unpacking-the-power-of-engaging-titles-for-youtube-shorts-for-2024/"><u>[Updated] Unpacking the Power of Engaging Titles for YouTube Shorts for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/avoiding-device-naming-disputes-on-your-computer-network/"><u>Avoiding Device Naming Disputes on Your Computer Network</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/comprehensive-tutorial-using-stellar-repair-to-revitalize-your-images-in-photo-8-windows/"><u>Comprehensive Tutorial: Using Stellar Repair to Revitalize Your Images in Photo 8 (Windows)</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/disabling-iphones-emergency-broadcast-notifications/"><u>Disabling iPhone's Emergency Broadcast Notifications</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elevate-image-and-video-output-on-the-fly-with-luts/"><u>Elevate Image & Video Output on the Fly with LUTs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-exploring-streaming-options-vimeo-vs-youtubes-popularity/"><u>In 2024, Exploring Streaming Options Vimeo vs YouTube's Popularity</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-vivo-y36i-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Vivo Y36i Screen | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/mastering-the-art-of-screen-recording-best-software-guide-for-2024/"><u>Mastering the Art of Screen Recording Best Software Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/izing-hit-rates-with-youtubes-best-thumbnail-strategies/"><u>Maximizing Hit Rates with YouTube's Best Thumbnail Strategies</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/revive-your-entertainment-hub-repair-steps-for-malfunctioning-samsung-blu-ray-units/"><u>Revive Your Entertainment Hub: Repair Steps for Malfunctioning Samsung Blu-Ray Units</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-up-your-own-mac-based-sports-chat-space-for-2024/"><u>Setting Up Your Own Mac-Based Sports Chat Space for 2024</u></a></li>
+</ul></div>
 

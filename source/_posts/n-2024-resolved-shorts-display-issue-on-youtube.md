@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Resolved  Shorts Display Issue on YouTube\""
-date: 2024-07-13T16:37:34.049Z
-updated: 2024-07-14T16:37:34.049Z
+date: 2024-09-15T18:00:26.286Z
+updated: 2024-09-17T17:50:33.602Z
 tags:
   - ai video
   - ai youtube
@@ -117,6 +117,19 @@ Once uploaded, the YouTube Shorts will be displayed in a vertical thumbnail on Y
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Bonus Tip: How to Easily Create Vertical Videos for YouTube Shorts on PC
 
 The YouTube Shorts app is pretty convenient to use nowadays. However, it doesn't allow you to fine-edit the videos if you've explored the app or specifically when you want your videos to look more professional. The app doesn't even have many filtering options, such as Effects, Elements, etc., to make your videos more interactive.
@@ -126,6 +139,13 @@ With that said, you can always use an efficient third-party program like [**Wond
 We recommend Wondershare Filmora because it is a production and post-production app available for Windows and Mac computers. It gives tough competition to some globally renowned tools like Final Cut Pro X, Adobe Premiere Pro, etc., because of its simplicity. Furthermore, Filmora has its inbuilt screen, voice recording features, and webcam that can be useful to create game walkthroughs, interactive videos, and voiceovers as needed.
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Moreover, a YouTube Shorts video can be made through Wondershare Filmora using the below-mentioned guide.
 
@@ -147,15 +167,32 @@ You can choose among three ways to open the Auto Reframe feature in Filmora.
 
 ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
 ![filmora](https://images.wondershare.com/filmora/guide/2-auto-reframe-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * **Way 3:** Lastly, you can choose the **Tools** option on the top menu bar and hit the **Auto Reframe**.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/guide/3-auto-reframe-tools.jpg)
 
 **Step 2\. Adjust the Aspect Ratio and Motion Speed**
@@ -165,6 +202,13 @@ A separate dialog box will display once you have selected the **Auto Reframe** o
 There are multiple aspect ratio templates available such as square (1:1), vertical (9:16), standard (4:3), widescreen (16:9), and cinema (21:9). As you are making YouTube Shorts, so you need to select **9:16**.
 
 ![filmora](https://images.wondershare.com/filmora/guide/4-select-reframing-aspect-ratio.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can adjust the speed of your video in multiple options: keep it at **Auto** or make it **Slow** or **Fast** as per your requirements.
 
@@ -234,14 +278,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -250,6 +291,23 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/op-ten-video-cards-selection-guide-for-youtube-aficionados/"><u>[New] Top-Ten Video Cards Selection Guide for YouTube Aficionados</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-conversion-made-simple-learn-how-without-spending-a-dime-for-2024/"><u>[Updated] YouTube Conversion Made Simple – Learn How Without Spending a Dime for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-how-to-live-without-the-temptation-of-youtube-shorts/"><u>2024 Approved How To Live Without the Temptation of YouTube Shorts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-jokejigsaw-creator-humor-graphic-tool/"><u>2024 Approved JokeJigsaw Creator Humor Graphic Tool</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unveiling-the-best-mobile-tools-to-pull-videos-from-youtube/"><u>2024 Approved Unveiling the Best Mobile Tools to Pull Videos From YouTube</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/cookiebot-driven-solutions/"><u>Cookiebot-Driven Solutions</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/decoding-srt-a-detailed-guide-for-file-format-conversions/"><u>Decoding SRT A Detailed Guide for File Format Conversions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/your-perfect-vlog-title-best-free-name-generators/"><u>Find Your Perfect Vlog Title - Best Free Name Generators</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/gemini-or-chatgpt-plus-which-ai-suits-your-needs-best/"><u>Gemini or ChatGPT Plus: Which AI Suits Your Needs Best?</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-vivo-y36-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Vivo Y36 without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/launch-problems-in-pathfinder-wrath-of-the-righteous-quick-solutions-inside/"><u>Launch Problems in Pathfinder: Wrath of the Righteous - Quick Solutions Inside</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ize-video-impact-via-creator-studio-utilization-for-2024/"><u>Maximize Video Impact via Creator Studio Utilization for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-nubia-z50s-pro-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Nubia Z50S Pro Location | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/twitch-time-reversal-17-methods-to-master-your-live-stream-for-2024/"><u>Twitch Time Reversal 17 Methods to Master Your Live Stream for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/edit-mastery-harnessing-the-power-of-jump-cuts/"><u>Vlog Edit Mastery Harnessing the Power of Jump Cuts</u></a></li>
+</ul></div>
 

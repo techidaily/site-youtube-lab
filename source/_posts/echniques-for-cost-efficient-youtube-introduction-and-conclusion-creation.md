@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Techniques for Cost-Efficient YouTube Introduction & Conclusion Creation\""
-date: 2024-07-13T16:37:57.400Z
-updated: 2024-07-14T16:37:57.400Z
+date: 2024-09-16T17:14:35.648Z
+updated: 2024-09-17T22:02:57.663Z
 tags:
   - ai video
   - ai youtube
@@ -40,9 +40,6 @@ thumbnail: https://thmb.techidaily.com/276d97c36ad2008d7cfbd98152b79e1acd5c5f1c2
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -69,9 +66,6 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -83,18 +77,6 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -136,14 +118,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -152,6 +131,25 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-prime-9-options-to-capture-high-quality-audio-remotely-23/"><u>[New] Prime 9 Options to Capture High-Quality Audio Remotely ('23)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-breaking-down-the-system-behind-highlighted-video-comments-for-2024/"><u>[Updated] Breaking Down the System Behind Highlighted Video Comments for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-compreeved-tips-on-using-vlcs-video-tools-for-2024/"><u>[Updated] Compreeved Tips on Using VLC's Video Tools for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-deceptions-toll-consequences-of-fake-supporters-in-video-markets/"><u>[Updated] In 2024, Deception's Toll Consequences of Fake Supporters in Video Markets</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-exclusive-guide-choosing-among-top-9-free-logo-creators/"><u>[Updated] In 2024, Exclusive Guide Choosing Among Top 9 Free Logo Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-from-storyboard-to-screenplay-a-youtube-video-writers-journey/"><u>2024 Approved From Storyboard to Screenplay A YouTube Video Writer's Journey</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/conversion-sans-frais-convertissez-vos-images-webp-en-format-png-avec-movavi-online-converter/"><u>Conversion Sans Frais : Convertissez Vos Images WEBP en Format PNG Avec Movavi Online Converter</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-hp-sound-card-drivers-free-fast-and-simple-installation-guide/"><u>Download HP Sound Card Drivers FREE: Fast and Simple Installation Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-from-live-to-recorded-using-obs-for-games/"><u>In 2024, From Live to Recorded Using OBS for Games</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-year-new-verbal-horizon/"><u>New Year, New Verbal Horizon</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/le-sounds-standout-background-scores-for-yt-shorts/"><u>Sparkle Sounds Standout Background Scores For YT Shorts</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

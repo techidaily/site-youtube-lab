@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Navigating Online Hostility on Video Platforms\""
-date: 2024-09-11T14:50:32.732Z
-updated: 2024-09-12T14:50:32.732Z
+date: 2024-09-14T19:32:27.235Z
+updated: 2024-09-17T17:48:35.985Z
 tags:
   - ai video
   - ai youtube
@@ -25,13 +25,6 @@ thumbnail: https://thmb.techidaily.com/4e90942cb4f7cac0b8179c9a85473a89372090550
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -61,19 +54,6 @@ thumbnail: https://thmb.techidaily.com/4e90942cb4f7cac0b8179c9a85473a89372090550
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -95,18 +75,27 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-elevate-your-tech-game-master-the-craft-of-screen-recordings-in-macos/"><u>[New] Elevate Your Tech Game Master the Craft of Screen Recordings in macOS</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-the-storyline-secret-to-youtube-triumph/"><u>[Updated] 2024 Approved The Storyline Secret to YouTube Triumph</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-experience-unparalleled-text-design-with-top-5-downloadable-platforms/"><u>[Updated] In 2024, Experience Unparalleled Text Design with Top 5 Downloadable Platforms</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unlock-creative-potential-with-no-cost-green-screen-knowledge-from-top-4-educational-channels/"><u>[Updated] In 2024, Unlock Creative Potential with No-Cost Green Screen Knowledge From Top 4 Educational Channels</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-virtual-meeting-mastery-how-to-navigate-effortlessly-through-zoom-sessions/"><u>[Updated] In 2024, Virtual Meeting Mastery How to Navigate Effortlessly Through Zoom Sessions</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/15-best-action-cameras-from-beginners-to-pros/"><u>15 Best Action Cameras - From Beginners to Pros</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-unleash-your-youtube-earnings-achieving-prosperity-at-the-50-written-excerpt/"><u>2024 Approved Unleash Your YouTube Earnings Achieving Prosperity at the 50 Written Excerpt</u></a></li>
-<li><a href="https://article-tips.techidaily.com/affordable-aerial-acrobats-best-bargain-drones-for-(500/"><u>Affordable Aerial Acrobats Best Bargain Drones for <$500</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-apple-iphone-x-is-off-drfone-by-drfone-virtual-ios/"><u>Can Life360 Track You When Your Apple iPhone X is off? | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/vering-digital-dominance-which-is-superior-youtubes-shorts-or-tiktoks-in-2024/"><u>Discovering Digital Dominance Which Is Superior, YouTubes Shorts or TikToks, In 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-navigating-youtube-metrics-with-ease/"><u>In 2024, Navigating YouTube Metrics with Ease</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-the-year-of-infographics-top-social-trends-explored/"><u>In 2024, The Year of Infographics Top Social Trends Explored</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/izing-mastery-harness-the-power-of-your-youtube-content-on-mobile/"><u>Monetizing Mastery Harness the Power of Your YouTube Content on Mobile</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-adding-closed-captioning-to-instagram-live-and-igtv/"><u>[New] 2024 Approved Adding Closed Captioning to Instagram Live and IGTV</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-ultimate-compilation-of-15-most-engaging-youtube-themes/"><u>[New] The Ultimate Compilation of 15 Most Engaging YouTube Themes</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-building-an-engaged-youtube-community-subscribers-for-2024/"><u>[Updated] Building an Engaged Youtube Community (Subscribers) for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-garner-over-a-thousand-viewers-swiftly-for-2024/"><u>[Updated] Garner Over a Thousand Viewers Swiftly for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-innovative-recording-screen-and-camera-with-vimeo-record/"><u>[Updated] In 2024, Innovative Recording Screen & Camera with Vimeo Record</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-proven-youtube-seo-methods-for-video-rankings/"><u>[Updated] In 2024, Proven YouTube SEO Methods for Video Rankings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-revenue-war-diary-dailymotion-vs-youtube-monetization-strategies-for-2024/"><u>[Updated] Revenue War Diary Dailymotion vs YouTube Monetization Strategies for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-shorts-vs-tiktok-which-one-is-better-for-short-videos-for-2024/"><u>[Updated] YouTube Shorts Vs. TikTok Which One Is Better for Short Videos for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtubes-transformation-blueprint-for-igtv-adaptation-for-2024/"><u>[Updated] YouTube's Transformation Blueprint for IGTV Adaptation for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/best-flac-audio-players-compatible-with-windows-11-top-picks/"><u>Best FLAC Audio Players Compatible with Windows 11: Top Picks</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-madden-nfl-20-pc-game-crashes-a-comprehensive-guide/"><u>Fixing Madden NFL 20 PC Game Crashes: A Comprehensive Guide</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-locked-apple-iphone-14-pro-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Forgot Locked Apple iPhone 14 Pro Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-leveraging-luts-for-rich-color-grading-in-ar-apps/"><u>In 2024, Leveraging LUTs for Rich Color Grading in AR Apps</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolving-game-lag-issues-a-guide-to-smoothing-playback/"><u>Resolving Game Lag Issues: A Guide to Smoothing Playback</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tile-online-creations-simple-and-inclusive-ideas-for-your-first-videos-for-2024/"><u>Versatile Online Creations Simple and Inclusive Ideas for Your First Videos for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

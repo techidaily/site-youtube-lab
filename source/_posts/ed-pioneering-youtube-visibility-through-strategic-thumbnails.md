@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Pioneering YouTube Visibility Through Strategic Thumbnails"
-date: 2024-09-11T14:54:50.172Z
-updated: 2024-09-12T14:54:50.172Z
+date: 2024-09-14T17:31:42.748Z
+updated: 2024-09-17T18:20:55.013Z
 tags:
   - ai video
   - ai youtube
@@ -49,13 +49,6 @@ Here are some examples of popular thumbnail styles.
 
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
 A photo that shows what happens in your video – whether that means the finished ‘look’ from your makeup tutorial or you posing in front of the landmark you shot your travel vlog in front of – is a great way to let viewers know what to expect. While curiosity can be a big motive behind clicking on a video thumbnail (or anything online), when people have searched for a specific topic they want to be convinced that your video has what they’re looking for.
@@ -81,13 +74,6 @@ In some cases you might use text to make it clear what type of video you’ve ma
 You should also avoid fonts that are harder to read. Fonts with a lot of curves can be harder to read, and you want to make sure you choose a color that stands out from your background. Yellow might work against black, but it probably won’t work against the beige wall of your sunny bedroom. Sans serif fonts tend to be best.
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
@@ -120,10 +106,10 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Upload a YouTube Thumbnail
@@ -156,19 +142,6 @@ Generally, using Canva is as easy as dragging and dropping things where you want
 You can make changes to the colors in your Spark thumbnail easily by selecting a new color scheme or filter. You can even toggle through layouts easily. When you choose a new layout, Spark will rearrange all the pieces of your current thumbnail to align with the new layout so you can quickly see what it looks like instead of having to rebuild.
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
@@ -208,13 +181,6 @@ Type your video’s title or topic into the search engine on YouTube and look at
 
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: Animated YouTube Thumbnails
 
 Whether or not you upload a custom thumbnail to YouTube, YouTube’s A.I will choose what it thinks are the 3 juiciest seconds of your video (you cannot choose for yourself) and play them as a GIF-like animation when people mouseover your video thumbnails.
@@ -230,13 +196,20 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -259,18 +232,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-harnessing-the-power-of-zooms-video-filter-options/"><u>[New] Harnessing the Power of Zoom's Video Filter Options</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-crafting-clicks-top-tags-for-gamers-content/"><u>[New] In 2024, Crafting Clicks Top Tags for Gamers' Content</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/op-12-flip-screen-cams-for-dynamic-videography/"><u>[New] Top 12 Flip-Screen Cams for Dynamic Videography</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-cutting-edge-capture-tips-for-professional-sound-recording/"><u>[Updated] In 2024, Cutting Edge Capture Tips for Professional Sound Recording</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-is-paying-monthly-just-for-ad-free-streaming-or-are-there-more-benefits-in-2024/"><u>[Updated] Is Paying Monthly Just For Ad-Free Streaming, Or Are There More Benefits, In 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-steps-to-successful-mac-video-capture/"><u>[Updated] Steps to Successful Mac Video Capture</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ing-narrative-pace-in-vlogging-through-jump-cuts/"><u>Boosting Narrative Pace in Vlogging Through Jump Cuts</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-expert-advice-for-staying-copyright-compliant-online/"><u>In 2024, Expert Advice for Staying Copyright Compliant Online</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Tecno Spark 20 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-the-novices-guide-to-building-a-youtube-studio-setup/"><u>In 2024, The Novice's Guide to Building a YouTube Studio Setup</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/quantum-hdr-unveiled-industry-insights-for-2024/"><u>Quantum HDR Unveiled Industry Insights for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/steps-for-restoring-bluetooth-visibility-win/"><u>Steps for Restoring Bluetooth Visibility WIN</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/transferir-conteudo-dvd-para-pen-drive-tecnicas-faceis-em-sistemas-operacionais-windows-e-macos-x/"><u>Transferir Conteúdo DVD Para Pen Drive: Técnicas Fáceis Em Sistemas Operacionais Windows E MacOS X</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-free-to-download-movie-cast-releases/"><u>[New] In 2024, Free-to-Download Movie Cast Releases</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-nine-all-inclusive-free-holiday-movies-streamed-on-youtube/"><u>[New] In 2024, Nine All-Inclusive Free Holiday Movies Streamed on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-breaking-down-the-system-behind-highlighted-video-comments-for-2024/"><u>[Updated] Breaking Down the System Behind Highlighted Video Comments for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-deceptions-toll-consequences-of-fake-supporters-in-video-markets/"><u>[Updated] In 2024, Deception's Toll Consequences of Fake Supporters in Video Markets</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-stand-out-in-the-stream-top-name-generators-reviewed-for-2024/"><u>[Updated] Stand Out in the Stream Top Name Generators Reviewed for 2024</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/discover-the-top-5-successors-of-imgburn-ultimate-burning-software-rankings/"><u>Discover the Top 5 Successors of ImgBurn: Ultimate Burning Software Rankings</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixes-and-solutions-for-nier-automata-replica-startup-issues/"><u>Fixes and Solutions for NieR: Automata Replica Startup Issues</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-nest-hub-gen-2-reviewed-how-not-including-a-camera-affects-user-experience-and-functionality/"><u>Google Nest Hub Gen 2 Reviewed – How Not Including a Camera Affects User Experience and Functionality</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-tecno-spark-10-4g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/intelligent-machines-unpacked-strong-and-weak-classes/"><u>Intelligent Machines Unpacked: Strong and Weak Classes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/solved-move-from-honor-x50i-to-ios-not-working-problems-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Solved Move from Honor X50i to iOS not Working Problems | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/steam/"><u>Steamゲームを活用した、コロナ禍下で流行る超人気ゲームリスト!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ical-wonders-in-musical-worlds/"><u>Whimsical Wonders in Musical Worlds</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/be-to-gif-a-simple-no-download-guide-for-video-creators-for-2024/"><u>YouTube-to-GIF A Simple, No-Download Guide for Video Creators for 2024</u></a></li>
 </ul></div>
 

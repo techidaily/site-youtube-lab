@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Mastering YouTube Images  Your Complete Thumbnail Handbook\""
-date: 2024-07-13T16:37:32.952Z
-updated: 2024-07-14T16:37:32.952Z
+date: 2024-09-14T20:06:22.945Z
+updated: 2024-09-17T16:02:32.674Z
 tags:
   - ai video
   - ai youtube
@@ -117,9 +117,6 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -133,6 +130,13 @@ Generally, using Canva is as easy as dragging and dropping things where you want
 You can make changes to the colors in your Spark thumbnail easily by selecting a new color scheme or filter. You can even toggle through layouts easily. When you choose a new layout, Spark will rearrange all the pieces of your current thumbnail to align with the new layout so you can quickly see what it looks like instead of having to rebuild.
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
@@ -172,6 +176,19 @@ Type your video’s title or topic into the search engine on YouTube and look at
 
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 5: Animated YouTube Thumbnails
 
 Whether or not you upload a custom thumbnail to YouTube, YouTube’s A.I will choose what it thinks are the 3 juiciest seconds of your video (you cannot choose for yourself) and play them as a GIF-like animation when people mouseover your video thumbnails.
@@ -186,6 +203,13 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -194,14 +218,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -210,6 +231,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-elevate-earnings-through-effective-facebook-page-practices/"><u>[New] In 2024, Elevate Earnings Through Effective Facebook Page Practices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-audience-expansion-strategies-that-honor-youtube-standards/"><u>[Updated] In 2024, Audience Expansion Strategies That Honor YouTube Standards</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-laughing-along-to-mimicked-melodies/"><u>[Updated] In 2024, Laughing Along to Mimicked Melodies</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tiktok-to-twitter-sharing-videos-for-2024/"><u>[Updated] TikTok to Twitter Sharing Videos for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-unlock-professional-quality-passport-portraits-with-these-10-apps/"><u>2024 Approved Unlock Professional-Quality Passport Portraits with These 10 Apps</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-the-six-secrets-to-holding-your-viewers-attention/"><u>In 2024, The Six Secrets to Holding Your Viewers' Attention</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-motorola-moto-g-5g-2023-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Motorola Moto G 5G (2023)</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-honor-magic-5-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Honor Magic 5 Device</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/izing-impact-with-creative-video-titles-for-2024/"><u>Maximizing Impact with Creative Video Titles for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/twitch-account-deletion-process-explained-a-step-by-step-guide/"><u>Twitch Account Deletion Process Explained: A Step-by-Step Guide</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-elevate-your-animation-game-top-software-for-beginners-intermediates-and-experts/"><u>Updated Elevate Your Animation Game Top Software for Beginners, Intermediates, and Experts</u></a></li>
+</ul></div>
 

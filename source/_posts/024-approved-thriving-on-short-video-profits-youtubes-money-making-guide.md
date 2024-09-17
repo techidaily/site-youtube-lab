@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Thriving on Short Video Profits  YouTube's Money-Making Guide\""
-date: 2024-07-13T16:38:35.919Z
-updated: 2024-07-14T16:38:35.919Z
+date: 2024-09-12T17:28:18.041Z
+updated: 2024-09-17T17:29:18.409Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,13 @@ The other way you can monetize shorts is by accessing ad revenue and fan-funding
 * At least 4,000 public watch hours in the last 365 days, or
 * At least 10 million valid public Shorts views in the last 90 days
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Additional Guidelines for Creators**
 
 Once you meet the eligibility criteria, you will be required to follow certain guidelines or policies to continue earning. The additional guidelines include:
@@ -83,6 +90,13 @@ If you are eligible for the YPP, you will see an **Apply** Click on it to go to 
 
 ![youtube get notified](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step 5
 
 Click **Start** to review and accept YouTube’s Base terms.
@@ -95,13 +109,17 @@ Link your existing AdSense account if you have one. If not. Click **Start** to s
 
 ![youtube link adsense](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-7.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step 7
 
 Wait for YouTube to review and approve your application. The process will normally take a month. Once you are approved for the YPP, go to the Earn section in YouTube Studio. Then accept the Shorts Monetization Module. This will allow you to access ads and other money-making tools on YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube monetization module](https://images.wondershare.com/filmora/article-images/2023/how-to-make-money-from-youtube-shorts-requirements-and-earning-potential-8.JPG)
 
 The instructions shared above are for applying for the YPP using a computer or desktop. You will still follow the same steps when using a mobile device, but you will do so using the YouTube Studio app.
@@ -111,6 +129,13 @@ The money-making feature monetizes Shorts in exciting ways. To start monetizing 
 ## **Part 3\. YouTube Shorts Monetization: A Realistic Look at Earnings Potential**
 
 Monetizing YouTube Shorts has the potential to make decent earnings. Although the amount is not as much as a long-form videos, it is a great way of making money on YouTube quickly. Most YouTube Shorts creators agree that the revenue per thousand views (RPM) for short-form content is currently around $0.05 - $0.07\. This means that for a million Shorts views, you will make $50 - $70.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Factors** **That Influence Earnings**
 
@@ -148,6 +173,13 @@ Before uploading a short-form video on YouTube, you want to make sure it is of t
 
 Narration is an important aspect of YouTube Shorts. You can tell what is happening in the clip in the simplest way for your audience to understand. The Text to Speech (TTS) feature on Filmora allows you to convert your text files to voice-over. This makes your Shorts video more entertaining and enriched with more elements.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. **AI Portrait**
 
 Just like other vertical social media videos, Shorts require some bit of personalization. You may want to add a bit of elements or filters. The AI Portrait feature automatically removes background with high accuracy to further enhance your videos. It also comes with over 70 portrait and sticker effects to bring out the mood you are going after. Automatically recognize the faces of your subjects and add AR stickers on the go.
@@ -160,14 +192,11 @@ YouTube Shorts have become immensely popular. They tend to have a higher ROI and
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -176,6 +205,19 @@ YouTube Shorts have become immensely popular. They tend to have a higher ROI and
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-detailed-visuals-in-ms-teams-video-calls/"><u>[New] 2024 Approved Detailed Visuals in MS Teams Video Calls</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rafting-impact-best-9-video-thumbnail-makers-reviewed/"><u>[New] Crafting Impact Best 9 Video Thumbnail Makers Reviewed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-create-captivate-independent-animation-innovations/"><u>[New] In 2024, Create, Captivate Independent Animation Innovations</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-pure-greenprints-accessible-templates-to-amplify-your-filmmaking-expertise/"><u>[New] Pure Greenprints Accessible Templates to Amplify Your Filmmaking Expertise</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-cyber-currents-videos-flow-on-twitter-wave/"><u>[Updated] In 2024, Cyber Currents Videos Flow on Twitter Wave</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-increase-length-of-your-youtube-production/"><u>[Updated] Increase Length of Your YouTube Production</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-step-by-step-crafting-professional-valorant-thumbnails-for-youtube/"><u>[Updated] Step-by-Step Crafting Professional Valorant Thumbnails for Youtube</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-free-and-easy-the-best-websites-for-jpg-to-gif-transformation/"><u>2024 Approved Free & Easy The Best Websites for JPG to GIF Transformation</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-steps-fresh-amd-smbus-driver-download-and-update-instructions/"><u>Easy Steps: Fresh AMD SMBus Driver Download & Update Instructions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-unlocking-creativity-in-youtube-video-splitting/"><u>In 2024, Unlocking Creativity in YouTube Video Splitting</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ly-earnings-potential-on-youtube-for-2024/"><u>Monthly Earnings Potential on YouTube for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-meizu-21-pro-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Meizu 21 Pro? | Dr.fone</u></a></li>
+</ul></div>
 

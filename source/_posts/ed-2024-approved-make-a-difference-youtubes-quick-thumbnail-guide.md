@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Make a Difference  YouTube's Quick Thumbnail Guide\""
-date: 2024-09-11T14:52:47.198Z
-updated: 2024-09-12T14:52:47.198Z
+date: 2024-09-16T19:17:02.045Z
+updated: 2024-09-17T18:48:30.491Z
 tags:
   - ai video
   - ai youtube
@@ -35,13 +35,6 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -53,13 +46,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
@@ -73,23 +59,9 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
@@ -103,23 +75,9 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
@@ -136,13 +94,6 @@ This is how your Youtube thumbnail will look like after applying all the above-m
 This article on making a thumbnail for your Youtube is just an idea for you, and you can use your creativity to create amazing thumbnails using other features of Filmora. These cool thumbnails will help you attract more viewers and click, which will ultimately help you grow your Youtube Channel. Unlike all other articles and tutorials that show you how to make a thumbnail for Youtube, this method is free and doesn't need any technical skills to be implemented.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -167,17 +118,25 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/oost-engagement-and-growth-unlocking-youtube-analytics-via-social-blade/"><u>[New] Boost Engagement and Growth - Unlocking YouTube Analytics via Social Blade</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-mastering-online-image-cropping-techniques-for-2024/"><u>[New] Mastering Online Image Cropping Techniques for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-finding-your-portal-to-youtubes-video-mastery-hub/"><u>[Updated] 2024 Approved Finding Your Portal to YouTube's Video Mastery Hub</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-organize-content-streamlined-tips-for-building-your-personal-youtube-watch-later-collection/"><u>[Updated] In 2024, Organize Content Streamlined Tips for Building Your Personal YouTube Watch Later Collection</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-instagrams-video-selfie-truthfulness-a-critical-look-for-2024/"><u>[Updated] Instagram's Video Selfie Truthfulness – A Critical Look for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-supercharge-videos-download-premium-effs/"><u>2024 Approved Supercharge Videos - Download Premium Effs</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-reset-motorola-moto-g34-5g-without-volume-buttons-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Reset Motorola Moto G34 5G Without Volume Buttons | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/exploring-msdia80dll-functionality-is-retaining-necessary/"><u>Exploring msdia80.dll Functionality – Is Retaining Necessary?</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-curate-your-learning-best-15-science-yt-experts/"><u>In 2024, Curate Your Learning Best 15 Science YT Experts</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/mastering-a-standout-linkedin-profile/"><u>Mastering a Standout LinkedIn Profile</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/resounding-beats-audio-studio-mac/"><u>Resounding Beats Audio Studio Mac</u></a></li>
-<li><a href="https://facebook.techidaily.com/silent-about-next-step-for-oculus-quest-series/"><u>Silent About Next Step for Oculus Quest Series</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/avigating-the-path-to-youtube-video-co-creation-and-partnerships-for-2024/"><u>[New] Navigating the Path to YouTube Video Co-Creation & Partnerships for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-nikon-d500-reviewed-a-4k-photo-enthusiasts-dream/"><u>[New] Nikon D500 Reviewed A 4K Photo Enthusiast's Dream</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-cutting-edge-solutions-for-video-editing-and-dvd-making-on-mac/"><u>[Updated] Cutting-Edge Solutions for Video Editing and DVD Making on Mac</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-eliminating-robotic-ratings-to-grow-views/"><u>[Updated] Eliminating Robotic Ratings to Grow Views</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-enabledisable-comments-a-youtube-instructional-for-2024/"><u>[Updated] Enable/Disable Comments A YouTube Instructional for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-first-steps-in-vector-art-exploring-kinds-applications-for-2024/"><u>[Updated] First Steps in Vector Art Exploring Kinds, Applications for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/guide-how-to-terminate-your-paramount-premiere-membership/"><u>Guide: How to Terminate Your Paramount Premiere Membership</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

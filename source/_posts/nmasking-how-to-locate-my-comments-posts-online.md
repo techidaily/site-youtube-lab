@@ -1,7 +1,7 @@
 ---
 title: "[New] Unmasking How To Locate My Comments Posts Online"
-date: 2024-07-13T16:39:15.779Z
-updated: 2024-07-14T16:39:15.779Z
+date: 2024-09-12T19:44:01.370Z
+updated: 2024-09-17T19:43:04.609Z
 tags:
   - ai video
   - ai youtube
@@ -117,6 +117,13 @@ Make sure that the **Uploads** tab is selected on the **Channel content** window
 
 ![Find  YouTube Comments List](https://images.wondershare.com/filmora/article-images/find-youtube-video-comments-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Hide or Hold a Comment for Approval**
 
 Click the **More** icon from the right of the comment you want to moderate, and click **Hide user from channel** or **Always approve comments from this user** to hide the comments from the selected user or keep their comments on hold until you review and approve them respectively.
@@ -146,8 +153,18 @@ Tap the **More** button from the right of an inappropriate comment, and tap **Hi
 ![Find  YouTube Comments mobile](https://images.wondershare.com/filmora/article-images/find-youtube-channel-comments-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770526">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: Find Someone’s YouTube Comments by User Name
 
 If any of your YouTube videos has thousands of comments and you need to find a particular one from a specific user, checking each remark manually would be an extremely time-consuming and tedious task. Therefore, it is a good idea to let an efficient application do the job for you.
@@ -163,6 +180,13 @@ Launch Google Chrome on your desktop or laptop computer, search for **YCS – Yo
 Go to your or any other’s YouTube video, and click **Load All** from the top-right corner of the YouTube Comment Search panel that is present under the description box to allow YCS to scan all the comments the video has received.
 
 ![Find  YouTube Comments mobile](https://images.wondershare.com/filmora/article-images/load-all-comments-with-youtube-comment-search-extension.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3: Search Comments from a Particular User**
 
@@ -183,6 +207,13 @@ Use any of the methods explained above to locate your YouTube comment that you w
 Locate the comment that you want to reply to, click **REPLY** from under the comment, type your text in the available field, and click **REPLY**.
 
 ![Reply  YouTube Comments](https://images.wondershare.com/filmora/article-images/reply-youtube-comments.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: How to Moderate YouTube Comments?
 
@@ -210,6 +241,13 @@ While posting a comment on a YouTube video, it is imperative to keep a few thing
 * In case you want to add some suggestions, make sure to be humble
 * Ignore the replies with inappropriate content
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 **Q1) Why can’t I see the comments I posted?**
@@ -230,14 +268,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -246,6 +281,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-effortless-webcam-recording-with-vlc-streaming-capabilities/"><u>[New] In 2024, Effortless Webcam Recording with VLC Streaming Capabilities</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-gain-1000-followers-on-youtube-with-agile-strategies/"><u>[New] In 2024, Gain 1,000 Followers on YouTube with Agile Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ove-in-full-view-discovering-youtube-and-vimeos-top-7-wedding-movies/"><u>[New] Love in Full View Discovering Youtube & Vimeo's Top 7 Wedding Movies</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-the-key-elements-in-achieving-proficient-interview-performance/"><u>[Updated] 2024 Approved The Key Elements in Achieving Proficient Interview Performance</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-navigating-the-world-of-youtube-music-shorts/"><u>[Updated] Navigating the World of YouTube Music Shorts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-6-youtuber-quizzes-to-know-which-youtuber-you-are/"><u>2024 Approved 6 YouTuber Quizzes to Know Which YouTuber You Are</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-share-and-smile-discovering-the-best-meme-designs-10/"><u>2024 Approved Share & Smile Discovering the Best Meme Designs #10</u></a></li>
+<li><a href="https://fox-links.techidaily.com/become-a-vr-pro-ios-devices-guide-to-vr-viewing/"><u>Become a VR Pro IOS Device's Guide to VR Viewing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ver-the-secrets-to-youtubes-rankings-with-keywords/"><u>Discover the Secrets to YouTube's Rankings with Keywords</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-dichotomy-of-digital-immersion-in-vr/"><u>The Dichotomy of Digital Immersion in VR</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-oppo-a1x-5g-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Oppo A1x 5G Device</u></a></li>
+</ul></div>
 

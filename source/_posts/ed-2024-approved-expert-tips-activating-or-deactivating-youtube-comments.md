@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Expert Tips  Activating or Deactivating YouTube Comments\""
-date: 2024-09-11T14:53:30.981Z
-updated: 2024-09-12T14:53:30.981Z
+date: 2024-09-11T16:53:14.029Z
+updated: 2024-09-17T16:07:41.765Z
 tags:
   - ai video
   - ai youtube
@@ -35,13 +35,6 @@ Keeping all these points in mind, the following sections explain **how to enable
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -58,13 +51,6 @@ From the bottom of the left pane, click the **Settings** icon, click **Channel**
 
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 3: Turn Off Comments
 
 From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
@@ -76,13 +62,6 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 2\. Define Acceptable Comment Types
 
@@ -136,21 +115,7 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -182,13 +147,6 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -210,19 +168,33 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/xpert-advice-to-recover-missing-thumbnails-from-videos/"><u>[New] Expert Advice to Recover Missing Thumbnails From Videos</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-effective-strategies-to-mute-unwanted-voices-in-gomeet/"><u>[New] In 2024, Effective Strategies to Mute Unwanted Voices in GoMeet</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/avigate-through-youtube-content-with-flexibility/"><u>[New] Navigate Through YouTube Content with Flexibility</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unraveling-youtubes-puzzles-a-step-by-step-reveal/"><u>[Updated] 2024 Approved Unraveling YouTube's Puzzles A Step-by-Step Reveal</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-ultimate-list-of-preferred-youtube-video-formats/"><u>[Updated] In 2024, The Ultimate List of Preferred YouTube Video Formats</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-pro-tip-8-key-sites-to-harvest-free-eco-friendly-filming-backdrops-for-2024/"><u>[Updated] Pro Tip! 8 Key Sites to Harvest FREE Eco-Friendly Filming Backdrops for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/effortless-task-management-auto-gpt-in-ubuntu/"><u>Effortless Task Management: Auto-GPT in Ubuntu</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Google Pixel 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-oneplus-nord-n30-5g-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring OnePlus Nord N30 5G | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/remove-device-supervision-from-your-apple-iphone-se-drfone-by-drfone-ios/"><u>Remove Device Supervision From your Apple iPhone SE | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/step-by-step-guide-creating-your-own-3d-qr-code-printer/"><u>Step-by-Step Guide: Creating Your Own 3D QR Code Printer</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-gaming-giants-tussle-with-video-powerhouse-youtube-for-2024/"><u>The Gaming Giant's Tussle with Video Powerhouse YouTube for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/ultimate-fix-for-error-3-0x0001000b-on-rainbow-six-siege-step-by-step-tutorial/"><u>Ultimate Fix for Error 3-0X0001000B on Rainbow Six Siege – Step-by-Step Tutorial</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-achieving-youtube-mastery-with-effective-use-of-creator-studio-tools/"><u>[New] In 2024, Achieving YouTube Mastery with Effective Use of Creator Studio Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-from-flat-to-fantastic-animated-text-transformations/"><u>[New] In 2024, From Flat to Fantastic Animated Text Transformations</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-leveraging-live-tweets-strategies-unveiled/"><u>[Updated] 2024 Approved Leveraging Live Tweets Strategies Unveiled</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-global-content-makers-conference/"><u>[Updated] In 2024, Global Content Makers' Conference</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-responding-to-criticism-with-confidence-on-youtube/"><u>[Updated] In 2024, Responding to Criticism with Confidence on YouTube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-restore-shadows-in-iphone-hdr-footage-using-premiere-pro-techniques/"><u>[Updated] Restore Shadows in iPhone HDR Footage Using Premiere Pro Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-superior-streaming-recorders-for-youtube-vloggers/"><u>[Updated] Superior Streaming Recorders for YouTube Vloggers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-move-contacts-from-lava-yuva-2-pro-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Move Contacts From Lava Yuva 2 Pro to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/dxgierror-0x887a0006-fix-in-windows-step-by-step/"><u>DXGI_ERROR 0X887A0006 Fix in Windows: Step by Step</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-oppo-reno-11-5g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-climbing-the-youtube-search-rankings-key-seo-strategies-unveiled/"><u>In 2024, Climbing the YouTube Search Rankings Key SEO Strategies Unveiled</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-samsung-galaxy-xcover-6-pro-tactical-edition-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Samsung Galaxy XCover 6 Pro Tactical Edition? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ize-views-the-art-of-timestamp-integration-on-youtube-for-2024/"><u>Maximize Views The Art of Timestamp Integration on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-up-your-own-mac-based-sports-chat-space-for-2024/"><u>Setting Up Your Own Mac-Based Sports Chat Space for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-test-on-value-and-functionality-a-close-look-at-philips-hf3520s-alarm-clock-model/"><u>The Ultimate Test on Value & Functionality: A Close Look at Philips HF3520's Alarm Clock Model</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

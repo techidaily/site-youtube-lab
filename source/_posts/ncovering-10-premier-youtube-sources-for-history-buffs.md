@@ -1,7 +1,7 @@
 ---
 title: "[New] Uncovering 10 Premier YouTube Sources for History Buffs"
-date: 2024-07-13T16:40:56.502Z
-updated: 2024-07-14T16:40:56.502Z
+date: 2024-09-11T21:53:12.831Z
+updated: 2024-09-17T18:57:30.814Z
 tags:
   - ai video
   - ai youtube
@@ -66,9 +66,23 @@ This is a channel that has dedicated its time to learning about the great war kn
 
 Normally, no one likes the idea of listening or learning from someone who makes things too complicated. Also, when learning, it is more interesting if you could understand it in the best way that you can. Not everything can be learned that way and not everyone can make something that easy to grasp. Channels like oversimplified make things easier for everyone to understand. They oversimplify their contents. They give you histories like the French revolution and the battle of Hastings and make it funnier and twist the storytelling to a way that people would find it interesting and funny sometimes. Videos are posted three times a week
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8. The History Guy
 
 The history guy is known well for the short time he takes in his video. Other history videos online are short but they are much shorter because they take 5 to 15 minutes. Even with this short time, he tends to cover different histories. They are a little bit odd histories but they seem interesting. Things like the wild wide west and the New York blackout that happened in 1977\. Other things like how Europeans discovered Alaska and the great olive poisoning that happened in 1919\. He makes the videos short because he aims at getting the audience in their spare time. Videos are posted 3 to 4 times a week
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9. Timeline
 
@@ -132,6 +146,13 @@ Normally, no one likes the idea of listening or learning from someone who makes 
 
 The history guy is known well for the short time he takes in his video. Other history videos online are short but they are much shorter because they take 5 to 15 minutes. Even with this short time, he tends to cover different histories. They are a little bit odd histories but they seem interesting. Things like the wild wide west and the New York blackout that happened in 1977\. Other things like how Europeans discovered Alaska and the great olive poisoning that happened in 1919\. He makes the videos short because he aims at getting the audience in their spare time. Videos are posted 3 to 4 times a week
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 9. Timeline
 
 This is a timeline popularly on YouTube as the home of world history. What they do here is drop a video once a week that talk about documentaries and other things. They explore around all of ancient Egypt, shedding their whole light on the former dark ages.
@@ -169,6 +190,13 @@ This has to be the most obvious one on the list because whenever you click to wa
 ### 2. Weird History
 
 This channel follows the name that they gave to themselves, they dedicated their channel to posting topics on weird history like the chronicles of history, crystal Pepsi, gout, life in a medieval castle, and the Victorian pastimes. All the videos are weird, most times they seem funny and spooky but they are just videos that make you think deeply because they seem too weird. Video is here makes you feel like a police officer chasing a man with the power to turn into a leopard. That is how confused you get from watching this channel. They usually make their posts every day. The channel provides videos for their subscribers 3 to 4 times a week
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. Tasting History With Max Miller
 
@@ -183,8 +211,12 @@ A YouTube channel created by someone who loves Rome like he were from there. A R
 This is another good history channel on Youtube, they provide the information through animated historical documentaries. From the channel from the title, you would know that the channel talks mainly in battles and politics, hence the name kings and generals. Aside from the war niche, the videos talk about some of the important happenings in history. The user makes a post on this channel for you to learn about the different kings and generals in history who lost and won their battles and crowns. Videos are posted twice a week
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 6. The Great War
 
 This is a channel that has dedicated its time to learning about the great war known as World War 1\. The channel shares videos telling the public about the era of World War 1\. This is a major part of history and so it is something we ought to learn about. This isn’t just about the soldiers on the battlefield or how the bombs went off to destroy the enemies but it covers everything that happened within that period, from the kind of food they are to the way they dress and the technologies used. Even the different tribes, arts, and cultures. They post videos twice a week
@@ -287,8 +319,6 @@ Sometimes it might help your mental health if you can take out time to watch som
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -296,6 +326,20 @@ Sometimes it might help your mental health if you can take out time to watch som
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-chart-new-horizons-in-branding-with-these-top-10-youtube-tools/"><u>[New] 2024 Approved Chart New Horizons in Branding with These Top 10 YouTube Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/reating-impactful-youtube-conclusion-for-2024/"><u>[New] Creating Impactful YouTube Conclusion for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/op-ten-video-cards-selection-guide-for-youtube-aficionados/"><u>[New] Top-Ten Video Cards Selection Guide for YouTube Aficionados</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-how-to-schedule-and-record-a-meeting-on-slack-wondershare-filmora/"><u>[Updated] 2024 Approved How to Schedule and Record a Meeting on Slack-Wondershare Filmora</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-instacapture-the-ultimate-download-toolkit-unveiled/"><u>[Updated] 2024 Approved InstaCapture The Ultimate Download Toolkit Unveiled</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-conversion-made-simple-learn-how-without-spending-a-dime-for-2024/"><u>[Updated] YouTube Conversion Made Simple – Learn How Without Spending a Dime for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-how-to-live-without-the-temptation-of-youtube-shorts/"><u>2024 Approved How To Live Without the Temptation of YouTube Shorts</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-unleash-fast-the-ultimate-tiktok-download-playbook/"><u>2024 Approved Unleash Fast The Ultimate TikTok Download Playbook</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unveiling-the-best-mobile-tools-to-pull-videos-from-youtube/"><u>2024 Approved Unveiling the Best Mobile Tools to Pull Videos From YouTube</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-step-by-step-audacity-crossfading-process/"><u>In 2024, Step-by-Step Audacity Crossfading Process</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ize-video-impact-via-creator-studio-utilization-for-2024/"><u>Maximize Video Impact via Creator Studio Utilization for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/edit-mastery-harnessing-the-power-of-jump-cuts/"><u>Vlog Edit Mastery Harnessing the Power of Jump Cuts</u></a></li>
+<li><a href="https://driver-install.techidaily.com/1720061950543-windows-11-touch-screen-driver-download-and-update-easily/"><u>Windows 11 Touch Screen Driver Download & Update. Easily</u></a></li>
+</ul></div>
 

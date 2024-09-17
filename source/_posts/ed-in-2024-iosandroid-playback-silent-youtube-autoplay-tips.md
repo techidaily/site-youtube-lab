@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, IOS/Android Playback  Silent YouTube Autoplay Tips\""
-date: 2024-07-13T16:38:06.049Z
-updated: 2024-07-14T16:38:06.049Z
+date: 2024-09-11T17:28:25.250Z
+updated: 2024-09-17T19:59:51.298Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,13 @@ Tap anywhere on the video player window, and tap **Audio** from the top of the s
 
 Use your phone-specific button or option to minimize YouTube Music. You can then either continue using your smartphone normally, or turn off the screen to **play YouTube in background**.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114264/17093" target="_top" id="2114264">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114264" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114264/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Play YouTube Videos in Background on iPhone
 
 If you don’t want to pay for YouTube Premium, there are a few other workarounds that you can try to play YouTube in background on your iPhone. One of the easiest methods among them is explained below:
@@ -76,12 +83,16 @@ Tap the **All Tabs** icon from the bottom-right corner of the browser, and tap *
 
 Press the **Home** button or swipe up on iPhone X or above to get to the Home screen. You can notice how YouTube still continues to stream. From this point onward, you can either start using your iPhone normally, or turn off the screen and let your device **play YouTube in background**.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Play YouTube Videos in Background on Android
 
 The process to **play YouTube in background** on an Android smartphone is slightly different than what it is on an iPhone if you don’t have a Premium subscription. To get this done on your Android, you must:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Step 1: Switch to Desktop Mode
 
@@ -99,9 +110,23 @@ Once the video starts streaming, get back to the Home screen, pull down the **No
 
 ![Play YouTube  background on Android](https://images.wondershare.com/filmora/article-images/play-youtube-background-android.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3 Best Apps to Play YouTube Videos in Background on Android
 
 Instead of using the above workaround on Android, if you want something simpler and more straightforward, there are a few apps that can help you **play YouTube videos in background**. Some of the most used programs are listed below:
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### VLC for Android
 
@@ -119,6 +144,13 @@ Yet another app available on Google Play Store that lets you search for your fav
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Watching YouTube videos has become a part of people’s day-to-day life now. While many of them use the platform to learn new skills through the tutorials that are available for free, others love the idea of having unlimited and unrestricted access to the gigantic database of music videos that they can dig in to find and play their favorite tracks. For the latter scenario, the processes explained above are likely to come in handy in order to **play YouTube in background** so the users can take full advantage of their iPhone or Android smartphone in case they only want to listen to the audio, and are not interested in watching the video while streaming.
@@ -131,14 +163,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,6 +176,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-comprehensive-scrutiny-of-elite-parrot-ar-20/"><u>[New] Comprehensive Scrutiny of Elite Parrot AR 2.0</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-eliminate-vr-discomfort-10-tips/"><u>[Updated] 2024 Approved Eliminate VR Discomfort 10 Tips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-best-video-format-for-youtube-uploading/"><u>2024 Approved Best Video Format for YouTube Uploading</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-inaugural-directors-shorts/"><u>2024 Approved Inaugural Director's Shorts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-propel-your-online-presence-via-creator-studio/"><u>2024 Approved Propel Your Online Presence via Creator Studio</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-the-latest-hp-laserjet-p1006-printer-software/"><u>Download the Latest HP LaserJet P1006 Printer Software</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-recording-youtube-videos-effortlessly-the-free-way-to-screencasts/"><u>In 2024, Recording YouTube Videos Effortlessly - The Free Way to Screencasts</u></a></li>
+<li><a href="https://program-issues.techidaily.com/roblox-quiet-playtime-heres-how-to-restore-sound-on-your-win11win10-setup/"><u>Roblox Quiet Playtime? Here's How to Restore Sound on Your Win11/Win10 Setup</u></a></li>
+<li><a href="https://win-blog.techidaily.com/tecnicas-cinematograficas-clave-las-13-mas-efectivas-en-la-pantalla-grande/"><u>Tecnicas Cinematografícas Clave: Las 13 Más Efectivas en La Pantalla Grande</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-ultimate-review-of-garmins-latest-activity-monitoring-smartwatch/"><u>The Ultimate Review of Garmin's Latest Activity Monitoring Smartwatch</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-lava-agni-2-5g-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Lava Agni 2 5G IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-unleash-your-creativity-adobe-premiere-pro-for-mac-professionals-for-2024/"><u>Updated Unleash Your Creativity Adobe Premiere Pro for Mac Professionals for 2024</u></a></li>
+</ul></div>
 
