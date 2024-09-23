@@ -1,7 +1,7 @@
 ---
 title: "\"Final Flourishes  Crafting Memorable Video Closures for 2024\""
-date: 2024-07-13T16:29:15.850Z
-updated: 2024-07-14T16:29:15.850Z
+date: 2024-09-20T22:41:06.000Z
+updated: 2024-09-22T21:02:50.204Z
 tags:
   - ai video
   - ai youtube
@@ -76,6 +76,19 @@ If you are using CTAs in your outro, remember to add links and elements that are
 
 Being consistent in your designs is a key ingredient to improving your brand recognition. Stick to a specific color palette or themes, so the audience can easily identify your channel.
 
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Make an Outstanding YouTube Video Outro
 
 Now it is time to learn how to make an outro for YouTube. You can create the perfect outro for YouTube using the tools from Adobe After Effects. The following steps indicate how to make an outro using After Effects:
@@ -114,11 +127,25 @@ Now highlight the shape layers again by shift. Right-click and add "Layer Styles
 
 ![effects added](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step 7: Customize Background
 
 From the "Effects and Preset" panel, you can add different "Animation Presets" to your background. Choose one that you like and drag it on the layer.
 
 ![customize your background](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 8: Add Text and Icons
 
@@ -148,9 +175,6 @@ Step 2: Search and download the "YouTube Pack" from Filmstock.
 
 Step 3: Find the YouTube outro from the Filmora Titles folder. Then drag and apply to your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![apply the youtube outro to your video](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-16.jpg)
 
 ## Part 3: 5 Video Effects to Help You Create a Stunning YouTube Outro
@@ -165,11 +189,25 @@ The YouTube Subscribe Reminders pack by Filmstock contains 10 title templates th
 
 ![youtube subscribe reminders](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. 4K YouTube Motion Graphics Packaging
 
 The 4K YouTube Motion Graphics Packaging contains multiple title templates from Filmstock's library to help you create a remarkable outro for YouTube. From subscribe reminders to recommended video templates and text animations, the pack can be used at the end screen of any video. The pack is compatible with Filmora 9.6 or above versions.
 
 ![4k youtube motion graphics packaging](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-11.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Clean YouTube Subscribe Pack
 
@@ -203,14 +241,11 @@ Max Wales is a writer and a lover of all things video.
 
 Follow @Max Wales
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -219,6 +254,22 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-frosty-slopes-showdown-olympic-snowboard-cross-action/"><u>[New] In 2024, Frosty Slopes Showdown Olympic Snowboard Cross Action</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-master-the-art-of-editing-on-zero-budget-discover-these-apps/"><u>[New] In 2024, Master the Art of Editing on Zero Budget Discover These Apps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-turn-the-screws-right-youtube-video-rotation-for-all-angles/"><u>[New] In 2024, Turn the Screws Right YouTube Video Rotation for All Angles</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-personalize-and-protect-youtube-channel-url-made-simple/"><u>[New] Personalize & Protect YouTube Channel URL Made Simple</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unlocking-youtube-top-rated-pc-and-mobile-video-extractors/"><u>[Updated] 2024 Approved Unlocking YouTube Top-Rated PC & Mobile Video Extractors</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-film-fans-choice-cutting-edge-youtube-channels/"><u>[Updated] Film Fan's Choice Cutting-Edge YouTube Channels</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-from-bland-to-brilliant-transform-your-youtube-channels-image/"><u>[Updated] In 2024, From Bland to Brilliant Transform Your YouTube Channels' Image</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-understanding-youtubes-content-crafting-environment-for-2024/"><u>[Updated] Understanding YouTube's Content Crafting Environment for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-free-music-for-videos-finding-the-right-sources/"><u>2024 Approved Free Music for Videos Finding the Right Sources</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-unlock-high-quality-audio-recording-with-these-top-5-windows-11-tips/"><u>2024 Approved Unlock High-Quality Audio Recording with These Top 5 Windows 11 Tips</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/flipping-fun-facts-into-memes-with-kinemaster-for-2024/"><u>Flipping Fun Facts Into Memes with KineMaster for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-realme-c51-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Realme C51</u></a></li>
+<li><a href="https://media-tips.techidaily.com/the-exciting-launch-of-the-combined-disneyplus-and-hulu-application-just-around-the-corner/"><u>The Exciting Launch of the Combined Disney+ & Hulu Application: Just Around the Corner!</u></a></li>
+<li><a href="https://win11.techidaily.com/triggers-for-launching-system-restore-in-windows-11-environment/"><u>Triggers for Launching System Restore in Windows 11 Environment</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/what-are-luts-and-how-they-change-your-photo-for-2024/"><u>What Are LUTs and How They Change Your Photo for 2024</u></a></li>
+</ul></div>
 

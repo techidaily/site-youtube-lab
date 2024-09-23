@@ -1,7 +1,7 @@
 ---
 title: "Quick Guide to Free YouTube Closure Creation"
-date: 2024-07-13T16:30:08.372Z
-updated: 2024-07-14T16:30:08.372Z
+date: 2024-09-19T20:17:24.962Z
+updated: 2024-09-22T18:11:30.403Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/d1a4704b31151e9550e9b3ab1b575cfa25b0e8f64
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -69,9 +66,6 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -116,9 +110,6 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -127,14 +118,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -143,6 +131,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-free-audio-treasures-to-amplify-youtube/"><u>[New] In 2024, Free Audio Treasures to Amplify YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nfallible-way-to-forbid-youtubes-snappy-videos/"><u>[New] Infallible Way to Forbid YouTube's Snappy Videos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-dreamlands-choice-ultimate-10-affordable-rpg-games/"><u>[Updated] Dreamland's Choice Ultimate 10 Affordable RPG Games</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-amplify-views-and-engagement-through-google-analytics-expertise/"><u>2024 Approved Amplify Views & Engagement Through Google Analytics Expertise</u></a></li>
+<li><a href="https://extra-information.techidaily.com/broadcasting-hidden-voices-on-instagram-live/"><u>Broadcasting Hidden Voices on Instagram Live</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/al-dominion-for-techno-gamers-for-2024/"><u>Digital Dominion for Techno Gamers for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/essential-troubleshooting-for-disabled-iphone-or-ipad-users/"><u>Essential Troubleshooting for Disabled iPhone or iPad Users</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/jokegenius-easy-login-creative-video-making/"><u>JokeGenius Easy Login, Creative Video Making</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/virtual-frontiers-five-incredible-upcoming-psvr-games/"><u>Virtual Frontiers Five Incredible Upcoming PSVR Games</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

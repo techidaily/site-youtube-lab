@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Secret Technique for Instantaneous Deletion of Youtube Discussions\""
-date: 2024-07-13T16:32:58.553Z
-updated: 2024-07-14T16:32:58.553Z
+date: 2024-09-21T20:29:36.992Z
+updated: 2024-09-22T21:55:09.915Z
 tags:
   - ai video
   - ai youtube
@@ -103,9 +103,6 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -114,6 +111,19 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
@@ -125,11 +135,25 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938698/19272" target="_top" id="1938698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -137,14 +161,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -153,6 +174,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-virtual-reality-vanguard-leading-pc-headsets-to-watch/"><u>[New] 2024 Approved Virtual Reality Vanguard Leading PC Headsets to Watch</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ecoding-the-modern-content-creators-dilemma-for-2024/"><u>[New] Decoding the Modern Content Creator's Dilemma for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-4-effective-ways-to-captivate-ig-audiences-with-loop-videos/"><u>[New] In 2024, 4 Effective Ways to Captivate IG Audiences with Loop Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nline-video-hubs-picking-between-vimeo-youtube-and-dailymotion/"><u>[New] Online Video Hubs Picking Between Vimeo, YouTube & Dailymotion</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-harnessing-the-benefits-with-creative-commons-licenses/"><u>[Updated] 2024 Approved Harnessing the Benefits with Creative Commons Licenses</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-capturing-piscine-adventures-5-superior-camers/"><u>[Updated] Capturing Piscine Adventures - 5 Superior Camers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-detailed-guide-youtubes-end-screens-explained/"><u>[Updated] In 2024, Detailed Guide YouTube's End Screens Explained</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/comprehensive-suite-of-business-plugins-and-slide-show-ideas-for-2024/"><u>Comprehensive Suite of Business Plugins and Slide Show Ideas for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-compelling-channel-names-simplified/"><u>Creating Compelling Channel Names Simplified</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-vivo-y78t-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Vivo Y78t FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-solutions-for-persistent-red-dead-redemption-2-crash-errors-on-personal-computers/"><u>Expert Solutions for Persistent Red Dead Redemption 2 Crash Errors on Personal Computers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-xiaomi-redmi-k70-pro-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Xiaomi Redmi K70 Pro without App | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/inspecting-macbook-overheating-risks-top-strategies-to-check-and-control-temperature/"><u>Inspecting MacBook Overheating Risks: Top Strategies to Check and Control Temperature</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/leading-laser-cutting-systems-in-2e24-buyers-guide/"><u>Leading Laser Cutting Systems in 2E24 - Buyer's Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/forming-ideas-to-movies-using-youtubes-tools/"><u>Transforming Ideas to Movies Using YouTube's Tools</u></a></li>
+</ul></div>
 

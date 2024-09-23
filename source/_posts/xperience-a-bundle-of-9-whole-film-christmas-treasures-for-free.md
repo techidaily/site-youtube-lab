@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Experience a Bundle of 9 Whole-Film Christmas Treasures for Free\""
-date: 2024-07-13T16:30:06.268Z
-updated: 2024-07-14T16:30:06.268Z
+date: 2024-09-18T19:08:16.343Z
+updated: 2024-09-22T22:37:45.756Z
 tags:
   - ai video
   - ai youtube
@@ -47,11 +47,22 @@ A Christmas story has long been one of the favorite Christmas movies for many fa
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7. Santa Who?
 
@@ -67,20 +78,24 @@ In this recreation of the original film from 1947 this shortened full-length ver
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -89,6 +104,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-level-up-your-instagram-posts-with-expert-edits/"><u>[New] 2024 Approved Level Up Your Instagram Posts with Expert Edits</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ontent-creation-conundrum-where-to-go/"><u>[New] Content Creation Conundrum Where to Go?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-fixing-blank-sequences-during-obs-recording/"><u>[New] Fixing Blank Sequences During OBS Recording</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-youtube-shortcuts-you-should-know/"><u>[New] In 2024, YouTube Shortcuts You Should Know</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-elevate-your-videography-premiere-to-youtube-upload/"><u>[Updated] Elevate Your Videography Premiere to YouTube Upload</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-growth-hacks-for-youtubers-short-form-content-boosting-view-counts-effectively-for-2024/"><u>[Updated] Growth Hacks for YouTuber's Short Form Content Boosting View Counts Effectively for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-gamers-almanac-expert-tips-to-record-and-save-your-minecraft-sessions/"><u>[Updated] In 2024, Gamer's Almanac Expert Tips to Record and Save Your Minecraft Sessions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-yts-game-changers-the-elite-ladies-in-gaming/"><u>[Updated] YT's Game Changers The Elite Ladies in Gaming</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-audio-amplification-for-online-photo-archiving/"><u>2024 Approved Audio Amplification for Online Photo Archiving</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-easing-into-your-youtube-watches-3-methods-50-chars/"><u>2024 Approved Easing Into Your YouTube Watches 3 Methods (50 Chars)</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-advanced-computing-gear-with-tom-insights-and-analysis/"><u>Exploring Advanced Computing Gear with Tom - Insights & Analysis</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Samsung Galaxy S23+ | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/insiders-manual-reacting-on-twitter-videos-for-2024/"><u>Insider’s Manual Reacting on Twitter Videos for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-virtualdub-substitutes-a-comprehensive-list-of-video-editors/"><u>New 2024 Approved VirtualDub Substitutes A Comprehensive List of Video Editors</u></a></li>
+<li><a href="https://win-dash.techidaily.com/windows-11-compatible-touchpad-software-update-for-acer-w130-w129-immediate-download-available/"><u>Windows 11 Compatible Touchpad Software Update for Acer (W130, W129) - Immediate Download Available!</u></a></li>
+</ul></div>
 

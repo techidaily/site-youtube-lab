@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Quick Fix  Annoyance-Free Deletion of Youtube Comments\""
-date: 2024-07-13T16:33:52.314Z
-updated: 2024-07-14T16:33:52.314Z
+date: 2024-09-21T17:48:26.307Z
+updated: 2024-09-22T16:17:30.093Z
 tags:
   - ai video
   - ai youtube
@@ -84,8 +84,18 @@ If it is your video where the comment to be removed is, you can go to My Channel
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -115,6 +125,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -122,6 +139,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -137,14 +161,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -153,6 +174,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/harting-the-course-of-creative-conquests-self-vs-competitors-on-youtube/"><u>[New] Charting the Course of Creative Conquests Self Vs. Competitors on YouTube</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-titlegenius-revolutionizing-video-title-generation/"><u>[New] TitleGenius Revolutionizing Video Title Generation</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-digital-recorder-hits-the-ultimate-list-for-2024/"><u>[Updated] Digital Recorder Hits The Ultimate List for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-candids-canvas-transforming-photos-with-editing-tips/"><u>[Updated] In 2024, Candid's Canvas Transforming Photos with Editing Tips</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-ultimate-guide-to-top-12-action-cams-with-satellite-based-locators/"><u>[Updated] Ultimate Guide to Top 12 Action Cams with Satellite-Based Locators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-in-depth-explanation-implementing-cc-license-types/"><u>2024 Approved In-Depth Explanation Implementing CC License Types</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fast-solutions-resolve-issues-with-predictive-emojis-on-your-iphoneipad/"><u>Fast Solutions: Resolve Issues with Predictive Emojis on Your iPhone/iPad</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-artists-toolbox-essential-video-tips-for-musicians-on-youtube/"><u>In 2024, The Artist's Toolbox Essential Video Tips for Musicians on YouTube</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-xs-max-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone XS Max</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ltimate-journey-into-youtube-seo-and-keywords/"><u>The Ultimate Journey Into YouTube SEO and Keywords</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Self-Balancing  Snap Shots Without Supports for 2024\""
-date: 2024-07-13T16:28:57.257Z
-updated: 2024-07-14T16:28:57.257Z
+date: 2024-09-18T22:40:29.393Z
+updated: 2024-09-22T16:19:37.400Z
 tags:
   - ai video
   - ai youtube
@@ -75,15 +75,19 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
 
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 _All of your supplies plus the finished product._
@@ -108,20 +112,24 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,6 +138,15 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/iy-guide-screen-capture-and-sound-from-youtube/"><u>[New] DIY Guide Screen Capture & Sound From YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-yielding-yearly-yield-channel-to-currency-conversion/"><u>[New] In 2024, Yielding Yearly Yield Channel to Currency Conversion</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-digital-dollars-crafting-an-online-wealth-journey/"><u>2024 Approved Digital Dollars Crafting an Online Wealth Journey</u></a></li>
+<li><a href="https://techtrends.techidaily.com/diagnose-and-repair-dealing-with-rockalldlldll-not-found-system-issues/"><u>Diagnose and Repair: Dealing with Rockalldll.dll Not Found System Issues</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/in-2024-how-to-see-someones-location-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to See Someones Location on Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/managing-virtual-space-on-steam-for-games-access/"><u>Managing Virtual Space on Steam for Games Access</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/optimal-visual-performance-in-4k-titles-for-2024/"><u>Optimal Visual Performance in 4K Titles for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-10-translation-services-of-2024-best-subtitle-editors-reviewed/"><u>Top 10 Translation Services of 2024: Best Subtitle Editors Reviewed</u></a></li>
+</ul></div>
 

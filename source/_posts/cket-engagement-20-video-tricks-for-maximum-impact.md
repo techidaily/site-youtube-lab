@@ -1,7 +1,7 @@
 ---
 title: "\"Skyrocket Engagement  20 Video Tricks for Maximum Impact\""
-date: 2024-07-13T16:27:45.794Z
-updated: 2024-07-14T16:27:45.794Z
+date: 2024-09-21T22:43:51.301Z
+updated: 2024-09-22T18:11:55.371Z
 tags:
   - ai video
   - ai youtube
@@ -60,9 +60,6 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -83,6 +80,19 @@ This category talks about managing the video captions using the shortcut keys:
 | 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
+
+<!-- affiliate ads begin -->
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 5: Managing the Audio Video
 
@@ -120,6 +130,13 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -142,20 +159,24 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -164,6 +185,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-approaches-to-mend-obs-fullscreen-errors/"><u>[New] Approaches to Mend OBS Fullscreen Errors</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-perfecting-your-rl-game-captures/"><u>[New] Perfecting Your RL Game Captures</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-top-live-streaming-tech-software-and-hardware-for-youtube-enthusiasts-for-2024/"><u>[New] The Top Live Streaming Tech Software & Hardware for YouTube Enthusiasts for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-direct-links-sharing-twitch-content-with-friends-on-fb-for-2024/"><u>[Updated] Direct Links Sharing Twitch Content with Friends on FB for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-inspiration-on-screen-top-youtube-themes-for-channels-prosperity/"><u>[Updated] In 2024, Inspiration on Screen Top YouTube Themes for Channels' Prosperity</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-scope-to-screen-partnerships-for-mcns/"><u>[Updated] In 2024, Scope-to-Screen Partnerships for MCNs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/iciness-to-comfort-five-warm-backdrops-ideas-for-2024/"><u>From Iciness to Comfort Five Warm Backdrops Ideas for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-a-step-by-step-guide-to-youtube-image-branding/"><u>In 2024, A Step-by-Step Guide to YouTube Image Branding</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-can-i-unlock-my-apple-iphone-13-pro-after-forgetting-my-pin-code-by-drfone-ios/"><u>In 2024, How Can I Unlock My Apple iPhone 13 Pro After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://driver-download.techidaily.com/nvidia-quadro-windows-11-drivers-downloaded-guide-for-efficient-installation-and-troubleshooting-steps/"><u>NVIDIA Quadro Windows 11 Drivers Downloaded: Guide for Efficient Installation and Troubleshooting Steps</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/simplicity-in-capturing-your-lenovo-pics-for-2024/"><u>Simplicity in Capturing Your Lenovo Pics for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-silent-systems-how-to-restore-your-laptops-sound/"><u>Troubleshooting Silent Systems: How to Restore Your Laptop's Sound</u></a></li>
+</ul></div>
 

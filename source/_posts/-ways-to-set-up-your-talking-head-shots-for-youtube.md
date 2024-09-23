@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 4 Ways To Set Up Your Talking-Head Shots For YouTube\""
-date: 2024-07-13T16:28:22.507Z
-updated: 2024-07-14T16:28:22.507Z
+date: 2024-09-18T17:29:19.471Z
+updated: 2024-09-22T16:12:01.717Z
 tags:
   - ai video
   - ai youtube
@@ -53,9 +53,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -94,6 +91,13 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
@@ -102,20 +106,24 @@ To make a talking-head video more interesting, you can add some background music
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,6 +132,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-get-it-right-three-pro-tips-for-lol-gameplay-captures-for-2024/"><u>[New] Get It Right Three Pro Tips for LOL Gameplay Captures for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-art-of-perfect-video-quality-in-zoom-sessions-for-2024/"><u>[New] The Art of Perfect Video Quality in Zoom Sessions for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-dissecting-the-hidden-mechanics-behind-youtubes-popularity-index-for-2024/"><u>[Updated] Dissecting the Hidden Mechanics Behind YouTube's Popularity Index for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-profit-potential-unveiled-making-money-via-youtube-for-2024/"><u>[Updated] Profit Potential Unveiled Making Money via YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unlocking-youtubes-central-hub-for-video-crafting-for-2024/"><u>[Updated] Unlocking YouTube's Central Hub for Video Crafting for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-high-definition-revealed-logitechs-4k-webcam-review/"><u>2024 Approved High-Definition Revealed Logitech's 4K Webcam Review</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-transformative-tactics-for-developing-a-professional-youtubers-sanctuary-on-mobile/"><u>2024 Approved Transformative Tactics for Developing a Professional YouTubers' Sanctuary on Mobile</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-your-youtube-url-your-way-easy-personalization-steps/"><u>2024 Approved Your YouTube URL, Your Way Easy Personalization Steps</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/best-practices-for-preventing-flaws-in-ai-generation/"><u>Best Practices for Preventing Flaws in AI Generation</u></a></li>
+<li><a href="https://win-blog.techidaily.com/cod-black-ops-cold-war-issue-resolved-solving-the-error-code-80070057-problem/"><u>COD: Black Ops Cold War Issue Resolved! Solving the Error Code 80070057 Problem</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-efficient-video-cutting-techniques-to-boost-your-content/"><u>In 2024, Efficient Video Cutting Techniques to Boost Your Content</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-itel-a60-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Itel A60 to Another | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/kensun-mobile-pneumatic-inflator-review-proven-quality-for-on-the-go-fixes/"><u>Kensun Mobile Pneumatic Inflator Review: Proven Quality for On-the-Go Fixes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-vivo-v30-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Vivo V30 Phone Network-Ready</u></a></li>
+</ul></div>
 

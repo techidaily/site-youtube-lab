@@ -1,7 +1,7 @@
 ---
 title: "[New] Who's at the Apex? YouTube Subscribers Ranking"
-date: 2024-09-12T22:04:51.810Z
-updated: 2024-09-17T17:20:28.143Z
+date: 2024-09-20T19:48:31.340Z
+updated: 2024-09-22T21:19:03.413Z
 tags:
   - ai video
   - ai youtube
@@ -84,10 +84,10 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
@@ -97,28 +97,15 @@ Most channels that have one viral video do not go on to have sustained success o
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -133,6 +120,19 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -155,15 +155,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-fixing-the-problem-hidden-thumbnails-in-youtube-shorts/"><u>[New] In 2024, Fixing the Problem Hidden Thumbnails in YouTube Shorts</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-insiders-guide-to-crafting-perfect-instagram-posts/"><u>[Updated] In 2024, The Insider's Guide to Crafting Perfect Instagram Posts</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-ranking-10-must-see-history-youtube-channels-for-learners-for-2024/"><u>[Updated] Ranking 10 Must-See History YouTube Channels for Learners for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/beginners-guide-start-filming-with-ease-using-logitech-camera-for-2024/"><u>Beginner's Guide Start Filming with Ease Using Logitech Camera for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/configure-marvell-avastar-wifi-on-intel-system/"><u>Configure Marvell Avastar WiFi on Intel System</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-a-practical-approach-to-streaming-fb-content-on-your-apple-setup/"><u>In 2024, A Practical Approach to Streaming FB Content on Your Apple Setup</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-best-video-resolution-converter-for-windowsmaconline/"><u>In 2024, Best Video Resolution Converter [for Windows/Mac/Online]</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/inting-your-individual-playlist-hub-on-youtube/"><u>Pinpointing Your Individual Playlist Hub on YouTube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-breakdown-of-vyncs-link-tracker-service-dependable-user-monitoring-with-intricate-membership-schemes/"><u>The Breakdown of Vyncs Link Tracker Service: Dependable User Monitoring with Intricate Membership Schemes</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/oadmap-to-youtube-fame-accruing-more-subscribers/"><u>The Roadmap to YouTube Fame Accruing More Subscribers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-blueprint-for-buzz-elevating-your-profile-on-fb-for-2024/"><u>[New] Blueprint for Buzz Elevating Your Profile on FB for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/iscovering-how-youtube-runs-its-creator-workshop/"><u>[New] Discovering How YouTube Runs Its Creator Workshop</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-increasing-interior-vibrancy-suns-role-inside/"><u>[New] Increasing Interior Vibrancy Sun's Role Inside</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/op-15-must-use-gaming-tags-for-skyrocketing-views-on-youtube-for-2024/"><u>[New] Top 15 Must-Use Gaming Tags for Skyrocketing Views on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-add-timestamps-to-youtube-video-to-increase-views/"><u>[Updated] 2024 Approved How to Add Timestamps to YouTube Video to Increase Views</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-linguistic-leaders-list-of-top-33-apps-that-turn-videos-into-text/"><u>[Updated] 2024 Approved The Linguistic Leaders' List of Top 33 Apps That Turn Videos Into Text</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-enhancing-social-reach-youtube-videos-on-facebook-sites/"><u>[Updated] Enhancing Social Reach YouTube Videos on Facebook Sites</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/avoiding-chatgpt-impersonators-strategies-for-spotting-and-handling-fraudulent-sites/"><u>Avoiding ChatGPT Impersonators: Strategies for Spotting & Handling Fraudulent Sites</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-realme-c67-5g-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Realme C67 5G to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-step-backward-in-time-reversing-youtube-media/"><u>In 2024, Step Backward in Time Reversing YouTube Media</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Motorola Moto G84 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/51293441-in-2024-youtube-subscriber-awards-the-play-button-awards-for-creators/"><u>In 2024, YouTube Subscriber Awards The Play Button Awards for Creators</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/infinite-playground-top-10-affordable-online-adventures-for-2024/"><u>Infinite Playground Top 10 Affordable Online Adventures for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/masterclass-review-of-androids-adobe-lightroom-for-2024/"><u>Masterclass Review of Android's Adobe Lightroom for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hot-verbalizer/"><u>Snapshot Verbalizer</u></a></li>
 </ul></div>
 

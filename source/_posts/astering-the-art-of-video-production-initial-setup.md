@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering the Art of Video Production  Initial Setup\""
-date: 2024-09-13T19:49:56.478Z
-updated: 2024-09-17T19:28:47.259Z
+date: 2024-09-16T18:39:54.914Z
+updated: 2024-09-22T18:20:15.285Z
 tags:
   - ai video
   - ai youtube
@@ -77,13 +77,6 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -93,6 +86,13 @@ Another useful piece of lighting equipment to have is a reflector. A reflector i
 When you are choosing a tripod, pay attention to how much it weighs. If the camera that needs to be mounted on it is very heavy (like some DSLR models), you want to ensure that the structure itself weighs enough not to be easily tipped over. Too thin tripods can put your camera at risk, and that’s the last thing you want. Smaller cameras such as GoPros are more flexible in this regard and can be placed on a wider range of tripods.
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Smartphone Camera Gear
 
@@ -106,18 +106,18 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -140,12 +140,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/53554758-new-2024-approved-watch-9-free-full-length-christmas-movies-on-youtube/"><u>[New] 2024 Approved Watch 9 Free Full Length Christmas Movies On YouTube</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-enhancing-instagram-video-performance-desktop/"><u>[Updated] In 2024, Enhancing Instagram Video Performance (Desktop)</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-expand-your-horizon-best-15-online-science-platforms/"><u>[Updated] In 2024, Expand Your Horizon Best 15 Online Science Platforms</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ng-common-mishaps-youtube-short-edition-for-2024/"><u>Curbing Common Mishaps YouTube Short Edition for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/leveraging-free-luts-a-pathway-to-improved-obs-streaming-for-2024/"><u>Leveraging Free LUTs A Pathway to Improved OBS Streaming for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/utionize-your-content-delivery-with-live-streaming-expertise-for-2024/"><u>Revolutionize Your Content Delivery with Live Streaming Expertise for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/vivo-y100-5g-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Vivo Y100 5G Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-boosted-by-8-top-android-tools-no-more-slow-motion/"><u>[New] Boosted by 8 Top Android Tools, No More Slow Motion</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/oosting-your-channels-viewer-count-12-must-try-approaches/"><u>[New] Boosting Your Channel's Viewer Count - 12 Must-Try Approaches</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-virtual-broadcast-archivers/"><u>[Updated] In 2024, Virtual Broadcast Archivers</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-unearthing-user-generated-footage-on-facebook-for-2024/"><u>[Updated] Unearthing User-Generated Footage on Facebook for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-editors-assistant-top-5-portable-devices-for-vfx-artists/"><u>2024 Approved Editor's Assistant Top 5 Portable Devices for VFX Artists</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tless-entrepreneurship-top-10-easy-to-create-biz-channels-on-youtotube/"><u>Effortless Entrepreneurship Top 10 Easy-to-Create Biz Channels on YouToTube</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-credit-card-from-your-iphone-13-pro-apple-id-and-apple-pay-by-drfone-ios/"><u>In 2024, How to Change Credit Card from Your iPhone 13 Pro Apple ID and Apple Pay</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-super-camcorders-ranking-15-best-on-the-market/"><u>In 2024, Super Camcorders Ranking #15 Best on the Market</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-pictures-on-huawei-nova-y71-without-backup-by-fonelab-android-recover-pictures/"><u>The way to recover deleted pictures on Huawei Nova Y71 without backup.</u></a></li>
 </ul></div>
 

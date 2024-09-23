@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Personalizing Public vs Private Settings on YouTube"
-date: 2024-07-13T16:30:32.814Z
-updated: 2024-07-14T16:30:32.814Z
+date: 2024-09-16T18:06:32.498Z
+updated: 2024-09-22T18:50:34.979Z
 tags:
   - ai video
   - ai youtube
@@ -78,14 +78,18 @@ thumbnail: https://thmb.techidaily.com/c7fb1a1a59ed51b20bad7caf096cb0b1673edc9a7
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -93,20 +97,24 @@ thumbnail: https://thmb.techidaily.com/c7fb1a1a59ed51b20bad7caf096cb0b1673edc9a7
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -115,6 +123,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/rafting-team-videos-to-foster-viewership-and-following-for-2024/"><u>[New] Crafting Team Videos to Foster Viewership and Following for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-taking-igtv-viewership-to-new-peaks-5-innovative-approaches/"><u>[New] Taking IGTV Viewership to New Peaks 5 Innovative Approaches</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-embed-a-youtube-video-in-powerpoint/"><u>[Updated] How to Embed a YouTube Video in PowerPoint</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-how-to-convert-youtube-views-into-cash-through-ads/"><u>[Updated] In 2024, How to Convert YouTube Views Into Cash Through Ads</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-flavorful-frontier-groundbrenant-title-strategies-for-food-networks/"><u>2024 Approved Flavorful Frontier Groundbrenant Title Strategies for Food Networks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unlock-video-potential-the-best-10-flv-to-youtube-tools-at-a-glance/"><u>2024 Approved Unlock Video Potential The Best 10 Flv to YouTube Tools at a Glance</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unrivaled-guide-to-no-cost-photography-archives/"><u>2024 Approved Unrivaled Guide to No-Cost Photography Archives</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/audio-modification-methods-for-youtube-stars-for-2024/"><u>Best Audio Modification Methods for YouTube Stars for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/changing-the-game-in-education-are-traditional-essays-a-thing-of-the-past/"><u>Changing the Game in Education: Are Traditional Essays a Thing of the Past?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ehensible-guide-to-high-quality-audios-on-youtube-for-2024/"><u>Comprehensible Guide to High-Quality Audios on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/easy-way-to-edit-youtube-videos-in-imovie/"><u>Easy Way to Edit YouTube Videos in iMovie</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/expert-analysis-of-computer-hardware-by-tom/"><u>Expert Analysis of Computer Hardware by Tom</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-compress-iphone-videos-how-to-shorten-without-quality-loss/"><u>In 2024, Compress iPhone Videos How to Shorten Without Quality Loss</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/struggling-with-wmv-files-in-mac-osx-discover-how-to-get-them-to-work-without-quicktime/"><u>Struggling with WMV Files in Mac OSX? Discover How to Get Them to Work Without QuickTime</u></a></li>
+</ul></div>
 

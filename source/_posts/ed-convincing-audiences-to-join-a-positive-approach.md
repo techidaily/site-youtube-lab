@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Convincing Audiences to Join  A Positive Approach\""
-date: 2024-07-13T16:29:36.186Z
-updated: 2024-07-14T16:29:36.186Z
+date: 2024-09-18T20:46:08.522Z
+updated: 2024-09-22T20:59:03.062Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/c45afa71b37443a1f59fe90234d68b3b0e50e4c51
 
 # How to Get People to Subscribe to Your YouTube Channel
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -55,9 +52,6 @@ Collins Key is one YouTuber who has mastered asking for subscribers early on, an
 
 As you can see, the video starts with a ‘flash forward’ to one of the twins saying the heater is on fire and then a reminder of what’s going to happen later – the heater catching fire – is written in the top left of the screen so it stays on the viewers' mind. This is one way in which the viewer is immediately hooked.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
 #### Step 2: Get to The Point Quickly
@@ -68,9 +62,6 @@ Shortly after, while still in the first 30 seconds of the video, Collins gets ri
 
 It’s only after hooking the viewer in and reiterating the promise of the title that Collins asks viewers to subscribe. The really clever thing about how he asks is that he carves out time in the video for the viewer to comply with his request. He gives 5 seconds and does a countdown.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
@@ -95,14 +86,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -111,6 +99,27 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-from-basic-to-brilliant-top-100plus-biographies-that-captivate-audiences/"><u>[New] 2024 Approved From Basic to Brilliant Top 100+ Biographies that Captivate Audiences</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-mastering-video-trimming-on-windows-10-tips-for-efficiency-and-precision/"><u>[New] 2024 Approved Mastering Video Trimming on Windows 10 Tips for Efficiency and Precision</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-video-gurus-playbook-smooth-transition-to-easy-youtube-cc-and-subtitles/"><u>[New] The Video Guru's Playbook Smooth Transition to Easy YouTube CC & Subtitles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-comprequad-video-captioning-techniques-for-youtube/"><u>[Updated] 2024 Approved The Comprequad Video Captioning Techniques for YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-media-integration-adding-online-yt-videos-to-ppts/"><u>[Updated] In 2024, Mastering Media Integration Adding Online YT Videos to PPTs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-splitting-screen-techniques-for-engaging-youtube-content/"><u>[Updated] Splitting Screen Techniques for Engaging YouTube Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-elegant-aesthetics-mastering-youtubes-beauty-landscape/"><u>2024 Approved Elegant Aesthetics Mastering YouTube's Beauty Landscape</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-next-level-shooting-lens-selections-for-online-creators/"><u>2024 Approved Next-Level Shooting Lens Selections for Online Creators</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/instas-best-practices-choosing-videography-sizes-and-formats-for-2024/"><u>Insta's Best Practices - Choosing Videography Sizes & Formats for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-ensuring-your-hardware-drivers-work-seamlessly-with-windows-update-solved/"><u>Resolved! Ensuring Your Hardware Drivers Work Seamlessly With Windows Update (Solved)</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-xiaomi-14-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Xiaomi 14 Phone Hassle-Free</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-obs-recording-settings-of-2024-expert-tips-from-movavi/"><u>Top OBS Recording Settings of 2024: Expert Tips From Movavi</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/unboxing-samsungs-latest-innovation-the-galaxy-z-fold-series-6-pricing-details-and-release-schedule-revealed/"><u>Unboxing Samsung's Latest Innovation - The Galaxy Z Fold Series 6: Pricing Details and Release Schedule Revealed</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Your Life, Your Legacy  YouTube Videos That Matter\""
-date: 2024-07-13T16:34:14.551Z
-updated: 2024-07-14T16:34:14.551Z
+date: 2024-09-18T20:06:49.707Z
+updated: 2024-09-22T16:43:13.363Z
 tags:
   - ai video
   - ai youtube
@@ -39,9 +39,6 @@ YouTube is a great platform you can use not only to share your gifts and talents
 * [25 Facts About Me](#nine)
 * [YouTube Live/Webinar](#ten)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\.  Channel Trailer
 
 Before posting any videos on your channel, it can be a great idea to [create a “Channel Trailer”](https://tools.techidaily.com/wondershare/filmora/download/) summarizing who you are and what your channel is all about.
@@ -55,6 +52,13 @@ On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebrat
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\.  Snapchat/Instagram Stories Q&A
 
@@ -72,6 +76,13 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
@@ -84,11 +95,25 @@ This is probably one of the easiest ways to share things about yourself when sta
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Custom Your Video with Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -96,14 +121,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -112,6 +134,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/updated-beautys-brightest-stars-youtube-personalities-to-follow/"><u>[Updated] Beauty's Brightest Stars YouTube Personalities to Follow</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-mastering-ps3-classics-on-your-pc-with-top-tools/"><u>[Updated] In 2024, Mastering PS3 Classics on Your PC with Top Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-navigating-earnings-skyward-youtube-analytics-and-advertising-guide/"><u>[Updated] In 2024, Navigating Earnings Skyward YouTube Analytics & Advertising Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-amplify-views-and-engagement-through-google-analytics-expertise/"><u>2024 Approved Amplify Views & Engagement Through Google Analytics Expertise</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-facilitating-instant-sharing-tiktok-videos-on-facebook/"><u>2024 Approved Facilitating Instant Sharing TikTok Videos on Facebook</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-top-software-for-game-recordings/"><u>2024 Approved Top Software for Game Recordings</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/cloak-the-ctrl-secure-settings-in-win-1011/"><u>Cloak the CTRL - Secure Settings in Win 10/11</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/al-dominion-for-techno-gamers-for-2024/"><u>Digital Dominion for Techno Gamers for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/five-essential-tips-for-troubleshooting-wows-crashes-on-personal-computers/"><u>Five Essential Tips for Troubleshooting WoWs Crashes on Personal Computers</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-on-iphone-15-pro-max-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock on iPhone 15 Pro Max</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/is-it-time-to-switch-to-a-state-of-the-art-apple-watch-version/"><u>Is It Time to Switch to a State-of-the-Art Apple Watch Version</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-leading-virtual-realities-iphone-and-android-guide-for-2024/"><u>The Leading Virtual Realities IPhone & Android Guide for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-movie-magic-for-minis-teach-your-child-to-create-their-own-films/"><u>Updated In 2024, Movie Magic for Minis Teach Your Child to Create Their Own Films</u></a></li>
+</ul></div>
 

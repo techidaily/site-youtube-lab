@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Top 8 Pitfalls for Novice YouTube Creators"
-date: 2024-07-13T16:33:11.659Z
-updated: 2024-07-14T16:33:11.659Z
+date: 2024-09-16T20:10:06.899Z
+updated: 2024-09-22T20:07:35.324Z
 tags:
   - ai video
   - ai youtube
@@ -44,9 +44,6 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Coming up with titles that won't get searched
 
 Many new YouTubers make the mistake of titling their videos in an ineffective way. Rather than coming up with titles that more people might search, they either come up with titles that summarize what the video is about as a whole or title their videos the way big YouTubers do.
@@ -75,11 +72,37 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8\. Spamming comments
 
@@ -91,20 +114,24 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -113,6 +140,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-advanced-mac-screen-plus-sound-capturer-extraordinaire/"><u>[New] 2024 Approved Advanced Mac Screen + Sound Capturer Extraordinaire</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-from-chords-to-clicks-mastering-music-on-ig/"><u>[New] In 2024, From Chords to Clicks Mastering Music on IG</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/erfect-pixels-selecting-best-cameras-for-yt-for-2024/"><u>[New] Perfect Pixels Selecting Best Cameras For YT for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-efficiently-downloading-youtube-sections-in-minutes-for-2024/"><u>[Updated] Efficiently Downloading YouTube Sections in Minutes for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-10-online-tools-to-retrieve-youtube-graphics/"><u>[Updated] In 2024, 10 Online Tools to Retrieve YouTube Graphics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-navigating-and-adapting-youtubes-evolving-policy-landscape-for-2024/"><u>[Updated] Navigating and Adapting YouTube's Evolving Policy Landscape for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unveiling-your-signature-look-a-beginners-blueprint/"><u>[Updated] Unveiling Your Signature Look A Beginner's Blueprint</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-beacon-of-ringtone-richness-online/"><u>2024 Approved Beacon of Ringtone Richness Online</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/behringer-audio-drivers-immediate-downloads-for-enhanced-sound-control/"><u>Behringer Audio Drivers: Immediate Downloads for Enhanced Sound Control</u></a></li>
+<li><a href="https://win11.techidaily.com/from-chaos-to-order-windows-arrow-restoration-guide/"><u>From Chaos to Order: Windows Arrow Restoration Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/cting-your-youtube-closings-essential-insights-and-tips/"><u>Perfecting Your YouTube Closings - Essential Insights & Tips</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolve-your-nba-2k23-pc-problems-effortlessly-learn-about-the-7-best-solutions-available-now/"><u>Resolve Your NBA 2K23 PC Problems Effortlessly: Learn About the 7 Best Solutions Available Now!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/treamers-crossroad-navigating-between-vimeo-youtube-dailymotion-for-2024/"><u>The Streamer's Crossroad Navigating Between Vimeo, YouTube, Dailymotion for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-how-to-repair-intels-driver-and-support-tool-issues/"><u>Troubleshooting Guide: How to Repair Intel's Driver & Support Tool Issues</u></a></li>
+</ul></div>
 

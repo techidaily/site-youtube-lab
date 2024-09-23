@@ -1,7 +1,7 @@
 ---
 title: "Making a Splash with YouTube Ad Banners & Thumbnails"
-date: 2024-07-13T16:33:13.864Z
-updated: 2024-07-14T16:33:13.864Z
+date: 2024-09-18T20:26:19.137Z
+updated: 2024-09-22T20:03:06.566Z
 tags:
   - ai video
   - ai youtube
@@ -26,9 +26,6 @@ thumbnail: https://thmb.techidaily.com/b750413312d41df96b3e21641f92f421092aa1540
 
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Make YouTube Banners and Thumbnails
 
 YouTube Banners and Thumbnails are two of the most important pieces of channel art you will need. This article will explain the best practices for both, and suggest sites where you will be able to build your own banners and thumbnails for free.
@@ -70,16 +67,10 @@ There are sites online that will allow you to edit images and use them in templa
 
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
 
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -88,14 +79,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,6 +92,25 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-a-step-by-step-guide-to-youtube-shorts-excellence/"><u>[New] In 2024, A Step-by-Step Guide to YouTube Shorts Excellence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/treamlined-conversion-at-your-fingertips-top-6-free-apps-for-youtube-and-mp3-for-2024/"><u>[New] Streamlined Conversion at Your Fingertips Top 6 Free Apps for YouTube & MP3 for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nlock-the-power-of-organic-youtube-growth-2-ways-for-2024/"><u>[New] Unlock the Power of Organic YouTube Growth (2 Ways) for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-digital-duel-how-jake-paul-triumphed-on-youtube-for-2024/"><u>[Updated] The Digital Duel How Jake Paul Triumphed on YouTube for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-xs-to-an-older-ios-system-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone XS to an Older iOS System Version? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ou-can-get-paid-for-videos/"><u>How You Can Get Paid for Videos</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-4-ways-to-unlock-apple-iphone-xr-to-use-usb-accessories-without-passcode-drfone-by-drfone-ios/"><u>In 2024, 4 Ways to Unlock Apple iPhone XR to Use USB Accessories Without Passcode | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/pinnacle-positioner-tripod-for-the-mobile-photographer/"><u>Pinnacle Positioner Tripod: For the Mobile Photographer</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/cting-the-new-wave-of-social-media-infographic-style/"><u>Predicting the New Wave of Social Media - Infographic Style</u></a></li>
+<li><a href="https://solve-help.techidaily.com/removing-amazons-digital-restrictions-a-comprehensive-tutorial-for-kindle-ebook-liberation/"><u>Removing Amazon's Digital Restrictions: A Comprehensive Tutorial for Kindle eBook Liberation</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-oppo-find-n3-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Oppo Find N3 Unresponsive Screen | Dr.fone</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

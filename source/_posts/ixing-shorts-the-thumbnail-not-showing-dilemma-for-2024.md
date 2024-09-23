@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Fixing Shorts  The Thumbnail Not Showing Dilemma for 2024\""
-date: 2024-07-13T16:30:43.175Z
-updated: 2024-07-14T16:30:43.175Z
+date: 2024-09-15T21:16:46.072Z
+updated: 2024-09-22T20:27:04.568Z
 tags:
   - ai video
   - ai youtube
@@ -45,9 +45,6 @@ Adding a custom thumbnail for YouTube Shorts is the same as adding one for long-
 
 ![changing shorts thumbnail on youtube studio](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-5.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## Q2\. Why Are YouTube Shorts Thumbnails Not Showing?
 
 It's not you who's the only one with Shorts thumbnails not showing. Many short-form content creators on the platform are also facing this issue. A YouTuber took to Reddit to complain about how he uploaded custom thumbnails for all his videos. The thumbnails are correct in the editor. However, YouTube still displays a random frame as the thumbnail on the Shorts shelf.
@@ -88,6 +85,13 @@ The best thing is that you don't need to transfer the video from your phone to y
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Q6\. Do YouTube Shorts Make Money?
 
 Making money from YouTube Shorts was challenging. The platform pays content creators who are doing well through the Creator Fund. However, as Shorts grew, the payout became smaller.
@@ -150,6 +154,13 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 
 ![filmora mobile feature showcase](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-filmora.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The best thing is that you don't need to transfer the video from your phone to your computer and back. Wondershare Filmora is available on mobile. And it's one of the best tools for enhancing a short-form video.
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
@@ -165,6 +176,13 @@ YouTube also adjusted the requirements to qualify for the YPP. They made it easi
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### On a Desktop Computer
 
@@ -184,6 +202,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### On a Mobile Phone
 
 * Open the YouTube app. Watch a Shorts video.
@@ -201,6 +226,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Scroll down to find "Liked Videos." Click on it.
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the Shorts video you just watched. It should be at the top of the list.
 
@@ -224,8 +256,6 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -233,6 +263,17 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-easy-steps-to-deactivate-igtv/"><u>[New] 2024 Approved Easy Steps to Deactivate IGTV</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-perfect-shots-a-guide-to-capturing-engaging-youtube-content/"><u>[New] In 2024, Perfect Shots A Guide to Capturing Engaging YouTube Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/outubes-shorts-a-deep-dive-into-content-creation-and-revenue/"><u>[New] YouTube's Shorts A Deep Dive Into Content Creation and Revenue</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-shortcut-to-success-the-top-5-youtube-link-trimming-apps-for-2024/"><u>[Updated] Shortcut to Success The Top 5 YouTube Link Trimming Apps for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/asus-unveils-the-first-ever-gaming-desktop-pc-the-rog-nuc-with-core-ultra-9-processors-and-rtx-letech-rtx-4070-graphics-available-from-1629/"><u>Asus Unveils the First-Ever Gaming Desktop PC - The ROG NUC with Core Ultra 9 Processors and RTX Letech RTX 4070 Graphics, Available From $1,629.</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-zte-nubia-flip-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone ZTE Nubia Flip 5G Phone? | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/elevate-user-experience-using-the-power-of-cookiebot/"><u>Elevate User Experience Using the Power of Cookiebot</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/elevating-your-contents-impact-an-in-depth-look-at-youtube-thumbnail-size-for-2024/"><u>Elevating Your Content's Impact An In-Depth Look at YouTube Thumbnail Size for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-honor-x50-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Honor X50 Phone that is Locked?</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/secure-your-spot-in-digital-communication-hubs-without-phone-numbers-joining-chatgpt-telegram-and-whatsapp-easily/"><u>Secure Your Spot in Digital Communication Hubs without Phone Numbers: Joining ChatGPT, Telegram, and WhatsApp Easily!</u></a></li>
+</ul></div>
 

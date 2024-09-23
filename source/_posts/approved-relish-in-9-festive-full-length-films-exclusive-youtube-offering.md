@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Relish in 9 Festive, Full-Length Films  Exclusive YouTube Offering\""
-date: 2024-09-14T19:57:30.208Z
-updated: 2024-09-17T21:18:24.100Z
+date: 2024-09-21T21:40:42.081Z
+updated: 2024-09-22T16:16:00.332Z
 tags:
   - ai video
   - ai youtube
@@ -43,9 +43,23 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
@@ -55,13 +69,6 @@ In this film from 1998 we hear the story of the richest kid in the world on Chri
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
@@ -70,19 +77,6 @@ Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday 
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
 
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 9. Miracle on 34th street
 
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
@@ -90,10 +84,10 @@ In this recreation of the original film from 1947 this shortened full-length ver
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -117,15 +111,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ltimate-list-templates-for-youtube-previews-for-2024/"><u>[New] Ultimate List Templates for YouTube Previews for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-shadowing-snaptaking-discreet-methods-to-capture-snapchats/"><u>[Updated] 2024 Approved Shadowing SnapTaking Discreet Methods to Capture SnapChats</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-visual-branding-in-youtubes-design-tips-for-2024/"><u>[Updated] Visual Branding in YouTubes Design Tips for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/discovering-youtubes-finest-storyweavers/"><u>Discovering YouTube's Finest Storyweavers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-inspiration-on-a-plate-top-20-instagram-food-photos/"><u>In 2024, Inspiration on a Plate Top 20 Instagram Food Photos</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-streamline-editing-how-to-load-music-in-inshot/"><u>In 2024, Streamline Editing How to Load Music in InShot</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/selective-selection-best-bands-for-ringtones-for-2024/"><u>Selective Selection Best Bands for Ringtones for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/controlled-online-guide-to-blocking-distracting-youtube-channels/"><u>Stay Controlled Online Guide to Blocking Distracting YouTube Channels</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/efinitive-guide-for-effective-and-smooth-youtube-video-uploads/"><u>The Definitive Guide for Effective and Smooth YouTube Video Uploads</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Realme Narzo N53? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-earnings-on-youtube-a-monthly-perspective/"><u>[New] In 2024, Earnings on YouTube A Monthly Perspective?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/avigating-to-your-digital-editing-oasis-on-youtube/"><u>[New] Navigating to Your Digital Editing Oasis on YouTube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-download-directly-from-instagram-a-methodology-for-iphone-users/"><u>[Updated] Download Directly From Instagram A Methodology for iPhone Users</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-innovator-in-visual-symphony-production/"><u>[Updated] Innovator in Visual Symphony Production</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-virtual-world-real-profit-for-game-makers/"><u>[Updated] Virtual World, Real Profit for Game Makers</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-phrases-decoded-simplifying-the-technical-jargon/"><u>AI Phrases Decoded: Simplifying the Technical Jargon</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crystal-clarity-in-depth-comparison-of-premium-8k-monitors/"><u>Crystal Clarity In-Depth Comparison of Premium 8K Monitors</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tial-illumination-strategies-for-filming-for-2024/"><u>Essential Illumination Strategies for Filming for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-honor-x50-gt-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Honor X50 GT Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Vivo V29? | Dr.fone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-pricing-guide-to-film-a-bands-music-visual/"><u>In 2024, Pricing Guide to Film a Band's Music Visual</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-the-essence-of-clubhouse-uncovered-insights-into-its-core-values-user-experience-and-impact-on-digital-interactions/"><u>New The Essence of Clubhouse Uncovered Insights Into Its Core Values, User Experience, and Impact on Digital Interactions</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-7-must-have-mobile-navigation-tools-the-best-traffic-apps/"><u>Top 7 Must-Have Mobile Navigation Tools: The Best Traffic Apps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/king-video-popularity-a-comprehensive-guide-to-tagging-on-youtube/"><u>Unlocking Video Popularity A Comprehensive Guide to Tagging on YouTube</u></a></li>
 </ul></div>
 

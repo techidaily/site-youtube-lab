@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2024-07-13T16:30:55.216Z
-updated: 2024-07-14T16:30:55.216Z
+date: 2024-09-20T18:53:56.426Z
+updated: 2024-09-22T16:07:48.215Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/06e60fe3d947d58be6e231820ad1f116434db798e
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -80,9 +77,6 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -116,9 +110,6 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -127,14 +118,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -143,6 +131,30 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-insta-reel-power-mimicking-high-flying-tiktok-methods/"><u>[New] 2024 Approved Insta Reel Power Mimicking High-Flying TikTok Methods</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hos-at-the-apex-youtube-subscribers-ranking/"><u>[New] Who's at the Apex? YouTube Subscribers Ranking</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-guide-to-the-8-truly-effective-youtube-marketing-methods/"><u>[Updated] 2024 Approved A Guide to the 8 Truly Effective Youtube Marketing Methods</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-most-essential-5-earbuds-for-gaming/"><u>[Updated] 2024 Approved The Most Essential 5 Earbuds for Gaming</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-laughters-legacy-the-process-of-parody-film-making-for-2024/"><u>[Updated] Laughter's Legacy The Process of Parody Film-Making for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/audio-aesthetics-in-whatsapp-updates-for-2024/"><u>Audio Aesthetics in WhatsApp Updates for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ngs-engineering-crafting-a-high-yield-strategy-for-your-youtube-channel/"><u>Earnings Engineering Crafting a High Yield Strategy for Your YouTube Channel</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-google-pixel-7a-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Google Pixel 7a.</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-edit-with-ease-10-video-to-mp3-tools-of-the-trade/"><u>In 2024, Edit with Ease #10 Video-to-Mp3 Tools of the Trade</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-lava-yuva-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Lava Yuva 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/umental-showcase-highlighting-the-best-15-video-techniques-for-2024/"><u>Instrumental Showcase Highlighting the Best 15 Video Techniques for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Honor X8b | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/masterful-multiplatform-apps-for-dynamic-media-collage-for-2024/"><u>Masterful Multiplatform Apps for Dynamic Media Collage for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/cting-the-new-wave-of-social-media-infographic-style/"><u>Predicting the New Wave of Social Media - Infographic Style</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-ai-prompt-injection-attacks-mechanisms-and-impacts/"><u>Understanding AI Prompt Injection Attacks: Mechanisms and Impacts</u></a></li>
+<li><a href="https://extra-information.techidaily.com/understanding-audio-confluence-the-essence-of-crossfade/"><u>Understanding Audio Confluence The Essence of Crossfade</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

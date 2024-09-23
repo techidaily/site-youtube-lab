@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Fix YouTube Video Black Screen\""
-date: 2024-07-13T16:31:55.027Z
-updated: 2024-07-14T16:31:55.027Z
+date: 2024-09-15T19:49:42.593Z
+updated: 2024-09-22T17:49:54.675Z
 tags:
   - ai video
   - ai youtube
@@ -86,9 +86,6 @@ Sometimes even the web browser history and caches can also prevent a YouTube vid
 
 After launching the web browser (Google Chrome is used here for example), go to the **Customize and control Google Chrome** menu, and then go to **More tools**, and then select **Clear browsing data**.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![clear google chrome cache](https://images.wondershare.com/filmora/article-images/clear-google-chrome-cache.jpg)
 
 Switch between the **Basic** and **Advanced** tabs on the **Clear browsing data** box to choose the records that you want to delete, and then choose your preferred duration of the records from the **Time range** drop-down list.
@@ -107,6 +104,19 @@ Turn off the switch for each of the installed extensions to check if the issue i
 
 ![disable google chrome extension](https://images.wondershare.com/filmora/article-images/disable-google-chrome-extensions.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** If this solution works, you can try enabling the extensions one at a time, and check turning on which one causes **YouTube video black screen**. Once the culprit extension is found, you can click **Remove** to get rid of it altogether.
 
 **Solution 6: Reinstall the Browser**
@@ -120,6 +130,13 @@ If the video is visible on a different web browser, probably the default one tha
 • Click to select the browser from the list of installed apps (Google Chrome here) and select **Uninstall** from above the list.
 
 • Follow the on-screen instructions from there to remove the web browser from your PC. Next, use Microsoft Edge (or any other browser) to download and install a fresh copy of Google Chrome and see if the issue is fixed
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. ISP or Internet Speed Solution(s)
 
@@ -146,6 +163,19 @@ Type **CMD** in the **Cortana** search box, and click **Run as administrator** f
 Click **Yes** on the **User Account Control** confirmation box, and in the **Command Prompt** window, type **IPCONFIG /FLUSHDNS** and press Enter
 
 ![use command to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/use-command-to-fix-youtube-black-screen.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Try opening the YouTube video again and see if the issue is fixed
 
@@ -185,20 +215,24 @@ Long-tap the YouTube app on your iOS device, and then tap **Remove App**, and th
 
 ![fix YouTube black screen on iPhone](https://images.wondershare.com/filmora/article-images/delete-youtube-from-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Go to **App Store** and download and install a fresh copy of YouTube, and see if the problem is resolved.
 
 **Conclusion**
 
 There could be several reasons for **YouTube black screen**, and depending on the root cause of the issue, the troubleshooting methods may vary. While some inconsistencies can be fixed from within the web browser itself, at times you may need to tweak your operating system to get an accurate solution. Likewise, while using an Android smartphone, you can clear YouTube data and cache; and remove and reinstall the app altogether when on an iOS device.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -207,6 +241,18 @@ There could be several reasons for **YouTube black screen**, and depending on th
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/he-video-gurus-playbook-smooth-transition-to-easy-youtube-cc-and-subtitles/"><u>[New] The Video Guru's Playbook Smooth Transition to Easy YouTube CC & Subtitles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-syncopated-synths-selecting-top-quality-dj-templates-online/"><u>[Updated] 2024 Approved Syncopated Synths Selecting Top Quality DJ Templates Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-comprequad-video-captioning-techniques-for-youtube/"><u>[Updated] 2024 Approved The Comprequad Video Captioning Techniques for YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-media-integration-adding-online-yt-videos-to-ppts/"><u>[Updated] In 2024, Mastering Media Integration Adding Online YT Videos to PPTs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-splitting-screen-techniques-for-engaging-youtube-content/"><u>[Updated] Splitting Screen Techniques for Engaging YouTube Content</u></a></li>
+<li><a href="https://fox-that.techidaily.com/9-recurrering-problems-with-apples-icloud-service-solutions-explored/"><u>9 Recurrering Problems with Apple's iCloud Service – Solutions Explored</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/harnessing-chatgpt-6-essential-tips-for-a-dream-dm-experience/"><u>Harnessing ChatGPT: 6 Essential Tips for a Dream DM Experience</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/hytes-nexus-link-revolutionize-pc-building-with-its-huge-display-aio-cooler-and-magnetic-snap-together-fans/"><u>Hyte's Nexus Link: Revolutionize PC Building with Its Huge Display AIO Cooler and Magnetic Snap Together Fans</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-a14-4g-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy A14 4G Phone without PIN</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Motorola Moto G04? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/insta-chat-101-an-introduction-to-online-video-talks-for-2024/"><u>Insta Chat 101 An Introduction to Online Video Talks for 2024</u></a></li>
+</ul></div>
 

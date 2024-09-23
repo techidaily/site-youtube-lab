@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Unveil the Secrets to Excellent YouTube Thumbnails"
-date: 2024-07-13T16:30:16.221Z
-updated: 2024-07-14T16:30:16.221Z
+date: 2024-09-21T21:17:00.746Z
+updated: 2024-09-22T19:51:01.423Z
 tags:
   - ai video
   - ai youtube
@@ -73,18 +73,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
@@ -115,14 +103,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,6 +116,27 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-art-of-condensation-editing-youtube-video-durations/"><u>[New] The Art of Condensation Editing YouTube Video Durations</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-smart-youtubers-playbook-fixing-short-snafus-for-2024/"><u>[New] The Smart Youtuber's Playbook Fixing Short Snafus for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-compact-guide-to-creating-viral-music-on-youtube/"><u>[Updated] In 2024, The Compact Guide to Creating Viral Music on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-navigating-complex-editing-a-practical-guide-for-youtube-video-creators-on-pc-for-2024/"><u>[Updated] Navigating Complex Editing A Practical Guide for YouTube Video Creators on PC for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-pros-choice-the-ultimate-list-of-7-live-streaming-apps-for-youtube-iosandroid-for-2024/"><u>[Updated] Pro's Choice The Ultimate List of 7 Live Streaming Apps for YouTube (iOS/Android) for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-yuneec-typhoon-q500-4k-review-for-2024/"><u>[Updated] Yuneec Typhoon Q500 4K Review for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-the-ultimate-review-of-ispring-recording-tech/"><u>2024 Approved The Ultimate Review of iSpring Recording Tech</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/from-ideas-to-reality-chatgpts-role-in-sound-synthesis/"><u>From Ideas to Reality: ChatGPT's Role in Sound Synthesis</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-crafting-a-legacy-youtubers-playbook-for-success/"><u>In 2024, Crafting a Legacy YouTuber’s Playbook for Success</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/logitech-webcam-basics-video-recording-made-easy/"><u>Logitech Webcam Basics Video Recording Made Easy</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/izing-revenue-a-youtube-channelers-guide-for-2024/"><u>Maximizing Revenue A YouTube Channeler’s Guide for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/restoring-deleted-characters-a-guide-for-windows-users/"><u>Restoring Deleted Characters: A Guide for Windows Users</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-xiaomi-redmi-note-12-5g-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Xiaomi Redmi Note 12 5G FRP</u></a></li>
+</ul></div>
 
-
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

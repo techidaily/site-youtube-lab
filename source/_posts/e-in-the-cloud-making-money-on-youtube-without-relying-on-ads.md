@@ -1,7 +1,7 @@
 ---
 title: "\"Income in the Cloud  Making Money on YouTube Without Relying on Ads\""
-date: 2024-09-11T17:26:02.366Z
-updated: 2024-09-17T16:04:19.342Z
+date: 2024-09-16T19:21:28.322Z
+updated: 2024-09-22T18:25:09.437Z
 tags:
   - ai video
   - ai youtube
@@ -59,6 +59,13 @@ This is a general estimate of how much a YouTuber can make from ads once they qu
 
 \- 1000 video views will equal between $2-$5
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Why It’s So Hard for YouTubers to Make Money From Ads**
 
 For new YouTubers, it is getting harder and harder to get to that point where their sole income can be from YouTube ads. Before they can make a penny, they must first qualify.
@@ -93,6 +100,13 @@ Here are some examples of products and services you can offer:
 
  ![YouTuber Jake Paul ](https://images.wondershare.com/filmora/article-images/jack-paul1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/collections/)_to sell his merch._
 
 #### **Services:**
@@ -121,13 +135,6 @@ If you are selling a meditation eBook and guided meditation services, type in so
 
 ![meditation](https://images.wondershare.com/filmora/article-images/meditation3.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 From there, take your possible keywords and put them into a tool such as [Ubersuggest](https://neilpatel.com/ubersuggest/)to find other related keywords. This will help you create discoverable content that will catch the interest of those who will buy what you are selling.
 
  **2\. Your content must have value:** You cannot start with the Call to Action or try selling to your audience right away. You must first build trust and prove that what you are selling has value.
@@ -144,50 +151,24 @@ The video is over 9 minutes long and not once does he tell his audience to buy a
 
 ![link in the description box](https://images.wondershare.com/filmora/article-images/link-in-description-box4.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **The YouTube Card:**
 
 ![youtube card tutorial](https://images.wondershare.com/filmora/article-images/youtube-card-tutorial5.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![youtube card details](https://images.wondershare.com/filmora/article-images/youtube-card-details6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can add one or multiple cards to direct viewers to your website or to another related video.
 
  **Call to action button:**
 
 **![call to action button](https://images.wondershare.com/filmora/article-images/call-to-action-button7.jpg)**
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Once the viewer is on your website, make sure the path is apparent as well. Have a clear call to action somewhere on your website. This is where your viewers become customers.
 
@@ -261,19 +242,6 @@ In an ad for Beats by Dre’s #BuiltForBosses campaign, YouTuber [Liza Koshy out
 
 ![perform the likes](https://images.wondershare.com/filmora/article-images/perform-the-likes9.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 While it does take significant effort on YouTube to acquire a following, it is possible for a YouTube channel with 1,000 subscribers to get a brand deal. Getting the buy-in from brands is a numbers game, and according to [Video Creators](https://videocreators.com/how-to-get-started-with-brand-deals-on-youtube/), the minimal number of views per video shouldn’t be lower than 2,000 if this is the path you want to head in.
 
 #### **How to Get Discovered By Brands**
@@ -300,6 +268,13 @@ Steps to getting a brand deal:
  Unlike celebrity marketing, YouTube creators have shown brands over the years that they are inventive and clever with how they can present the brand to the audience to drive the best results. This type of independence is what makes YouTube influencer marketing special.
 
 ##  
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **4\. Crowdfunding:**
 
@@ -348,6 +323,13 @@ Got questions about making money on YouTube? Leave a comment below. We love to h
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -369,16 +351,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/etro-playback-inverting-your-youtube-content-for-2024/"><u>[New] Retro Playback Inverting Your YouTube Content for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ocial-video-marketing-insights-for-small-business-infographic/"><u>[New] Social Video Marketing Insights for Small Business [Infographic]</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-techniques-for-embedding-youtube-in-slides-on-google-slate/"><u>[Updated] In 2024, Techniques for Embedding YouTube in Slides on Google Slate</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-master-list-of-youtube-templates-for-beginners/"><u>2024 Approved Master List of YouTube Templates for Beginners</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/track-a-step-by-step-guide-for-swiftly-deleting-comments-on-youtube/"><u>Fast Track A Step by Step Guide for Swiftly Deleting Comments on YouTube</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-vivo-t2x-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Vivo T2x 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/optimizing-disk-usage-for-microsoft-telemetry-services-under-windows-11/"><u>Optimizing Disk Usage for Microsoft Telemetry Services Under Windows 11</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/real-time-broadcasting-with-manycam-top-apps-for-streaming-and-virtual-backgrounds/"><u>Real-Time Broadcasting with ManyCam: Top Apps for Streaming and Virtual Backgrounds</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/top-5-xiaomi-13t-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Xiaomi 13T Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-what-is-an-ai-video-editor/"><u>Updated In 2024, What Is an AI Video Editor?</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-simplify-collaboration-in-windows-10-effective-use-of-zoom-services/"><u>[New] Simplify Collaboration in Windows 10 Effective Use of Zoom Services</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-tips-and-tricks-for-easy-and-effective-xbox-gameplay-capture-for-2024/"><u>[New] Tips & Tricks for Easy and Effective Xbox Gameplay Capture for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-best-low-cost-android-calls-compared-ranking/"><u>[Updated] Best Low-Cost Android Calls Compared Ranking</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-ios-video-editing-made-easy-the-top-5-apps-for-2024/"><u>[Updated] IOS Video Editing Made Easy The Top 5 Apps for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723207746840-fix-logitech-keyboard-not-working-issue-easily/"><u>Fix Logitech Keyboard Not Working Issue. Easily</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-samsung-galaxy-a05-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Honor Play 8T? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-perfect-for-broadcasters-top-360-cameras-listed/"><u>In 2024, Perfect for Broadcasters Top 360° Cameras Listed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-travel-blogging-essentials-step-by-step-path-to-success/"><u>In 2024, Travel Blogging Essentials Step-by-Step Path to Success</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-online-presence-fb-tutorial/"><u>Securing Your Online Presence: FB Tutorial</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unleashing-excels-full-potential-with-chatgpt-guidance/"><u>Unleashing Excel's Full Potential with ChatGPT Guidance</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/next-great-story-selecting-free-android-editing-tools-for-2024/"><u>Your Next Great Story Selecting Free Android Editing Tools for 2024</u></a></li>
 </ul></div>
 

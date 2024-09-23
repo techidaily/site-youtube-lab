@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Enhancing User Experience  A Quick How-To for YouTube CC & Subtitles\""
-date: 2024-07-13T16:34:17.778Z
-updated: 2024-07-14T16:34:17.778Z
+date: 2024-09-20T23:05:05.912Z
+updated: 2024-09-22T20:54:01.578Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/8f41caf7d9b5e4f9d2e8bb7de69d52df6f6bccbd4
 
 # How to Easily Add Subtitles and Closed Captions to YouTube Video
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -46,9 +43,6 @@ thumbnail: https://thmb.techidaily.com/8f41caf7d9b5e4f9d2e8bb7de69d52df6f6bccbd4
 
  So, here we are going to show you two ways to add subtittles to video: directly or uploading caption or transcript files
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Adding subtitles and closed captions manually
 
  To add subtitles and closed captions to your YouTube video, fisrt, you should sign in to your YouTube account. On left right below 'Home' you will find 'My Channel'. It will direct you to your personal YouTube page. On the top, right next to your subscribers lays the 'Video manager', giving you the list of your uploaded videos.
@@ -77,6 +71,13 @@ thumbnail: https://thmb.techidaily.com/8f41caf7d9b5e4f9d2e8bb7de69d52df6f6bccbd4
 
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3 Best Tools for add/managing video Subtitles/CC
 
 #### 1\.  Amara
@@ -91,10 +92,14 @@ thumbnail: https://thmb.techidaily.com/8f41caf7d9b5e4f9d2e8bb7de69d52df6f6bccbd4
 
  Subtitles for YouTube is a Google Chrome extension which provides subtitles for YouTube videos. For this you will have to provide a subtitle file with .srt extension. The attractive feature of this is that you won't have to download the video and still run the subtitles on it. This is very much helpful for people who work on YouTube or watch movies without subtitles.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -102,14 +107,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -118,6 +120,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/udience-allure-video-marketing-strategies-for-youtube-trailers-via-filmora/"><u>[New] Audience Allure Video Marketing Strategies for YouTube Trailers via Filmora</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-boosting-traffic-on-youtube-mastering-the-art-of-video-outros/"><u>[New] In 2024, Boosting Traffic on YouTube Mastering the Art of Video Outros</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-how-to-record-desktop-on-windows-8-effortlessly/"><u>[New] In 2024, How To Record Desktop on Windows 8 Effortlessly</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-transcoding-made-simple-from-xmlssattml-to-professional-srt/"><u>[New] Transcoding Made Simple From XML/SSA/TTML to Professional SRT</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-income-insight-cutting-through-the-complexity-with-a-3-step-guide-to-youtube-revenue/"><u>[Updated] 2024 Approved Income Insight Cutting Through the Complexity with a 3-Step Guide to YouTube Revenue</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-enhance-video-pace-youtube-via-desktops-and-phones/"><u>[Updated] Enhance Video Pace - YouTube via Desktops & Phones</u></a></li>
+<li><a href="https://article-tips.techidaily.com/diving-into-the-digital-splendor-of-nikon-d500-for-2024/"><u>Diving Into the Digital Splendor of Nikon D500 for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/hp-omen-obelisk-assessment-unbeatable-price-for-powerful-gaming-rig/"><u>HP Omen Obelisk Assessment: Unbeatable Price for Powerful Gaming Rig</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-samsung-galaxy-s23-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Samsung Galaxy S23 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-vivo-t2-5g-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Vivo T2 5G</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/al-video-kick-offs-selecting-the-top-16-for-more-viewers/"><u>Optimal Video Kick-Offs Selecting the Top 16 for More Viewers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nnovation-pivotal-tech-to-elevate-your-vids/"><u>SEO Innovation Pivotal Tech to Elevate Your Vids</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/troubleshooting-microsoft-teams-how-to-tell-if-the-service-is-down/"><u>Troubleshooting Microsoft Teams: How to Tell If the Service Is Down</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Master the Art of Subtitle/CC Integration in YouTube with This Guide"
-date: 2024-07-13T16:31:08.465Z
-updated: 2024-07-14T16:31:08.465Z
+date: 2024-09-15T18:58:50.845Z
+updated: 2024-09-22T18:43:33.838Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/9ed1822c884a606f5ae36981b782d8b43a1eaddd1
 
 # How to Easily Add Subtitles and Closed Captions to YouTube Video
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -37,9 +34,6 @@ thumbnail: https://thmb.techidaily.com/9ed1822c884a606f5ae36981b782d8b43a1eaddd1
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Why subtitle and closed captions are important for YouTube videos?
 
 * Forced closed captions and subtitles actually help the viewers to understand the content in your video if the audio quality of your video is bad, muffled or barely audible. Reading makes it easier for them to understand.
@@ -49,18 +43,6 @@ thumbnail: https://thmb.techidaily.com/9ed1822c884a606f5ae36981b782d8b43a1eaddd1
 
  So, here we are going to show you two ways to add subtittles to video: directly or uploading caption or transcript files
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Adding subtitles and closed captions manually
 
  To add subtitles and closed captions to your YouTube video, fisrt, you should sign in to your YouTube account. On left right below 'Home' you will find 'My Channel'. It will direct you to your personal YouTube page. On the top, right next to your subscribers lays the 'Video manager', giving you the list of your uploaded videos.
@@ -89,6 +71,13 @@ thumbnail: https://thmb.techidaily.com/9ed1822c884a606f5ae36981b782d8b43a1eaddd1
 
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3 Best Tools for add/managing video Subtitles/CC
 
 #### 1\.  Amara
@@ -105,20 +94,24 @@ thumbnail: https://thmb.techidaily.com/9ed1822c884a606f5ae36981b782d8b43a1eaddd1
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,6 +120,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-tutorial-smoothly-embedding-urls-on-instagram-feed/"><u>[New] 2024 Approved Tutorial Smoothly Embedding URLs on Instagram Feed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-dance-of-words-crafting-bouncing-text-effects/"><u>[New] In 2024, Dance of Words Crafting Bouncing Text Effects</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ntegrating-timestamps-youtube-video-link-enhancement-techniques/"><u>[New] Integrating Timestamps YouTube Video Link Enhancement Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-digital-broadcasting-battle-comparing-facebook-live-youtube-live-and-twitter-spaces/"><u>[Updated] In 2024, Digital Broadcasting Battle Comparing Facebook LIVE, YouTube Live, & Twitter Spaces</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-digital-deck-of-cards-youtubes-milestone-challenges/"><u>[Updated] In 2024, Digital Deck of Cards YouTube's Milestone Challenges</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-finding-the-perfect-pair-matching-mics-with-every-type-of-youtubers-style/"><u>[Updated] In 2024, Finding the Perfect Pair Matching Mics with Every Type of YouTuber's Style</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-google-meet-live-streaming-for-beginners-stepwise-guide-to-youtube/"><u>[Updated] In 2024, Google Meet Live-Streaming for Beginners Stepwise Guide to YouTube</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-leading-brands-for-budget-friendly-high-definition-projectors-for-2024/"><u>[Updated] Leading Brands for Budget-Friendly, High-Definition Projectors for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unveiling-the-leading-free-stock-video-and-image-archives/"><u>[Updated] Unveiling the Leading Free Stock Video and Image Archives</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-windows-missingstartupfile-comprehensive-tutorial-on-entry-points/"><u>Fixing ‘Windows MissingStartupFile’ - Comprehensive Tutorial on Entry Points</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-dominating-the-digital-space-5-tips-for-video-visibility-victory/"><u>In 2024, Dominating the Digital Space 5 Tips for Video Visibility Victory</u></a></li>
+<li><a href="https://driver-install.techidaily.com/reinstall-graphics-driver-on-windows-10711/"><u>Reinstall Graphics Driver on Windows 10/7/11</u></a></li>
+<li><a href="https://fox-that.techidaily.com/shadowplay-not-working-expert-tips-to-get-your-game-recordings-up-and-running-in-windows/"><u>Shadowplay Not Working? Expert Tips to Get Your Game Recordings Up and Running in Windows</u></a></li>
+<li><a href="https://facebook.techidaily.com/1719150975738-social-synergy-achieved-upload-and-share-fb-stories-notebooks-to-top-sites/"><u>Social Synergy Achieved: Upload & Share FB Stories, Notebooks to Top Sites.</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/sony-pulse-3d-wireless-headset-review-an-aural-upgrade/"><u>Sony Pulse 3D Wireless Headset Review: An Aural Upgrade</u></a></li>
+<li><a href="https://fox-that.techidaily.com/the-most-frequent-glitches-on-your-iphone-13-identification-and-remedies-for-every-issue/"><u>The Most Frequent Glitches on Your iPhone 13: Identification & Remedies for Every Issue</u></a></li>
+</ul></div>
 

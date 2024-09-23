@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Decision-Making in the Workplace  A Neurological Approach to Efficacy and Ethics\""
-date: 2024-07-13T16:33:06.140Z
-updated: 2024-07-14T16:33:06.140Z
+date: 2024-09-15T16:08:20.556Z
+updated: 2024-09-22T16:11:36.281Z
 tags:
   - ai video
   - ai youtube
@@ -146,9 +146,6 @@ Go to **My Channel**, hover over your existing channel icon, and click the **edi
 
 #### 5\.  Channel art links
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/channel-art-links.jpg)
 
 Adding links to your YouTube channel is a no-brainer. After all, if people love your channel, why not get them engaged on your social networks and website too? Adding links is easy in the Creator Studio, and you can choose to have links overlaid on your channel art too.
@@ -223,9 +220,23 @@ If you’re wondering if you should really be bothered about channel art, the an
 
 According to research, we are a highly visual species. 65 percent of people learn better visually, and when you’re thinking about retaining information, 90 percent of what we store in our brains is visual information. By presenting your viewers with visual content, you’re helping them take it in, retain it better and remember you for the future.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Part 4: Tips for Making Channel Art
 
 ![](https://images.wondershare.com/filmora/article-images/channel-art-tips.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 1\. Tips for Making Thumbnails
 
@@ -295,15 +306,42 @@ If you don't know how to make youtube channel art, don't be worry, because in th
 
 ![](https://images.wondershare.com/filmora/article-images/comedy-channel-art.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.wondershare.com/filmora/article-images/comic-channel-art.jpg)
 
 ![](https://images.wondershare.com/filmora/article-images/education-channel-art.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![](https://images.wondershare.com/filmora/article-images/funky-channel-art.jpg)
 
 ![](https://images.wondershare.com/filmora/article-images/gaming-banner.jpg)
 
 ![](https://images.wondershare.com/filmora/article-images/make-up-channel-art.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![](https://images.wondershare.com/filmora/article-images/travel-channel-art.jpg)
 
@@ -329,14 +367,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -345,6 +380,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ire-wisdom-top-10-recruiting-video-guide-for-2024/"><u>[New] Hire Wisdom Top 10 Recruiting Video Guide for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-mastering-the-art-of-iphone-macro-and-micro-imaging/"><u>[New] Mastering the Art of iPhone Macro & Micro Imaging</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-navigating-the-maze-of-audio-capturing-a-complete-minecraft-guide-on-mac-for-2024/"><u>[New] Navigating the Maze of Audio Capturing A Complete Minecraft Guide on Mac for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-insights-into-average-gain-from-each-watched-online-content/"><u>[Updated] 2024 Approved Insights Into Average Gain From Each Watched Online Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-break-through-the-crowd-key-youtube-seo-strategies-to-rank-high-for-2024/"><u>[Updated] Break Through the Crowd Key YouTube SEO Strategies to Rank High for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-continuous-streams-perfect-loops-of-youtube-videos-for-tvs-for-2024/"><u>[Updated] Continuous Streams Perfect Loops of YouTube Videos for TVs for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-essential-tactics-for-dramatizing-success-stories-through-testimonials-for-2024/"><u>[Updated] Essential Tactics for Dramatizing Success Stories Through Testimonials for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-making-a-mark-with-effective-youtube-channel-graphics/"><u>[Updated] Making a Mark with Effective YouTube Channel Graphics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-tailored-soundtracks-at-your-fingertips-constructing-youtube-music-collections-webmobile/"><u>2024 Approved Tailored Soundtracks at Your Fingertips Constructing YouTube Music Collections (Web/Mobile)</u></a></li>
+<li><a href="https://games-able.techidaily.com/favorite-variety-games-for-multitasking-broadcasters/"><u>Favorite Variety Games for Multitasking Broadcasters</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-oppo-reno-10-5g-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Oppo Reno 10 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/toms-tech-review-expert-insights-on-latest-gadgets-and-pc-components/"><u>Tom's Tech Review: Expert Insights on Latest Gadgets and PC Components</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-motorola-razr-40-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/warframe-freezing-issues-heres-what-you-need-to-know/"><u>Warframe Freezing Issues? Here's What You Need to Know</u></a></li>
+</ul></div>
 
