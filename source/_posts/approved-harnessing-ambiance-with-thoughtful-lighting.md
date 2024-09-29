@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Harnessing Ambiance with Thoughtful Lighting\""
-date: 2024-09-16T16:41:43.575Z
-updated: 2024-09-22T20:26:56.830Z
+date: 2024-09-26T23:10:55.507Z
+updated: 2024-09-28T23:04:11.797Z
 tags:
   - ai video
   - ai youtube
@@ -49,7 +49,21 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -77,11 +91,25 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
@@ -108,12 +136,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-command-the-stage-of-youtube-with-studio-skills/"><u>[New] 2024 Approved Command the Stage of YouTube with Studio Skills</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-fbs-leading-charts-10-hot-music-videos/"><u>[New] 2024 Approved FB's Leading Charts 10 Hot Music Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-tactics-for-handling-youtubes-copyright-strikes-effectively/"><u>[New] In 2024, Tactics for Handling YouTube's Copyright Strikes Effectively</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-building-a-brand-on-youtube-navigating-through-top-video-marketing-methods/"><u>[Updated] 2024 Approved Building a Brand on YouTube Navigating Through Top Video Marketing Methods</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-crafting-captivating-content-the-power-of-hashtagging-in-gaming-yt/"><u>[Updated] In 2024, Crafting Captivating Content The Power of Hashtagging in Gaming YT</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-to-webm-the-10-best-youtube-to-webm-converters-for-2024/"><u>[Updated] YouTube to WebM The 10 Best YouTube to WebM Converters for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-asus-motherboard-drivers-for-windows-a-step-by-step-guide/"><u>Download & Install ASUS Motherboard Drivers for Windows: A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/download-install-and-utilize-obs-effectively-on-a-macpc-for-2024/"><u>Download, Install, and Utilize OBS Effectively on a MacPC for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/enhance-your-golf-skills-with-the-latest-trugolf-simulator-secure-yours-for-only-200-exclusive-deal-on-zdnet/"><u>Enhance Your Golf Skills with the Latest TruGolf Simulator: Secure Yours for Only $200 – Exclusive Deal on ZDNET</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ational-codes-for-youtube-enthusiasts/"><u>Foundational Codes for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-captivating-startups-discovering-the-best-15-video-intros/"><u>In 2024, Captivating Startups Discovering the Best 15 Video Intros</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-securing-your-youtube-profile-a-guide/"><u>In 2024, Securing Your YouTube Profile A Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/powerpoint-tips-adding-and-capturing-speech-sounds-for-2024/"><u>PowerPoint Tips Adding and Capturing Speech Sounds for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-12-prominent-motorola-edge-2023-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Motorola Edge 2023 Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/ultimate-selection-the-best-gaming-audio-equipment/"><u>Ultimate Selection: The Best Gaming Audio Equipment</u></a></li>
+<li><a href="https://program-issues.techidaily.com/unlock-the-secrets-resolving-helldivers-iis-launch-failures-on-your-pc-via-steam/"><u>Unlock the Secrets: Resolving Helldivers II's Launch Failures on Your PC via Steam</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/update-your-windows-laptop-with-the-newest-pl2303-drivers-available-now/"><u>Update Your Windows Laptop with the Newest PL2303 Drivers Available Now!</u></a></li>
+</ul></div>
 

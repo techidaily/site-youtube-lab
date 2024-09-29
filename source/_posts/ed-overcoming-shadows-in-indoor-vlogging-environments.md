@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Overcoming Shadows in Indoor Vlogging Environments"
-date: 2024-09-17T18:00:25.928Z
-updated: 2024-09-22T17:15:52.250Z
+date: 2024-09-27T18:06:23.940Z
+updated: 2024-09-29T03:55:55.153Z
 tags:
   - ai video
   - ai youtube
@@ -49,7 +49,27 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -77,11 +97,25 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
@@ -108,18 +142,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/48657246-new-in-2024-direct-youtube-tunes-to-mp3s-online-and-offline-options/"><u>[New] In 2024, Direct YouTube Tunes to MP3s Online & Offline Options!</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/new-in-2024-selective-removers-to-purify-video-identity-signs/"><u>[New] In 2024, Selective Removers to Purify Video Identity Signs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ecrets-to-the-top-6-free-and-online-shorts-collectors-for-2024/"><u>[New] Secrets to the Top 6 Free & Online Shorts Collectors for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solved-sifu-fps-drops-stuttering-on-pc/"><u>[SOLVED] Sifu FPS Drops, Stuttering on PC</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-a-compreayers-primer-to-navigating-the-online-copyright-labyrinth/"><u>[Updated] A Compreayer's Primer to Navigating the Online Copyright Labyrinth</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-curate-a-perfect-playlist-on-youtube-a-step-by-step-guide-for-2024/"><u>[Updated] Curate a Perfect Playlist on YouTube A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-comparing-micro-video-formats-the-battle-of-tiktok-and-youtube-shorts/"><u>[Updated] In 2024, Comparing Micro-Video Formats The Battle of TikTok and YouTube Shorts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-cutting-edge-content-summit/"><u>2024 Approved Cutting-Edge Content Summit</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-discover-9-free-whole-film-festive-movie-gems-on-youtube/"><u>2024 Approved Discover 9 Free, Whole-Film Festive Movie Gems on Youtube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-beats-essential-background-scores-for-viral-video-shorts-for-2024/"><u>Buzzing Beats Essential Background Scores for Viral Video Shorts for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/evade-trackers-with-ease-how-to-make-yourself-invisible-on-chrome-edge-firefox-safari-and-opera-browsers/"><u>Evade Trackers with Ease: How to Make Yourself Invisible on Chrome, Edge, Firefox, Safari, and Opera Browsers</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Realme GT 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ideal-virtual-screenscapes-for-streamers/"><u>Ideal Virtual Screenscapes for Streamers</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-perfecting-your-videos-narrative-integrating-timestamps-smartly/"><u>In 2024, Perfecting Your Video's Narrative Integrating Timestamps Smartly</u></a></li>
+<li><a href="https://driver-download.techidaily.com/quick-start-to-enjoy-bluetooth-30-on-your-pc-with-this-free-qualcomm-atheros-ar3n-chip-drivers-download-and-setup-resource/"><u>Quick Start to Enjoy Bluetooth 3.0 on Your PC with This Free Qualcomm Atheros AR3n Chip Drivers Download & Setup Resource</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/seamless-re-entry-to-your-shared-windows-spot/"><u>Seamless Re-Entry to Your Shared Windows Spot</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/the-definitive-fix-for-the-roblox-launch-problem-expert-advice/"><u>The Definitive Fix for the Roblox Launch Problem [Expert Advice]</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Launching a YouTube Channel  Key Pieces of Equipment\""
-date: 2024-09-16T19:19:20.651Z
-updated: 2024-09-22T18:42:03.599Z
+date: 2024-09-25T17:05:45.490Z
+updated: 2024-09-29T04:15:14.624Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,13 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -87,6 +94,13 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
@@ -100,30 +114,24 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -144,5 +152,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/arness-high-quality-banners-free-for-content-developers-for-2024/"><u>[New] Harness High-Quality Banners – Free for Content Developers for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-best-youtube-title-generator/"><u>[Updated] 2024 Approved Best YouTube Title Generator</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unlock-video-potential-premium-lens-selection-tips/"><u>[Updated] In 2024, Unlock Video Potential Premium Lens Selection Tips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-probing-into-youtubes-decision-making-for-prominent-remarks-for-2024/"><u>[Updated] Probing Into YouTube's Decision-Making for Prominent Remarks for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-yt-portals-for-trend-tracking-and-analysis-for-2024/"><u>[Updated] YT Portals for Trend-Tracking and Analysis for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-capturing-the-joy-of-nintendo-switch-gaming/"><u>In 2024, Capturing the Joy of Nintendo Switch Gaming</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-secure-mp3-conversion-of-live-skype-talks/"><u>In 2024, Secure MP3 Conversion of Live Skype Talks</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-strategic-tagging-for-skyrocketing-youtube-statistics/"><u>In 2024, Strategic Tagging for Skyrocketing YouTube Statistics</u></a></li>
+<li><a href="https://extra-support.techidaily.com/navigating-iphone-album-organizing-techniques-and-icloud-uploads-for-2024/"><u>Navigating iPhone Album Organizing Techniques and iCloud Uploads for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/seamless-social-media-posts-from-phone-to-instagram-for-2024/"><u>Seamless Social Media Posts From Phone to Instagram for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-enhance-your-video-with-pro-audio-editing-in-fcp/"><u>Updated In 2024, Enhance Your Video with Pro Audio Editing in FCP</u></a></li>
+<li><a href="https://techtrends.techidaily.com/why-did-my-car-speakers-stop-working/"><u>Why Did My Car Speakers Stop Working?</u></a></li>
+</ul></div>
 

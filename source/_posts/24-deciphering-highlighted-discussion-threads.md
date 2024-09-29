@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Deciphering Highlighted Discussion Threads"
-date: 2024-09-21T20:29:33.485Z
-updated: 2024-09-22T18:15:12.944Z
+date: 2024-09-27T02:02:42.258Z
+updated: 2024-09-29T03:56:56.629Z
 tags:
   - ai video
   - ai youtube
@@ -59,11 +59,25 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
@@ -86,20 +100,13 @@ Suppose you are a viewer who is going through the comments section of a video. I
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
-
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to Reply to Highlighted Comments?
 
@@ -133,13 +140,6 @@ Many frequently inquire on the internet about how they can improve the chances o
 * Do not hit the post option already. Before publishing it, you must cross-check that your comment has all the above points in place.
 * Lastly, you have to wait after publishing on the video's comment section. YouTube will highlight your comment if it passes according to the YouTube policy and if the search engine finds it unique.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 8: Are Highlighted Comments Beneficial?
 
 Being a convenience feature, a highlighted comment on YouTube is 100% beneficial. That is especially true if you are looking for ways to optimize your channel.
@@ -160,6 +160,19 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -179,5 +192,17 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-blueprint-for-viral-video-mastery/"><u>[New] 2024 Approved The Blueprint for Viral Video Mastery</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/arryminatis-income-blueprint-journey-through-2023/"><u>[New] CarryMinati's Income Blueprint Journey Through 2023</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-maximizing-impact-using-youtube-analytics-for-content-strategy/"><u>[New] Maximizing Impact Using YouTube Analytics for Content Strategy</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-10-visionary-beauticians-poised-success/"><u>[Updated] 10 Visionary Beauticians Poised Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-expert-advice-to-recover-missing-thumbnails-from-videos/"><u>[Updated] 2024 Approved Expert Advice to Recover Missing Thumbnails From Videos</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-step-into-the-world-of-innovative-youtube-video-techniques/"><u>[Updated] Step Into the World of Innovative YouTube Video Techniques</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-breathing-new-life-into-anime-with-impactful-tiktoks/"><u>2024 Approved Breathing New Life Into Anime with Impactful TikToks</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/enhance-your-narrative-craft-the-power-of-chatgpt-in-elevating-storytelling-skills/"><u>Enhance Your Narrative Craft: The Power of ChatGPT in Elevating Storytelling Skills</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/navigating-through-technology-secrets-at-toms-hardware-reviews/"><u>Navigating Through Technology Secrets at Tom's Hardware Reviews</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/be-shorts-earning-strategies-crucial-elements-possible-returns/"><u>Youtube Shorts Earning Strategies Crucial Elements, Possible Returns</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Mobile & Desktop Techniques for YouTube Short Video Submission"
-date: 2024-09-21T16:02:01.596Z
-updated: 2024-09-22T23:14:53.198Z
+date: 2024-09-26T22:21:57.961Z
+updated: 2024-09-28T21:47:10.714Z
 tags:
   - ai video
   - ai youtube
@@ -81,6 +81,19 @@ For macOS 10.12 or later
 
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
@@ -95,11 +108,25 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
 #### Step 2: Add Details
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -133,13 +160,6 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
@@ -147,10 +167,10 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -174,5 +194,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-direct-route-uploading-from-youtube-to-dailymotion/"><u>[New] 2024 Approved Direct Route Uploading From YouTube to Dailymotion</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-pixelated-palace-beginner-friendly-home-design-guide/"><u>[New] 2024 Approved Pixelated Palace Beginner-Friendly Home Design Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-x-professional-studio-for-windows/"><u>[New] 2024 Approved X-Professional Studio for Windows</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nhance-video-pace-youtube-via-desktops-and-phones-for-2024/"><u>[New] Enhance Video Pace - YouTube via Desktops & Phones for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-enabling-earnings-a-step-by-step-approach-for-mobile-youtubers/"><u>[New] In 2024, Enabling Earnings A Step-by-Step Approach for Mobile YouTubers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-stand-out-on-youtube-avoid-common-logo-design-fails/"><u>[New] In 2024, Stand Out on YouTube Avoid Common Logo Design Fails</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/loggers-guide-top-5-audio-excellence-headphones/"><u>[New] Vloggers’ Guide Top 5 Audio Excellence Headphones</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-diy-youtube-thumbnails-made-simple/"><u>[Updated] DIY YouTube Thumbnails Made Simple</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-integral-rulebook-ensuring-harmonious-video-sharing/"><u>2024 Approved Integral Rulebook Ensuring Harmonious Video Sharing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-top-5-chrome-plug-ins-for-effortless-facebook-video-downloads/"><u>2024 Approved Top 5 Chrome Plug-Ins for Effortless Facebook Video Downloads</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/building-better-empathy-with-ai-the-role-of-chatgpt-in-emotional-development/"><u>Building Better Empathy with AI: The Role of ChatGPT in Emotional Development</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-address-and-correct-the-security-issue-in-gaming-software/"><u>How to Address and Correct the 'Security Issue in Gaming Software'</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-oneplus-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your OnePlus Phone Network-Ready</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/tackle-printer-connectivity-issues-in-w11/"><u>Tackle Printer Connectivity Issues in W11</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unleash-marketing-potential-through-strategy-boxing/"><u>Unleash Marketing Potential Through Strategy Boxing</u></a></li>
+</ul></div>
 

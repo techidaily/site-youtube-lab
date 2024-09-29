@@ -1,7 +1,7 @@
 ---
 title: "[Updated] The Affordable Art of YouTube Intros/Ends for 2024"
-date: 2024-09-16T19:40:47.505Z
-updated: 2024-09-22T22:10:50.194Z
+date: 2024-09-27T19:24:56.029Z
+updated: 2024-09-29T04:43:40.814Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +124,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,18 +150,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ites-of-wisdom-youtube-tvs-unique-selling-points-for-2024/"><u>[New] Bites of Wisdom YouTube TV's Unique Selling Points for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ow-to-craft-standout-videos-mastery-of-youtube-thumbnail-dimensions/"><u>[New] How to Craft Standout Videos Mastery of YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-unleashing-creativity-advanced-obs-techniques-explained-for-2024/"><u>[New] Unleashing Creativity Advanced OBS Techniques Explained for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-analyzing-why-youtube-features-specific-comments-for-2024/"><u>[Updated] Analyzing Why YouTube Features Specific Comments for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-prime-authors-draft-platform-for-2024/"><u>[Updated] Prime Author's Draft Platform for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-samsung-galaxy-s24-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-apple-iphone-12-pro-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On Apple iPhone 12 Pro</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/conquer-competitors-try-this-highest-rated-voice-modification-software-for-valorant/"><u>Conquer Competitors - Try This Highest-Rated Voice Modification Software for Valorant</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/cial-flourishing-with-glamour-vlogs/"><u>Financial Flourishing with Glamour Vlogs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-finding-the-perfect-pair-matching-mics-with-every-type-of-youtubers-style/"><u>In 2024, Finding the Perfect Pair Matching Mics with Every Type of YouTuber's Style</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-harnessing-the-power-of-zoom-in-tiktok-creation/"><u>In 2024, Harnessing the Power of Zoom in TikTok Creation</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-unraveling-freeze-frames-in-photobooth-recordings/"><u>In 2024, Unraveling Freeze Frames in Photobooth Recordings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ey-to-sharing-success-youtubes-most-impactful-hashes-for-2024/"><u>The Key to Sharing Success YouTube's Most Impactful Hashes for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-realme-gt-3-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Realme GT 3 Users</u></a></li>
+</ul></div>
 

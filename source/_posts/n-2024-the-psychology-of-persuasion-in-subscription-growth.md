@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Psychology of Persuasion in Subscription Growth"
-date: 2024-09-15T23:31:44.869Z
-updated: 2024-09-22T20:56:49.030Z
+date: 2024-09-26T21:20:26.559Z
+updated: 2024-09-28T18:57:23.003Z
 tags:
   - ai video
   - ai youtube
@@ -49,6 +49,13 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## A More Effective Way of Asking For Subscribers
 
 Collins Key is one YouTuber who has mastered asking for subscribers early on, and given that he has over 7 million subscribers himself I’d say it’s working out. Check out the technique in this video collab with Brooklyn and Bailey:
@@ -59,6 +66,13 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -68,6 +82,13 @@ Shortly after, while still in the first 30 seconds of the video, Collins gets ri
 It’s only after hooking the viewer in and reiterating the promise of the title that Collins asks viewers to subscribe. The really clever thing about how he asks is that he carves out time in the video for the viewer to comply with his request. He gives 5 seconds and does a countdown.
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
@@ -84,6 +105,13 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -104,12 +132,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-discreet-youtube-playback-on-mobile-devices/"><u>[New] 2024 Approved Discreet YouTube Playback on Mobile Devices</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-fb-content-conversion-turn-vids-into-mp3s-in-seconds/"><u>[New] 2024 Approved FB Content Conversion Turn Vids Into MP3s in Seconds</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-king-of-commercial-success/"><u>[New] 2024 Approved YouTube King of Commercial Success</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/-compreranstive-approach-to-high-fidelity-recording-no-mic-necessary/"><u>[New] A Compreranstive Approach to High-Fidelity Recording, No Mic Necessary</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-premier-call-customization-and-editing-software/"><u>[New] In 2024, Premier Call Customization and Editing Software</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-from-novice-to-pro-mastering-the-craft-of-yt-shorts/"><u>[Updated] From Novice to Pro Mastering the Craft of YT Shorts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-delving-into-t-series-revenue-generation-on-video-platforms/"><u>2024 Approved Delving Into T-Series' Revenue Generation on Video Platforms</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/creating-an-immersive-text-based-rpg-experience-with-chatgpt-a-comprehensive-guide/"><u>Creating an Immersive Text-Based RPG Experience with ChatGPT: A Comprehensive Guide</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/grau-gmbh-hardware-and-software-excellence-the-ultimate-toolkit-for-fixing-your-videos/"><u>Grau GmbH Hardware and Software Excellence: The Ultimate Toolkit for Fixing Your Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-seamlessly-upload-youtube-videos-to-facebook-feed-for-2024/"><u>How to Seamlessly Upload YouTube Videos to Facebook Feed for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-stream-at-peak-performance-best-gpu-selection-guide/"><u>In 2024, Stream at Peak Performance Best GPU Selection Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/quality-retention-techniques-for-efficient-mp4-file-compression/"><u>Quality Retention Techniques for Efficient MP4 File Compression</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/small-scale-startups-guide-to-trustworthy-video-tools/"><u>Small-Scale Startups' Guide to Trustworthy Video Tools</u></a></li>
+</ul></div>
 

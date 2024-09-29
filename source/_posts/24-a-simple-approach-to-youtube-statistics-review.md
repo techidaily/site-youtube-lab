@@ -1,7 +1,7 @@
 ---
 title: "In 2024, A Simple Approach to YouTube Statistics Review"
-date: 2024-09-17T20:58:22.408Z
-updated: 2024-09-22T21:03:14.386Z
+date: 2024-09-24T23:02:58.301Z
+updated: 2024-09-29T00:02:52.086Z
 tags:
   - ai video
   - ai youtube
@@ -48,6 +48,13 @@ As one of the best video editing software for YouTube, [Filmora](https://tools.t
 
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to View Your YouTube Statistics
 
 In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
@@ -55,6 +62,13 @@ In order to view your YouTube Analytics, sign in to your YouTube account and go 
 In order to check which of your videos are performing the best, click on **Watch time** under **Watch time reports**. At the top of the page there’ll be a graph of your watch time in general, and if you scroll down you’ll see a list of your videos ranked by watch time. The best performing ones will be at the top and, to see more stats related to these high-performing videos, simply click on their titles. Afterwards, you’ll be able to click around the different sections in your Analytics and see reports relating to the specific video you clicked on.
 
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1. Interpreting YouTube Watch Time Reports
 
@@ -71,10 +85,10 @@ In the watch time reports for individual videos, you will be able to see data on
 Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Interpreting YouTube Interaction Reports
@@ -102,16 +116,16 @@ Interaction reports can be broken down into several different reports that can h
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to View Other Peoples YouTube Statistics
@@ -141,5 +155,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-blog.techidaily.com/ryu-ga-gotoku-like-a-dragon-unboxing-its-successful-port-to-your-personal-computer/"><u>'Ryu Ga Gotoku: Like a Dragon' – Unboxing Its Successful Port to Your Personal Computer</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-gear-up-for-greatness-choosing-webcams-for-youtube-excellence/"><u>[New] 2024 Approved Gear Up for Greatness Choosing Webcams for YouTube Excellence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ssential-12-flipscreen-cam-titles-for-optimal-vlogging/"><u>[New] Essential 12 Flipscreen Cam Titles for Optimal Vlogging</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-mastering-the-art-of-fb-chat-transcription/"><u>[New] Mastering the Art of FB Chat Transcription</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hielding-your-media-what-does-unlisted-mean-in-youtube/"><u>[New] Shielding Your Media What Does Unlisted Mean in YouTube?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-effortless-video-streams-youtube-loops-for-television-viewers-for-2024/"><u>[Updated] Effortless Video Streams YouTube Loops for Television Viewers for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-evaluating-mr-beasts-monetary-world/"><u>[Updated] Evaluating Mr. Beast's Monetary World</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-expertise-in-hdr-perfecting-dynamic-range-in-photoshop/"><u>[Updated] In 2024, Expertise in HDR Perfecting Dynamic Range in Photoshop</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-step-by-step-for-quick-chromakey-application-for-2024/"><u>[Updated] Step-by-Step for Quick Chromakey Application for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-strategies-for-dominating-youtube-search-results-through-seo/"><u>2024 Approved Strategies for Dominating YouTube Search Results Through SEO</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-streamline-your-music-experience-make-a-youtube-playlist-on-the-go/"><u>2024 Approved Streamline Your Music Experience Make a YouTube Playlist on the Go</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/effective-strategies-for-troubleshooting-missing-pdhdll-files/"><u>Effective Strategies for Troubleshooting Missing pdh.dll Files</u></a></li>
+<li><a href="https://extra-support.techidaily.com/quickly-crafting-a-facebook-collage-a-step-by-step-guide-for-2024/"><u>Quickly Crafting a Facebook Collage A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/resolving-nvidia-cp-access-issues-on-ws1110-systems/"><u>Resolving Nvidia CP Access Issues on WS11/10 Systems</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/take-control-of-your-instagram-content-for-2024/"><u>Take Control of Your Instagram Content for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/unlock-efficiency-the-most-useful-adobe-premiere-shortcuts-revealed/"><u>Unlock Efficiency The Most Useful Adobe Premiere Shortcuts Revealed</u></a></li>
+</ul></div>
 

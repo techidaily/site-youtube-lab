@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Exploring YouTube Shorts  A Beginner's Guide to Video Crafting\""
-date: 2024-09-21T21:56:37.813Z
-updated: 2024-09-22T21:03:23.239Z
+date: 2024-09-22T00:33:26.489Z
+updated: 2024-09-28T23:23:14.852Z
 tags:
   - ai video
   - ai youtube
@@ -43,9 +43,23 @@ That said, in the following sections you will learn everything about the **YouTu
 
 A short and quick answer to the question is, **YouTube Shorts** is a Tik Tok competitor developed by Google and can be accessed via the YouTube app on an Android or iOS device. In order to use the **YouTube Shorts app**, all you need to do is, sign in to your YouTube account on the YouTube app, and you are good to go.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. YouTube Shorts Release History
 
 At the time of this writing, **YouTube Shorts** is still in the Beta phase, and there is a lot more that the developers at Google have yet to explore and discover. However, for now, the fully functional variant of the program is available only for users in India on Android and iOS platforms.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. YouTube Shorts Target Audience
 
@@ -61,13 +75,6 @@ The type of contents that the viewers expect to see as YouTube Shorts could incl
 * Science and Technology – A short introduction of upcoming gadgets or applications along with their usability can be explained within the timeframe of 60 seconds as well
 
 In addition to the above, a few other categories could be People and Places, Music, Domestic and Wild Animals, Education, etc.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. YouTube Shorts Content Requirements
 
@@ -95,13 +102,6 @@ You can follow the instructions given below to make and [upload a YouTube Shorts
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Launch the YouTube app on your Android or iOS smart device (Samsung Galaxy Note 10+ is used here for demonstration), make sure that you are signed in to your Google account, tap the **+** (**Add**) button present at the bottom of the screen, tap **Create a Short** on the popup box that appears next, tap the **Record** button on the next window to start the recording. Once you are done, tap the **Stop** button to stop the recording.
 
 **Step 2: Edit the Video**
@@ -109,6 +109,13 @@ Launch the YouTube app on your Android or iOS smart device (Samsung Galaxy Note 
 Tap **Music** from the bottom of the screen to add background music to the video. The music that you can use in your short videos must be either created by you, or you should have permission to use them. However, the audio files that the Music library contains is made available by Google, is royalty-free, and can be used throughout the platform.
 
 ![ Edit YouTube Shorts video - Add text and music](https://images.wondershare.com/filmora/article-images/edit-youtube-short-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Likewise, you can tap **Text** to add captions as well. As for the text type, the app offers various formatting options such as alignment (left, center, and right), text highlighter, font changer, and even color selector. Further, the Speed and Timer icons at the top-right area allow you to manage the playback speed anywhere between 0.3x to 3x, and automatically stop the recording after the set time limit respectively. Once everything is set up, tap **NEXT** from the top-right corner to proceed to the next step.
 
@@ -137,6 +144,13 @@ When talking about Wondershare Filmora, it is a production and post-production a
 For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -173,10 +187,16 @@ You can even click the **Edit** button, and use the available editing features l
 ![Add Title to YouTube Shorts video with Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-add-title.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Click **Titles** from the standard toolbox at the top, choose your preferred text category from the list in the left, hover the mouse over a decent preset in the right window, and click the **+** button at the bottom-right corner of the thumbnail to add the preset on top of the media track in the Timeline. Next, you can double-click the preset track in the Timeline to modify the text and make granular modifications to it as needed. Click **OK** to save the changes.
@@ -184,19 +204,6 @@ Click **Titles** from the standard toolbox at the top, choose your preferred tex
 Similarly, you can select the **Effects** and **Elements** tools to add effects and elements to the video as needed. To add background music, you can go to the **Audio** tool, and pick your preferred preset from the available options. A custom music can be added by going to the **Media** tool, and importing an audio file from your PC using the method explained in **Step 1**.
 
 ![Add effects to YouTube Shorts video with Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-add-effects.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1983582">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 After this, optionally, you can go to **Split Screen** from the standard toolbar at the top, and use your preferred Split Screen preset to club multiple video clips into one screen. In Filmora, you can add as many as 6 screens in a video.
 
@@ -206,11 +213,25 @@ For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.12 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4: Render the Final Output**
 
@@ -247,16 +268,10 @@ Unfortunately, NO. Although you cannot monetize the recordings published as **Yo
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -278,5 +293,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-expert-tips-focusing-on-the-small-web-details-for-2024/"><u>[New] Expert Tips Focusing on the Small Web Details for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-facebooks-best-friend-on-mobile-top-10-android-extractor-apps-overview/"><u>[New] Facebook's Best Friend on Mobile Top 10 Android Extractor Apps Overview</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nveiling-profitable-practices-for-creating-youtube-trailers-for-2024/"><u>[New] Unveiling Profitable Practices for Creating YouTube Trailers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-expert-insights-where-to-invest-in-youtube-creator-revenue/"><u>[Updated] 2024 Approved Expert Insights Where to Invest in YouTube Creator Revenue</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-peekintobettercams-beyond-mycam/"><u>[Updated] 2024 Approved PeekIntoBetterCams Beyond MyCam?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-the-updated-user-manual-for-navigating-facebook/"><u>[Updated] 2024 Approved The Updated User Manual for Navigating Facebook</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-borrow-without-cost-images-from-leading-youtubers-archives/"><u>[Updated] Borrow Without Cost Images From Leading YouTubers' Archives</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-gaming-hits-with-powerful-hashtag-strategies/"><u>[Updated] Gaming Hits with Powerful Hashtag Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-cutting-edge-techniques-for-private-yt-content-dissemination-in-gmail/"><u>In 2024, Cutting-Edge Techniques for Private YT Content Dissemination in Gmail</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-time-lapse-video-editing-made-easy-top-software-picks/"><u>New In 2024, Time-Lapse Video Editing Made Easy Top Software Picks</u></a></li>
+<li><a href="https://techidaily.com/remove-motorola-lock-screen-without-password-motorola-razr-40-ultra-by-drfone-android-unlock-android-unlock/"><u>Remove Motorola Lock Screen without Password(Motorola Razr 40 Ultra)</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/troubleshooting-and-fixing-fresh-download-and-update-for-mbox-2-drivers-in-windows-solved/"><u>Troubleshooting and Fixing: Fresh Download & Update for MBox 2 Drivers in Windows - Solved!</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-no-monetary-barriers-to-professional-sound-blending-top-free-audio-software-tools-for-2024/"><u>Updated No Monetary Barriers to Professional Sound Blending Top Free Audio Software Tools for 2024</u></a></li>
+</ul></div>
 

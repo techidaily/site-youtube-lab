@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Direct to YouTube  Stepwise Process of Mobile & Desktop Video Posting for 2024\""
-date: 2024-09-21T20:01:18.141Z
-updated: 2024-09-22T18:31:22.249Z
+date: 2024-09-23T01:43:56.097Z
+updated: 2024-09-28T16:01:09.455Z
 tags:
   - ai video
   - ai youtube
@@ -81,11 +81,25 @@ For macOS 10.12 or later
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 1: Upload an Existing Short Video
 
@@ -94,6 +108,13 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 #### Step 1: Select a Video to Upload
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
@@ -107,13 +128,6 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 2: Record a Short Video and Upload
 
 **Step 1:** Record Shorts Video
@@ -123,13 +137,6 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -153,6 +160,13 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -174,5 +188,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-unveiling-hidden-secrets-for-advanced-win10-users/"><u>[New] In 2024, Unveiling Hidden Secrets for Advanced Win10 Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/treamline-your-vlogs-sound-with-effective-tips/"><u>[New] Streamline Your Vlog's Sound with Effective Tips</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-top-10-high-quality-blu-ray-software-variants-pcmac/"><u>[New] Top 10 High-Quality Blu-Ray Software Variants (PC/Mac)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-exploring-best-pairing-practices-in-the-youtube-space/"><u>[Updated] 2024 Approved Exploring Best Pairing Practices in the YouTube Space</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-daily-vlogging-ideas-what-to-talk-about-while-vlogging-for-2024/"><u>[Updated] Daily Vlogging Ideas What to Talk About While Vlogging for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-thriving-as-an-online-gaming-content-creator/"><u>[Updated] In 2024, Thriving as an Online Gaming Content Creator</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-unlock-professional-filmmaking-skills-within-xp/"><u>[Updated] In 2024, Unlock Professional Filmmaking Skills Within XP</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-surge-viral-traction-via-youtube-short-content/"><u>[Updated] Surge Viral Traction via YouTube Short Content</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/abbyys-top-financial-executive-neil-murphy-discusses-growth-opportunities/"><u>ABBYY's Top Financial Executive Neil Murphy Discusses Growth Opportunities</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/eco-film-frameworks-unlimited-free-template-access-for-pros-and-amateurs/"><u>Eco-Film Frameworks Unlimited Free Template Access for Pros & Amateurs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tial-youtube-seo-techniques-for-enhanced-video-rankings-for-2024/"><u>Essential YouTube SEO Techniques for Enhanced Video Rankings for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-strategies-to-address-and-correct-mingwm1-10-dll-errors-on-your-computer/"><u>Expert Strategies to Address and Correct Mingwm1 10 DLL Errors on Your Computer</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/peeking-into-the-functionality-of-predictive-ai-tools/"><u>Peeking Into the Functionality of Predictive AI Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-fixes-to-enhance-your-youtube-reach-for-2024/"><u>Quick-Fixes to Enhance Your YouTube Reach for 2024</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-reinstall-hardware-drivers-in-windows-10-by-drivereasy-guide/"><u>Use Device Manager to reinstall hardware drivers in Windows 10</u></a></li>
+</ul></div>
 

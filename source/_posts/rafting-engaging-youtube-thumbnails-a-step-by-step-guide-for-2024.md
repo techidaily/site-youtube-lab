@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Crafting Engaging YouTube Thumbnails  A Step-by-Step Guide for 2024\""
-date: 2024-09-20T18:29:36.435Z
-updated: 2024-09-22T16:04:28.074Z
+date: 2024-09-23T23:30:19.677Z
+updated: 2024-09-29T02:06:20.885Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,13 @@ Here are 5 easy tips for creating thumbnails that get views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
@@ -55,18 +62,18 @@ An example of a standard layout could be you in the middle of the screen wearing
 
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
 
@@ -79,6 +86,13 @@ Make sure the images you choose are relevant to the topic of your video.
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -93,10 +107,16 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -118,5 +138,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-boredoms-ender-the-ultimate-list-of-jovial-youtube-content/"><u>[New] 2024 Approved Boredom's Ender The Ultimate List of Jovial YouTube Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-from-phone-footage-to-channel-fame-a-seamless-setup-for-your-businesspersonal-brand/"><u>[New] 2024 Approved From Phone Footage to Channel Fame A Seamless Setup for Your Business/Personal Brand</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-best-asmr-series-on-youtube-platform-for-2024/"><u>[Updated] Best ASMR Series on YouTube Platform for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-explore-the-10-most-inspiring-youtube-makeup-vloggers-ever-for-2024/"><u>[Updated] Explore the 10 Most Inspiring YouTube Makeup Vloggers Ever for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-understanding-luts-to-amplify-your-photo-quality-for-2024/"><u>[Updated] Understanding LUTs to Amplify Your Photo Quality for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-uncover-11-free-effective-youtube-naming-solutions/"><u>2024 Approved Uncover 11 Free, Effective YouTube Naming Solutions</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-nokia-g22-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Nokia G22 | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-a-list-of-the-best-8-sites-for-free-3d-text-psd-downloads/"><u>In 2024, A List of the Best 8 Sites for Free 3D Text PSD Downloads</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-supercharge-your-pc-with-these-win-10-tricks/"><u>In 2024, Supercharge Your PC with These Win 10 Tricks</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/industry-standards-the-top-5-online-video-devices-for-2024/"><u>Industry Standards The Top 5 Online Video Devices for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-multi-pin-drops-a-comprehensive-tutorial-for-google-map-enthusiasts/"><u>Mastering Multi-Pin Drops: A Comprehensive Tutorial for Google Map Enthusiasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/pie-editor-for-2024/"><u>PixelPie Editor for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/step-by-step-editing-and-enhancing-your-youtube-content-for-2024/"><u>Step-by-Step Editing and Enhancing Your YouTube Content for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/troubleshooting-how-to-fix-non-responsive-popcorn-time-app-and-restore-airplay-functionality-in-apple-tv/"><u>Troubleshooting: How to Fix Non-Responsive Popcorn Time App & Restore AirPlay Functionality in Apple TV</u></a></li>
+</ul></div>
 
