@@ -1,7 +1,7 @@
 ---
 title: "Unlock Stunning Visuals with DALL-E 3: Ultimate List of 8 Image Prompts"
-date: 2024-09-23T16:33:46.186Z
-updated: 2024-09-28T18:36:30.758Z
+date: 2024-09-27T10:49:31.316Z
+updated: 2024-10-04T07:16:19.335Z
 tags:
   - chatgpt
   - open-ai
@@ -33,6 +33,19 @@ thumbnail: https://thmb.techidaily.com/f3acba4ab3a16a6eb071b7ad05fb5dc6bcda3ad9b
 
  Learn how to create better AI-generated images in DALL-E 3 with this tried-and-tested list of prompts. You can use these prompts in numerous scenarios and play around with your own ideas and variations for optimal results. Let’s walk through the examples I’ve created.
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1 A Poster of Your Favorite Place
 
  There are many[websites to find unique art for your home](https://www.makeuseof.com/best-sites-find-unique-art/) , but creating one in DALL-E3 is easier and more personal. One prompt you can try is asking the platform to generate a poster of your favorite place.
@@ -45,6 +58,13 @@ And here is the final result:
 
 ![An image of the NYC skyline Created with DALL-E 3](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/dall-e-3-poster-image.jpeg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2 Calendar Cover Artwork
 
  You can[make a printable calendar with Canva](https://www.makeuseof.com/tag/make-your-own-calendar-using-canva/) and other apps, but that doesn’t mean you can’t use DALL-E 3 to generate the front cover artwork. Whether you want to gift someone your calendar or use it yourself, try using this prompt.
@@ -56,13 +76,6 @@ I asked DALL-E 3:
  When I asked DALL-E 3 the first time around, it gave me “20225” instead of “2025.” So, you might need to request grammatical corrections. And remember to use the image size format that your calendar will follow.
 
 ![DALL-E 3 Calendar Cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/dall-e-3-calendar.jpeg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3 A Birthday Card Cover
 
@@ -88,13 +101,6 @@ Okay, so that didn’t go to plan…
 
 ![DALL-E 3 Birthday Card Cover](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/dall-e-3-birthday-card.jpeg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4 Desktop Wallpapers
 
  You can[create a desktop background using AI](https://www.makeuseof.com/how-to-create-desktop-background-using-ai/) in many ways, including with DALL-E 3\. This prompt is very simple. All I asked was the following:
@@ -104,13 +110,6 @@ Okay, so that didn’t go to plan…
  Below is the result, which I’m happy with. You may need to get more specific, such as asking DALL-E 3 to remove the white background.
 
 ![A Desktop Background Created in DALL-E 3](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/dall-e-3-desktop-background.jpeg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5 Smartphone Wallpapers
 
@@ -125,16 +124,10 @@ So, I tried a different prompt:
 Close
 
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6 Music Album Covers
@@ -150,10 +143,10 @@ Close
 ![DALL-E 3 AI Art Cover in Square Format](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/dall-e-3-ai-art-cover.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 7 Social Media Cover Banners
@@ -169,10 +162,10 @@ I used the following prompt:
 ![A social media banner image generated with DALL-E 3](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/dall-e-3-social-media-banner.jpeg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8 Photo Album Covers
@@ -186,6 +179,13 @@ Below is a prompt I tried for a photo album cover:
  After a few more prompts to change the orientation and adjust the French flag, I received the below result—which I was quite happy with.
 
 ![DALL-E 3 Photo Album Cover Image of a Street Scene](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/dall-e-3-photo-album-cover-image.jpeg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You can ask DALL-E 3 to remove text, alter colors, and various other things if you want these. If you want to design a picture book, consider checking out this guide on[how to make your own photo book](https://www.makeuseof.com/how-to-make-photo-book-guide/) .
 
@@ -206,22 +206,21 @@ Below is a prompt I tried for a photo album cover:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-charting-your-course-in-youtubing-dodge-these-top-8-common-missteps/"><u>[New] 2024 Approved Charting Your Course in YouTubing Dodge These Top 8 Common Missteps</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-chuckle-chronicles-top-youtube-humorists-masterpieces/"><u>[New] 2024 Approved Chuckle Chronicles Top YouTube Humorists' Masterpieces</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-contrasting-copyright-clauses-in-youtube-and-the-freedom-of-cc/"><u>[New] 2024 Approved Contrasting Copyright Clauses in Youtube & the Freedom of CC</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-dissecting-the-narrative-in-youtube-dialogues/"><u>[New] 2024 Approved Dissecting the Narrative in YouTube Dialogues</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-expertly-selected-graphics-cards-for-peak-streaming-clarity/"><u>[New] 2024 Approved Expertly Selected Graphics Cards for Peak Streaming Clarity</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-innovative-split-screen-videos-for-youtube-sharing/"><u>[New] 2024 Approved Innovative Split-Screen Videos for YouTube Sharing</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-maximizing-impact-strategies-for-watermark-and-logo-insertion-in-yt-videos/"><u>[New] 2024 Approved Maximizing Impact Strategies for Watermark & Logo Insertion in YT Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-monetization-verification-maximizing-streamer-incomes/"><u>[New] 2024 Approved Monetization Verification Maximizing Streamer Incomes</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-offline-access-top-quality-fb-videos-at-home-for-2024/"><u>[New] Offline Access Top Quality FB Videos at Home for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-magixs-legacy-in-vectors-finding-future-software-for-2024/"><u>[Updated] Magix's Legacy in Vectors Finding Future Software for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/effortless-installation-of-updated-hid-keyboard-drivers/"><u>Effortless Installation of Updated HID Keyboard Drivers</u></a></li>
-<li><a href="https://techidaily.com/how-to-update-apple-iphone-15-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 15 without Losing Any Data? | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-fresh-takes-on-favorites-movie-alternate-list/"><u>In 2024, Fresh Takes on Favorites - Movie Alternate List</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-seamlessly-blend-sound-and-visuals-editing-tips-for-canva-videos/"><u>In 2024, Seamlessly Blend Sound & Visuals Editing Tips for Canva Videos</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/quick-and-easy-winx-for-windows-amoofy-transferring-dvd-content-into-mp4-format-without-cost/"><u>Quick and Easy WinX for Windows Amoofy Transferring DVD Content Into MP4 Format Without Cost</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/ultimate-review-of-monster-hunter-world-tips-for-hunting-down-deadly-creatures/"><u>Ultimate Review of 'Monster Hunter: World': Tips for Hunting Down Deadly Creatures</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-canva-expertise-ditching-image-backdrops-with-ease/"><u>[New] Canva Expertise Ditching Image Backdrops with Ease</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-keeping-track-of-facetime-with-facebooks-live-feature/"><u>[New] In 2024, Keeping Track of FaceTime with Facebook's Live Feature</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ovel-vlog-talk-points-everyday-for-2024/"><u>[New] Novel Vlog Talk Points Everyday for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nveiling-the-mystery-of-proper-lighting-in-youtube-vids-for-2024/"><u>[New] Unveiling the Mystery of Proper Lighting in YouTube Vids for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-gamers-galaxy-a-thousand-stars-in-gaming-for-2024/"><u>[Updated] Gamers' Galaxy A Thousand Stars in Gaming for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-instant-stars-youtube-videos-with-rapid-popularity/"><u>[Updated] Instant Stars Youtube Videos with Rapid Popularity</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-screenplay-grooves-best-background-tunes-for-yt-shorts/"><u>[Updated] Screenplay Grooves Best Background Tunes For YT Shorts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-fundamentals-of-navigating-youtube-regulations/"><u>2024 Approved The Fundamentals of Navigating YouTube Regulations</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/e-avenue-a-million-paths-in-play-for-2024/"><u>Arcade Avenue A Million Paths in Play for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/disabling-amber-alert-notifications-on-your-android-device-a-step-by-step-guide/"><u>Disabling AMBER Alert Notifications on Your Android Device: A Step-by-Step Guide</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-critical-errors-how-to-overcome-windows-not-starting-woes/"><u>Fixing Critical Errors – How to Overcome Windows Not Starting Woes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-confirming-youtube-ad-revenue-accrual/"><u>In 2024, Confirming YouTube Ad Revenue Accrual</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-smart-7-hd-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Infinix Smart 7 HD Phone without Any Data Loss</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-synchronized-screenscape-tv-loops-of-online-media/"><u>In 2024, Synchronized Screenscape TV Loops of Online Media</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/pro-editors-pathway-perfecting-video-for-instagram-on-final-cut-x-for-2024/"><u>Pro Editor's Pathway Perfecting Video for Instagram on Final Cut X for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-samsung-galaxy-s23-fe-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Samsung Galaxy S23 FE | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Illuminating Your Content  YouTube Video Lighting Secrets for 2024\""
-date: 2024-09-23T23:48:40.463Z
-updated: 2024-09-29T05:05:03.056Z
+date: 2024-09-29T17:29:45.987Z
+updated: 2024-10-03T18:56:24.933Z
 tags:
   - ai video
   - ai youtube
@@ -52,13 +52,6 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 ### 2. Home Lighting
@@ -66,6 +59,13 @@ Above are two freeze frames from one of Daniel's past window-lit vlogs. Although
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
@@ -77,35 +77,22 @@ Ceiling lights are also typically situated in the center of a room in order to l
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -122,10 +109,10 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Filmora
@@ -135,6 +122,13 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -157,19 +151,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-building-bonds-before-buying-subscription-strategies/"><u>[New] 2024 Approved Building Bonds Before Buying Subscription Strategies</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-digital-riches-unleashed-measuring-your-success-on-youtubes-platform/"><u>[New] 2024 Approved Digital Riches Unleashed Measuring Your Success on YouTube's Platform</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-educators-guide-to-thriving-youtube-channels-10-must-know-secrets/"><u>[New] 2024 Approved Educators' Guide to Thriving YouTube Channels – 10 Must-Know Secrets</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-elevating-youtube-prominence-with-expert-use-of-the-hub/"><u>[New] 2024 Approved Elevating Youtube Prominence with Expert Use of the Hub</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-guide-to-profit-sharing-for-creators-of-video-clips/"><u>[New] A Guide to Profit Sharing for Creators of Video Clips</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-curb-automated-youtube-content-feeds/"><u>[New] In 2024, Curb Automated YouTube Content Feeds</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-a-step-by-step-to-adding-music-to-vimeo-videos/"><u>[Updated] A Step-by-Step to Adding Music to Vimeo Videos</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/4-ways-to-unlock-apple-iphone-14-plus-to-use-usb-accessories-without-passcode-drfone-by-drfone-ios/"><u>4 Ways to Unlock Apple iPhone 14 Plus to Use USB Accessories Without Passcode | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/free-conversion-how-to-change-mp4-files-to-m4v-format-with-online-tools/"><u>Free Conversion: How to Change MP4 Files to M4V Format with Online Tools</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-motorola-razr-40-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Motorola Razr 40 Ultra | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-videos-whats-the-gist-in-2024/"><u>Micro Videos What's the Gist, In 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Nokia C02 | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/resolved-how-to-fix-a-persistent-loading-issue-during-discord-broadcasting/"><u>Resolved: How to Fix a Persistent 'Loading' Issue During Discord Broadcasting</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/unstick-stuck-airpods-a-guide-to-nine-methods-that-will-charge-them-up-again/"><u>Unstick Stuck AirPods: A Guide to Nine Methods That Will Charge Them Up Again</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-achieving-excellence-in-your-android-video-brightness-for-2024/"><u>[New] Achieving Excellence in Your Android Video Brightness for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-15-must-have-openers-for-maximum-youtube-engagement/"><u>[New] In 2024, 15 Must-Have Openers for Maximum YouTube Engagement</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tep-by-step-guide-to-making-a-hit-youtuber-short/"><u>[New] Step-by-Step Guide to Making a Hit Youtuber Short</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hy-av1-improving-streams-and-videos-on-youtube/"><u>[New] Why AV1? – Improving Streams and Videos on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-news-narratives-concluding-flourishes/"><u>[Updated] 2024 Approved News Narratives' Concluding Flourishes</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-creating-impactful-outros-top-6-free-tools/"><u>[Updated] Creating Impactful Outros Top 6 FREE Tools</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-free-world-quest-the-elite-10-mmo-rankings-for-2024/"><u>[Updated] Free World Quest The Elite 10 MMO Rankings for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-amplify-online-impact-through-savvy-templates-design/"><u>[Updated] In 2024, Amplify Online Impact Through Savvy Templates Design</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-seamless-zooms-check-out-our-top-10-video-editors/"><u>[Updated] Seamless Zooms? Check Out Our Top 10 Video Editors</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/oad-free-sound-effects-for-youtubers-in-2024/"><u>Download Free Sound Effects for YouTubers, In 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-the-cast-unable-to-locate-device-issue-in-windows-11-quick-fixes-and-explanations/"><u>Solving the 'Cast Unable to Locate Device' Issue in Windows 11 - Quick Fixes and Explanations</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-future-of-advertising-mastering-metaverse-for-2024/"><u>The Future of Advertising Mastering Metaverse for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlocking-the-potential-of-win11-remote-storage-integration/"><u>Unlocking the Potential of Win11 Remote Storage Integration</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-infinix-zero-5g-2023-turbo-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Infinix Zero 5G 2023 Turbo Phone Network-Ready</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-xiaomi-redmi-13c-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Xiaomi Redmi 13C 5G | Dr.fone</u></a></li>
 </ul></div>
 

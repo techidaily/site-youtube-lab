@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Prevent These 8 Key Mishaps on Your YouTube Journey"
-date: 2024-09-21T20:47:07.083Z
-updated: 2024-09-22T16:42:47.146Z
+date: 2024-09-27T04:51:03.445Z
+updated: 2024-10-04T11:24:37.870Z
 tags:
   - ai video
   - ai youtube
@@ -49,6 +49,13 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Coming up with titles that won't get searched
 
 Many new YouTubers make the mistake of titling their videos in an ineffective way. Rather than coming up with titles that more people might search, they either come up with titles that summarize what the video is about as a whole or title their videos the way big YouTubers do.
@@ -63,13 +70,6 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Making weak intros
 
 After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
@@ -78,6 +78,19 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
@@ -85,10 +98,10 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
@@ -108,10 +121,10 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -133,5 +146,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/eauty-brilliance-masterclasses-and-product-explorations-for-2024/"><u>[New] Beauty Brilliance Masterclasses and Product Explorations for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-investing-wisely-in-subscribers-get-more-for-less/"><u>[New] In 2024, Investing Wisely in Subscribers Get More for Less</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-visionaries-at-work-a-detailed-review-of-top-3d-modeling-programs/"><u>[New] In 2024, Visionaries at Work A Detailed Review of Top 3D Modeling Programs</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-boundless-creativity-celebrating-our-top-10-female-youtubers/"><u>[Updated] 2024 Approved Boundless Creativity Celebrating Our Top 10 Female YouTubers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-channel-combat-determining-which-earns-more-from-videosdailymotion-or-youtube/"><u>2024 Approved Channel Combat Determining Which Earns More From Videos—Dailymotion or YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-mastering-video-production-with-chroma-key-techniques/"><u>2024 Approved Mastering Video Production with Chroma Key Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-seamless-video-watch-removing-youtube-barriers/"><u>2024 Approved Seamless Video Watch Removing YouTube Barriers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-ultimate-playbook-for-captivating-youtube-audiences-with-strategic-banners/"><u>2024 Approved The Ultimate Playbook for Captivating YouTube Audiences with Strategic Banners</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-oppo-reno-11-pro-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/dable-options-selecting-the-right-cam-for-your-needs-for-2024/"><u>Affordable Options Selecting the Right Cam for Your Needs for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/converting-dvds-to-mp4-on-mac-free-of-charge-a-comprehensive-guide-with-rippatoo/"><u>Converting DVDs to MP4 on Mac Free of Charge: A Comprehensive Guide with Rippatoo</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/experience-excellent-connectivity-with-the-simplistic-design-of-clearstreams-eclipse-antenna-a-comprehensive-review/"><u>Experience Excellent Connectivity with the Simplistic Design of ClearStream's Eclipse Antenna - A Comprehensive Review</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-install-the-latest-usb-c-drivers-on-windows-11/"><u>How to Install the Latest USB-C Drivers on Windows 11</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-aurora-high-dynamic-range-review-pros-and-cons/"><u>In 2024, Aurora High-Dynamic Range Review – Pros & Cons</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-the-future-of-podcasts-starts-with-smart-name-generation/"><u>In 2024, The Future of Podcasts Starts with Smart Name Generation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/izing-profits-from-short-youtube-videos-for-2024/"><u>Maximizing Profits From Short YouTube Videos for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-consumers-top-pick-exploring-the-6-finest-stores-for-buying-a-new-laptop/"><u>The Consumer's Top Pick: Exploring the 6 Finest Stores for Buying a New Laptop</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/transforming-messages-into-memorable-video-experienits/"><u>Transforming Messages Into Memorable Video Experienits</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/bes-transformation-blueprint-for-igtv-adaptation/"><u>YouTube's Transformation Blueprint for IGTV Adaptation</u></a></li>
+</ul></div>
 

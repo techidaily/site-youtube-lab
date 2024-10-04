@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Record Good Audio Without a Microphone, In 2024"
-date: 2024-09-26T17:58:27.520Z
-updated: 2024-09-28T20:52:58.390Z
+date: 2024-09-29T19:49:37.318Z
+updated: 2024-10-03T18:00:33.395Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
@@ -80,16 +87,16 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Use a Free Audio App
 
@@ -98,13 +105,6 @@ If you’re recording on a smartphone, you can download a free app that will let
 Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
-
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
 
@@ -115,16 +115,10 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -133,20 +127,14 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -169,15 +157,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-unlocking-automatic-video-playback-in-facebook/"><u>[New] 2024 Approved Unlocking Automatic Video Playback in Facebook</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/rom-hidden-to-highlighted-your-2-ways-to-see-yts-past-videos/"><u>[New] From Hidden to Highlighted Your 2 Ways to See YT's Past Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-all-about-youtubes-elite-access-a-complete-breakdown/"><u>[New] In 2024, All About YouTube's Elite Access - A Complete Breakdown</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-miniature-melodic-maps-actors-in-audio-landscape/"><u>[New] In 2024, Miniature Melodic Maps Actors in Audio Landscape</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-viral-harmony-essential-soundtracks-for-popular-video-shorts/"><u>[Updated] In 2024, Viral Harmony Essential Soundtracks For Popular Video Shorts</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-vivo-t2x-5g-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Vivo T2x 5G Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/hard-resetting-an-vivo-y55s-5g-2023-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Vivo Y55s 5G (2023) Device Made Easy | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-cast-honor-x50iplus-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Honor X50i+ to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Vivo Y27 4G? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-lava-yuva-3-pro-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Lava Yuva 3 Pro Phone Now with These Tips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/arn-while-playing-games-online-for-2024/"><u>[New] Earn While Playing Games Online for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/avigating-content-sharing-youtube-standards-vs-creative-commons/"><u>[New] Navigating Content Sharing YouTube Standards Vs. Creative Commons</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-youtube-channel-art-how-to-make-banners-icons-and-thumbnails/"><u>[Updated] 2024 Approved YouTube Channel Art How to Make Banners, Icons, and Thumbnails?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-does-the-sub4sub-strategy-improve-content-consumption/"><u>[Updated] In 2024, Does the Sub4Sub Strategy Improve Content Consumption?</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/comparing-ebook-formats-exploring-the-distinctions-of-kindle-kfn-kcr-azwazw3-and-more/"><u>Comparing Ebook Formats: Exploring the Distinctions of Kindle KFN, KCR, AZW/AZW3, and More</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-sony-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Sony</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-vivo-y56-5g-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Vivo Y56 5G Phone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-superior-streaming-recorders-for-youtube-vloggers/"><u>In 2024, Superior Streaming Recorders for YouTube Vloggers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/optimal-handbrake-configuration-tips-converting-dvds-to-mp4-flawlessly/"><u>Optimal HandBrake Configuration Tips: Converting DVDs to MP4 Flawlessly</u></a></li>
 </ul></div>
 

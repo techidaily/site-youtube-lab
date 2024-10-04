@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Dealing with YouTube's Challenging Earnings Model for 2024"
-date: 2024-09-20T19:38:23.106Z
-updated: 2024-09-22T23:00:41.005Z
+date: 2024-09-27T22:23:48.444Z
+updated: 2024-10-03T23:45:32.973Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,13 @@ In order to qualify for YouTube monetization, you must meet these milestones.
 
 YouTube’s reasoning for these changes is essentially the same as they gave for the 10,000 views milestone: having higher standards will help them prevent inappropriate or stolen content from being monetized. They also point out that the majority of channels affected will not have been making any significant money anyways (less than $2.50 per month, in most cases).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do the Changes Affect Small YouTube Channels
 
 However, even if the immediate financial impact won’t be that financially significant, it is untrue to say these new rules will not affect YouTubers with smaller channels. Having to plan to achieve and maintain those 4,000 hours of watch time and 1,000 subs could have a major impact on how creators plan their content. Will you feel pressured to abandon content that you and your existing viewers love in favor of making videos that will get you to those milestones faster?
@@ -63,6 +70,19 @@ However, even if the immediate financial impact won’t be that financially sign
   That will be a question facing a lot of smaller YouTubers, especially those who have already reached 1,000 subscribers and are now in a situation where they have to maintain those 4,000 hours of watch time. You won't be cut off from monetization automatically if you fall from 4,000 hours to 3,500 hours one month (after already having monetized your channel), but YouTube may review your channel and remove monetization if time passes and you still haven't gotten back up to 4,000 hours.
 
 These new rules could also put niche channels at a disadvantage. Niche channels may have devoted followers who keep their watch time up, but getting to 1,000 subscribers could be harder for them purely because their potential audience is already smaller.
+
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Join The Conversation
 
@@ -74,18 +94,18 @@ Cough. Logan Paul. Cough.
 
 ####  
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Increasing YouTube Watch Time
 
 1. Sorting your videos into playlists encourages viewers to spend a lot more time on your channel.
 2. Link your videos together using cards and interactive end screens/outros.
 3. Basic video editing. Simple things like adding transition effects and cutting out long pauses will help keep viewers watching your videos for longer.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Helpful Blog Posts
 
@@ -104,10 +124,10 @@ How do you get subscribers, or increase your watch time? If you have any tips, s
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -129,5 +149,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-harmonizing-sights-with-itunes-acoustics/"><u>[New] In 2024, Harmonizing Sights with iTunes Acoustics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nnocence-betrayed-consequences-of-acquiring-sham-supporters-in-social-media-for-2024/"><u>[New] Innocence Betrayed Consequences of Acquiring Sham Supporters in Social Media for 2024</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-vlogging-through-verbiage-a-2023-guide-to-twitter-threads/"><u>[New] Vlogging Through Verbiage - A 2023 Guide to Twitter Threads</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-dynamic-and-attractive-youtubes-channel-names-for-modern-vloggers-up-to-156-characters-for-2024/"><u>[Updated] Dynamic & Attractive YouTubes Channel Names for Modern Vloggers (Up to 156 Characters) for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-effortless-audio-downloads-these-24-tools-split-youtube-sounds/"><u>2024 Approved Effortless Audio Downloads These 24 Tools Split YouTube Sounds</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-essential-screen-recording-software-a-comprehensive-analysis/"><u>2024 Approved Essential Screen Recording Software A Comprehensive Analysis</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/5-solutions-for-sony-xperia-10-v-unlock-without-password-by-drfone-android/"><u>5 Solutions For Sony Xperia 10 V Unlock Without Password</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-honor-70-lite-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Honor 70 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-oppo-a79-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on Oppo A79 5G</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-harnessing-viral-power-your-pathway-to-youtube-fame/"><u>In 2024, Harnessing Viral Power Your Pathway to YouTube Fame</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/infusing-dandd-realms-with-ai-powered-character-blueprints/"><u>Infusing D&D Realms with AI-Powered Character Blueprints</u></a></li>
+</ul></div>
 

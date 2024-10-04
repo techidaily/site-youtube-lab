@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Self-Portraits  Top Techniques for YouTube Presentations for 2024\""
-date: 2024-09-16T19:53:32.638Z
-updated: 2024-09-22T19:06:16.642Z
+date: 2024-10-03T12:01:52.778Z
+updated: 2024-10-04T03:37:00.935Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,13 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -59,10 +66,10 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
@@ -79,6 +86,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -88,10 +102,10 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
@@ -137,5 +151,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-magic-in-managing-photos-with-magix/"><u>[New] Magic in Managing Photos with MAGIX</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-boost-stories-interaction-with-peculiar-creative-questions-for-2024/"><u>[Updated] Boost Stories Interaction with Peculiar Creative Questions for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-elevate-your-smartphone-shots-best-camera-accessories-for-filmmakers/"><u>[Updated] Elevate Your Smartphone Shots Best Camera Accessories for Filmmakers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-elevating-your-instagram-video-game-to-go-global/"><u>[Updated] In 2024, Elevating Your Instagram Video Game to Go Global</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-transforming-mobile-content-into-profitable-youtube-experiences/"><u>[Updated] In 2024, Transforming Mobile Content Into Profitable YouTube Experiences</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-high-fidelity-screen-recorder-for-windows-11/"><u>2024 Approved High-Fidelity Screen Recorder for Windows 11</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-streamline-and-simplify-a-user-friendly-approach-to-shorts-thumbnails/"><u>2024 Approved Streamline & Simplify A User-Friendly Approach to Shorts Thumbnails</u></a></li>
+<li><a href="https://fox-access.techidaily.com/become-a-9gag-meme-connoisseur-with-these-simple-steps/"><u>Become a 9GAG Meme Connoisseur with These Simple Steps</u></a></li>
+<li><a href="https://fox-http.techidaily.com/dial-up-your-facebook-video-faster-essential-software-revealed-for-2024/"><u>Dial-Up Your Facebook Video Faster Essential Software Revealed for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-apex-chart-analyst-master-video-popularity/"><u>In 2024, Apex Chart Analyst Master Video Popularity</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-oppo-k11-5g-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Oppo K11 5G Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-unlocking-free-content-creation-blending-text-and-video/"><u>In 2024, Unlocking Free Content Creation Blending Text & Video</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/izing-your-youtube-content-with-ease/"><u>Organizing Your YouTube Content with Ease</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/premium-selection-10-affordable-captions-from-youtube/"><u>Premium Selection 10 Affordable Captions From YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/king-your-potential-multiplatform-studio-use-for-profit/"><u>Unlocking Your Potential Multiplatform Studio Use for Profit</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/updated-guide-on-samsung-m202-drivers-downloading-and-setup-processes/"><u>Updated Guide on Samsung M202# Drivers Downloading and Setup Processes</u></a></li>
+</ul></div>
 

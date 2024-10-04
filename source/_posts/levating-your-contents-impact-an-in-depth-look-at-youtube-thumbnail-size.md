@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Elevating Your Content's Impact  An In-Depth Look at YouTube Thumbnail Size\""
-date: 2024-09-19T17:02:09.461Z
-updated: 2024-09-22T22:03:37.718Z
+date: 2024-10-02T10:40:43.760Z
+updated: 2024-10-04T08:36:35.854Z
 tags:
   - ai video
   - ai youtube
@@ -73,14 +73,35 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 2\. For Already Uploaded Video
 
@@ -96,12 +117,26 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Q&A-- About YouTube Thumbnail Images
 
 You may want to know:
 
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
@@ -111,13 +146,6 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 2\. Now go to the File menu and click **Save as** then select JPEG picture
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
 
@@ -149,13 +177,6 @@ YouTube thumbnail plays an important part for the audience's first impression on
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -175,5 +196,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-breaking-down-youtube-revenue-per-million-views/"><u>[New] In 2024, Breaking Down YouTube Revenue per Million Views</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-exploring-beyond-manycam-enhanced-alternatives/"><u>[New] In 2024, Exploring Beyond ManyCam Enhanced Alternatives?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-practical-steps-for-disabling-youtube-channels-on-devices/"><u>[New] In 2024, Practical Steps for Disabling YouTube Channels on Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nlocking-the-secrets-to-parallel-playback-prowess-for-2024/"><u>[New] Unlocking the Secrets to Parallel Playback Prowess for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-a-comprehensive-approach-to-live-video-on-websites/"><u>[Updated] 2024 Approved A Comprehensive Approach to Live Video on Websites</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-clear-up-cloud-call-clarity-zoom-audio-troubleshooting/"><u>[Updated] Clear Up Cloud Call Clarity Zoom Audio Troubleshooting</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unveiling-youtubes-shorts-investment-plan-for-2024/"><u>[Updated] Unveiling YouTube's Shorts Investment Plan for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-comedy-classics-a-curated-15-channel-collection-for-humor/"><u>2024 Approved Comedy Classics A Curated 15-Channel Collection for Humor</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-vivo-y02t-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Vivo Y02T without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Poco M6 Pro 4G? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1723864249492-pre-order-now-sabrents-high-performance-rocket-5-ssds-from-just-190/"><u>Pre-Order Now: Sabrent's High-Performance Rocket 5 SSDs From Just $190!</u></a></li>
+</ul></div>
 

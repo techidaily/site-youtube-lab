@@ -1,7 +1,7 @@
 ---
 title: "\"[New] More than Just Likes and Watch Time  The Complexity of YouTube's View Tally\""
-date: 2024-09-24T23:12:29.194Z
-updated: 2024-09-29T00:25:41.044Z
+date: 2024-09-28T18:00:00.042Z
+updated: 2024-10-03T16:46:57.181Z
 tags:
   - ai video
   - ai youtube
@@ -54,10 +54,10 @@ YouTube doesn’t provide a clear definition of what counts as a view, but we kn
 ![how YouTube counts view](https://images.wondershare.com/filmora/article-images/how-youtube-count-view.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. How Does YouTube Count Views?
@@ -70,19 +70,6 @@ At times, your view count can even be frozen temporarily until the algorithm can
 
 You May Also Like:
 [ 5 Tips To Get More Views With YouTube Optimization \[Free Checklist\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 3\. How Does YouTube’s View Count Algorithm Work?
 
@@ -100,13 +87,6 @@ We are adding ‘likely’ here because, despite this 30-second rule which has b
 
 Try to watch the same video numerous times in a single day. You will find that the count will add up at first, but after some time it will stop. YouTube knows that a lot of times people replay some videos over and over when they really enjoy them, and so they want to factor replays into their algorithm because they suggest quality. However, to avoid spam views, the counter will stop after a certain point.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Account Tracking Factors - Some Viewers Don't Count
 
 Something else that can affect whether a view is counted is the behavior of the account which watches it prior to landing on your video’s watch page. Sometimes, YouTube might feel that there is an increased chance a particular account is actually a bot, and then views from that account might not be added.
@@ -114,6 +94,19 @@ Something else that can affect whether a view is counted is the behavior of the 
 One way that [YouTube might flag an account as a potential bot](https://support.google.com/youtube/thread/27792330?hl=en) is if it is jumping between videos directly without navigating through recommendations, the search engine, or the account’s subscriber feed (how are they getting between these watch page URLs if they aren’t clicking on anything YouTube can record?). To add to it, if the viewer is watching each of the videos for almost 30 seconds exactly (or less) there is an increased probability that it is not a human but a bot (or a human watching the bare minimum as part of a view exchange program).
 
 Any bot-like action will result in an account’s views do not be added to your view count.
+
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. The Skip & Skim
 
@@ -124,13 +117,6 @@ It’s not uncommon for viewers to watch a video for say five seconds, skip forw
 Sometimes YouTube will freeze a view count in order to check that it is accurate. When the count is unfrozen, the count may jump up as views are validated or it can go down if YouTube detects a problem.
 
 You can use [YouTube’s analytics reports](https://blog.hootsuite.com/youtube-analytics/) to monitor an estimate of your potential views, but there is no assurance that this data will completely match your official view count.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 7\. The 301 Mark
 
@@ -148,7 +134,21 @@ If you want to engage your audience with cool effects and Filmora is the best ch
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -171,17 +171,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-celebrating-matrimony-the-best-wedding-movies-from-youtube-to-vimeo/"><u>[New] 2024 Approved Celebrating Matrimony The Best Wedding Movies From YouTube to Vimeo</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-elevate-your-game-strategies-for-stellar-gaming-youtube-banners/"><u>[New] 2024 Approved Elevate Your Game Strategies for Stellar Gaming YouTube Banners</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-nanofilm-whiz/"><u>[New] 2024 Approved NanoFilm Whiz</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-ultimate-quick-picture-viewer-on-windows-10/"><u>[New] Ultimate Quick Picture Viewer on Windows 10</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-ten-strategies-for-controlling-a-twitch-broadcast/"><u>[Updated] 2024 Approved Ten Strategies for Controlling a Twitch Broadcast</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/00001776-updated-2024-approved-tripping-up-heres-how-to-avoid-it/"><u>[Updated] 2024 Approved Tripping Up? Here's How to Avoid It!</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-maximizing-view-count-for-facebook-videos/"><u>[Updated] In 2024, Maximizing View Count for Facebook Videos</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-prioritizing-quality-the-best-skype-recorders-listed/"><u>[Updated] Prioritizing Quality The Best Skype Recorders Listed</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/charting-the-progress-from-gpt-1-to-gpt-4/"><u>Charting the Progress: From GPT-1 to GPT-4</u></a></li>
-<li><a href="https://win-forum.techidaily.com/easy-to-follow-steps-for-activating-revo-applications-uninstall-tool/"><u>Easy-to-Follow Steps for Activating Revo Application's Uninstall Tool</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/secrets-revealed-best-8-costless-3d-vids-software-on-pcmac/"><u>Secrets Revealed Best 8 Costless 3D Vids Software on PC/Mac</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-premium-wedding-films-online-youtube-and-vimeo-for-2024/"><u>Top 9 Premium Wedding Films Online Youtube & Vimeo for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rafting-emotional-impact-in-personal-youtube-content-for-2024/"><u>[New] Crafting Emotional Impact in Personal YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-discover-these-27-purely-free-youtube-audio-ripper-tools/"><u>[New] In 2024, Discover These 27 Purely Free YouTube Audio Ripper Tools</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-magix-music-maker-2024-a-step-forward-in-audio-production/"><u>[New] Magix Music Maker 2024 A Step Forward in Audio Production</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/obile-and-desktop-techniques-for-youtube-short-video-submission/"><u>[New] Mobile & Desktop Techniques for YouTube Short Video Submission</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-tracking-your-channels-ad-revenue-accrual/"><u>[Updated] 2024 Approved Tracking Your Channel's Ad Revenue Accrual</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-from-dull-to-dynamic-an-in-depth-guide-to-hue-mastery/"><u>[Updated] From Dull to Dynamic An In-Depth Guide to Hue Mastery</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-beyond-tube-the-premier-spots-for-online-video-sharing/"><u>[Updated] In 2024, Beyond Tube The Premier Spots for Online Video Sharing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-swift-guide-to-chromakey-and-background-separation/"><u>[Updated] In 2024, Swift Guide to Chromakey and Background Separation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-synchronized-screenscapes-youtube-clips-in-tv-loops/"><u>[Updated] In 2024, Synchronized Screenscapes YouTube Clips in TV Loops</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723175696251-5-uphere-m201-essential-nvme-ssd-heatsink-performance-review-reliable-thermal-management-on-a-budget/"><u>$5 UpHere M201 Essential NVMe SSD Heatsink Performance Review - Reliable Thermal Management on a Budget!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-expert-advice-for-embedding-youtube-playlists-with-ease/"><u>2024 Approved Expert Advice for Embedding YouTube Playlists with Ease</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/a-decade-of-innovation-mondlybacks-filter-prowess/"><u>A Decade of Innovation: MondlyBack’s Filter Prowess</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-samsung-galaxy-m14-4g-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Samsung Galaxy M14 4G to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ultimate-guide-setting-up-the-loop-addon-in-kodi-for-top-tier-live-sporting-events/"><u>Ultimate Guide: Setting Up The Loop Addon in Kodi for Top-Tier Live Sporting Events</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/1726027707409-twitch/"><u>スムーズにブラウザーでTwitch動画を保存する究極ガイド</u></a></li>
 </ul></div>
 

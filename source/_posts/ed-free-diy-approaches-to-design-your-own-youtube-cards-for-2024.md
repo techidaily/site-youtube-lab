@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Free DIY Approaches to Design Your Own YouTube Cards for 2024"
-date: 2024-09-16T23:18:50.861Z
-updated: 2024-09-22T21:03:40.502Z
+date: 2024-09-29T19:23:26.096Z
+updated: 2024-10-03T21:34:43.625Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +124,19 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,18 +156,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/est-free-video-cutting-apps-your-go-to-list-for-2024/"><u>[New] Best Free Video Cutting Apps Your Go-To List for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-your-device-uninterrupted-revealing-the-top-7-android-adblockers/"><u>[New] In 2024, Your Device, Uninterrupted Revealing the Top 7 Android AdBlockers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-reimagining-focus-the-new-age-of-zooming-clear/"><u>[New] Reimagining Focus The New Age of Zooming Clear</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/mb-video-marketing-success-factors/"><u>[New] SMB Video Marketing Success Factors</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-step-by-step-mastering-the-art-of-vr-exploration/"><u>[New] Step-by-Step Mastering the Art of VR Exploration</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-create-impactful-video-elements-cardsannotations/"><u>[Updated] 2024 Approved How to Create Impactful Video Elements Cards/Annotations</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-building-a-better-movie-utilizing-windows-11s-movie-maker/"><u>[Updated] In 2024, Building a Better Movie Utilizing Windows 11'S Movie Maker</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-stepwise-reduction-tactics-for-audio-levels-in-fl-studio/"><u>[Updated] Stepwise Reduction Tactics for Audio Levels in FL Studio</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-effective-ways-to-archive-and-record-youtube-events/"><u>2024 Approved Effective Ways to Archive and Record Youtube Events</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1726030138039-youtube/"><u>無料で楽しむためのYoutube動画ダウンロードテクニック</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/approach-combine-knowledge-of-arc-blow-causes-with-mitigation-strategies-discussed-earlier/"><u>Approach: Combine Knowledge of Arc Blow Causes with Mitigation Strategies Discussed Earlier</u></a></li>
+<li><a href="https://win-forum.techidaily.com/digital-engagement-essentials-mastering-facebook-twitter-instagram-and-youtube-strategies/"><u>Digital Engagement Essentials: Mastering Facebook, Twitter, Instagram & Youtube Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/guide-to-reactivating-audio-solve-your-windows-media-player-sound-troubles-today/"><u>Guide to Reactivating Audio: Solve Your Windows Media Player Sound Troubles Today</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-unlocking-your-audience-youtube-subscriber-insights/"><u>In 2024, Unlocking Your Audience YouTube Subscriber Insights</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/streamlining-captioning-processes-on-vimeo-videos-for-2024/"><u>Streamlining Captioning Processes on Vimeo Videos for 2024</u></a></li>
+</ul></div>
 

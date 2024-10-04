@@ -1,7 +1,7 @@
 ---
 title: "Key Lights and Soft Shadows for Vloggers for 2024"
-date: 2024-09-22T23:21:32.911Z
-updated: 2024-09-29T03:37:22.303Z
+date: 2024-09-26T22:55:47.454Z
+updated: 2024-10-04T07:53:52.072Z
 tags:
   - ai video
   - ai youtube
@@ -50,19 +50,19 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -92,10 +92,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -111,10 +111,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,20 +138,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/scaping-a-stroke-on-your-youtube-channel-for-2024/"><u>[New] Escaping a Stroke on Your YouTube Channel for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/uick-video-growth-top-20-hacks-for-instant-impact-for-2024/"><u>[New] Quick Video Growth Top 20 Hacks for Instant Impact for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-streamline-your-study-avoiding-edgenuity-videos-efficiently/"><u>[New] Streamline Your Study Avoiding Edgenuity Videos Efficiently</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-joining-flv-files-a-step-by-step-guide/"><u>[Updated] 2024 Approved Joining FLV Files A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-pro-video-gear-expert-recommendations-for-youtube-clips/"><u>[Updated] In 2024, Pro Video Gear Expert Recommendations for YouTube Clips</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-top-10-affordable-video-chat-for-android-users/"><u>[Updated] In 2024, Top 10 Affordable Video Chat for Android Users</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-transforming-your-film-with-advanced-color-separation/"><u>[Updated] In 2024, Transforming Your Film with Advanced Color Separation</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-lit-tales-in-just-a-minute-for-2024/"><u>[Updated] Lit Tales in Just a Minute for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-zte-nubia-z60-ultra-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/effortless-voice-recording-in-windows-10-tips-for-easy-use-and-solutions-to-common-problems/"><u>Effortless Voice Recording in Windows 10: Tips for Easy Use & Solutions to Common Problems</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ce-your-videos-call-to-action-a-step-by-step-filmora-guide/"><u>Enhance Your Video's Call-to-Action A Step-by-Step Filmora Guide</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/gratis-aufwandlose-umrechnung-von-h264-zu-h265-hochwertige-videokompression-bei-reduzierter-dateigrosse/"><u>Gratis Aufwandlose Umrechnung Von H.264 Zu H.265: Hochwertige Videokompression Bei Reduzierter Dateigröße</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/new-delete-tiktok-watermarks-with-the-best-online-tools-for-2024/"><u>New Delete TikTok Watermarks with the Best Online Tools for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/transforma-tu-audio-facilmente-con-movavi-wav-libre-desde-mpe-en-linea/"><u>Transforma Tu Audio Fácilmente Con Movavi: WAV Libre Desde MPE en Línea</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-instant-mp3-from-your-fb-videos-online-converter/"><u>[New] In 2024, Instant MP3 From Your FB Videos - Online Converter</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-youtube-google-meet-live-broadcast-steps-for-2024/"><u>[New] Mastering YouTube Google Meet Live Broadcast Steps for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-ultimate-list-lovers-handbook-for-crafting-youtube-music-selections/"><u>[New] The Ultimate List Lover's Handbook for Crafting YouTube Music Selections</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-embrace-9-festive-feasts-watch-holiday-epics-at-zero-cost-online/"><u>[Updated] Embrace 9 Festive Feasts Watch Holiday Epics at Zero Cost Online!</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-finding-the-perfect-recorders-outside-microsofts-ecosystem/"><u>[Updated] In 2024, Finding the Perfect Recorders Outside Microsoft's Ecosystem</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-leapfrog-your-sub-count-top-techniques-unveiled/"><u>[Updated] In 2024, Leapfrog Your Sub Count Top Techniques Unveiled</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-navigating-the-new-norm-earnings-in-vlogging/"><u>[Updated] In 2024, Navigating the New Norm Earnings in Vlogging</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-gear-up-yourself-selecting-prime-lenses-for-successful-vlogging/"><u>2024 Approved Gear Up Yourself Selecting Prime Lenses for Successful Vlogging</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-mastering-youtube-profits-studio-tips-for-all-gadgets/"><u>2024 Approved Mastering YouTube Profits Studio Tips for All Gadgets</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-nokia-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Nokia FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tial-audio-tools-free-superior-dj-templates-online-for-2024/"><u>Essential Audio Tools Free, Superior DJ Templates Online for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-download-youtube-playlist-step-by-step-for-2024/"><u>How to Download YouTube Playlist-Step by Step for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-how-to-bypass-realme-11x-5g-frp-android-10111213-by-drfone-android/"><u>In 2024, Easy Guide How To Bypass Realme 11X 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-can-we-bypass-itel-p55t-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Itel P55T FRP?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/navigating-the-world-of-predictive-ai-techniques/"><u>Navigating the World of Predictive AI Techniques</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/optimizing-gameplay-smoothness-how-to-solve-stutter-problems-and-raise-fps-in-valorant/"><u>Optimizing Gameplay Smoothness: How to Solve Stutter Problems & Raise FPS in Valorant</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/prime-freefire-content-creation-on-youtube-for-2024/"><u>Prime FreeFire Content Creation on YouTube for 2024</u></a></li>
 </ul></div>
 

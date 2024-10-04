@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Host Smart and Cheap  Your Guide to Youtube Seminars\""
-date: 2024-09-20T16:52:31.962Z
-updated: 2024-09-22T18:35:10.955Z
+date: 2024-10-02T12:30:39.810Z
+updated: 2024-10-04T10:49:39.576Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hosting a Webinar for Free
 
 The world's largest video sharing platform also features broadcasting options that enable its users to schedule events and thus host webinars free of charge. Previously known as the Google Hangouts on Air, the YouTube Live feature is fairly simple to set up, but before you start your first webinar you will need to choose a landing page and a chatbox. If you already have a website you can simply copy and paste the embed link and create a landing page for your webinar, or you can use landing pages software products such as [LeadPages](https://www.leadpages.net/) or [Unbounce](https://unbounce.com/) if you don't have your own online domain. For setting up chatboxes for your webinars we recommend using [Chatroll](https://chatroll.com/) or [RumbleTalk](https://www.rumbletalk.com/) platforms, although you'll have to pay a fee if you choose to chat with your audience using these computer programs. So here's how you can host your first webinar on YouTube for free.
@@ -82,6 +89,13 @@ Hit the Go Live Now button, when you are ready to start your first webinar and e
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -101,12 +115,19 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-camera-screens-at-your-fingertips-review-of-top-free-recorders-for-2024/"><u>[New] Camera Screens at Your Fingertips Review of Top Free Recorders for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/harting-a-course-through-youtubes-copyright-maze-for-2024/"><u>[New] Charting a Course Through YouTube's Copyright Maze for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/inding-the-ideal-format-for-your-youtube-videos/"><u>[New] Finding the Ideal Format for Your YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ultimate-10-volume-upgrade-tools-for-pc-ios-and-android/"><u>[New] Ultimate 10 Volume Upgrade Tools for PC, iOS & Android</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-bridging-the-media-gap-coordinating-vids-on-twitter-and-tumblr/"><u>[Updated] 2024 Approved Bridging the Media Gap Coordinating Vids on Twitter & Tumblr</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-ultimate-global-earning-creator/"><u>[Updated] In 2024, The Ultimate Global Earning Creator</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-perfect-sources-for-dj-template-video-downloads/"><u>[Updated] Perfect Sources for DJ Template Video Downloads</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-understanding-the-shift-navigating-posting-in-an-algorithm-world/"><u>[Updated] Understanding the Shift Navigating Posting in an Algorithm World</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/discovering-japanese-top-free-and-self-taught-study-strategies/"><u>Discovering Japanese: Top Free & Self-Taught Study Strategies</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/explorations-reward-6-innovative-minecraft-residences/"><u>Exploration's Reward 6 Innovative Minecraft Residences</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-the-elite-selection-best-selling-mac-audio-editing-tools-ranked-for-2024/"><u>New The Elite Selection Best-Selling Mac Audio Editing Tools, Ranked for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/prime-presenter-prefix-planner/"><u>Prime Presenter Prefix Planner</u></a></li>
+</ul></div>
 

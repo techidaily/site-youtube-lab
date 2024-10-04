@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Dynamic Lighting  Elevating Video Aesthetics\""
-date: 2024-09-24T01:49:11.341Z
-updated: 2024-09-28T18:55:25.082Z
+date: 2024-09-29T01:14:01.760Z
+updated: 2024-10-03T20:19:55.318Z
 tags:
   - ai video
   - ai youtube
@@ -50,20 +50,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -91,6 +84,13 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -98,10 +98,16 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -111,16 +117,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -144,24 +144,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-safeguarding-your-digital-footprint-on-youtube/"><u>[New] 2024 Approved Safeguarding Your Digital Footprint on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-seamless-youtube-experience-on-apple-gear-downloading-made-easy/"><u>[New] 2024 Approved Seamless Youtube Experience on Apple Gear Downloading Made Easy</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-secrets-to-featuring-on-youtube-a-comprehensive-walkthrough/"><u>[New] 2024 Approved Secrets to Featuring on YouTube A Comprehensive Walkthrough</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-streaming-success-seekers-deciphering-the-platform-winner-vimeo-vs-youtubeplusdailymotion/"><u>[New] 2024 Approved Streaming Success Seekers Deciphering The Platform Winner - Vimeo vs YouTube+Dailymotion?</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-the-editors-edge-advanced-tactics-for-youtube-video-spins-guide/"><u>[New] 2024 Approved The Editor's Edge Advanced Tactics for YouTube Video Spins (Guide)</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-the-no-ads-content-creators-playbook-a-guide-to-monetizing-videos/"><u>[New] 2024 Approved The No-Ads Content Creator’s Playbook A Guide to Monetizing Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-top-picks-7-royalty-free-audios-for-video-editing/"><u>[New] 2024 Approved Top Picks 7 Royalty-Free Audios for Video Editing</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-ultimate-shot-selection-best-stabilizers-reviewed/"><u>[New] 2024 Approved Ultimate Shot Selection - Best Stabilizers Reviewed</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-your-first-steps-in-online-broadcasting-via-obs/"><u>[New] 2024 Approved Your First Steps in Online Broadcasting via OBS</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-6-best-video-grabbers-for-mac-for-2024/"><u>[Updated] 6 Best Video Grabbers for Mac for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-premier-podcasts-on-googles-platform/"><u>[Updated] Premier Podcasts on Google's Platform</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-ps5xbox-series-x-the-elite-tvs-for-gamers/"><u>2024 Approved PS5/Xbox Series X The Elite TVs for Gamers</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-samsung-galaxy-xcover-7-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Samsung Galaxy XCover 7? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/how-to-livestream-on-facebook-from-android-and-ios-in-2024/"><u>How to Livestream on Facebook From Android and iOS, In 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-basics-of-weaving-a-narrative-thread/"><u>In 2024, Basics of Weaving a Narrative Thread</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-high-definition-at-its-peak-top-10-4k-screens/"><u>In 2024, High Definition at Its Peak #Top 10 4K Screens</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/packaging-perfection-strategies-for-stunning-first-touches-for-2024/"><u>Packaging Perfection Strategies for Stunning First Touches for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/twitters-crown-jewels-the-most-liked-and-binge-watched-content-for-2024/"><u>Twitter's Crown Jewels The Most Liked & Binge-Watched Content for 2024</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-create-stunning-invites-best-video-apps-for-ios-and-android/"><u>Updated 2024 Approved Create Stunning Invites Best Video Apps for iOS & Android</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-elevate-your-social-media-game-discover-the-best-5-youtube-promotion-strategies/"><u>[New] In 2024, Elevate Your Social Media Game Discover the Best 5 YouTube Promotion Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-your-step-by-step-guide-to-purchasing-youtube-royalties/"><u>[New] In 2024, Your Step-by-Step Guide to Purchasing YouTube Royalties</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/r-beasts-financial-landscape/"><u>[New] Mr. Beast’s Financial Landscape</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-zero-cost-image-amplifier-desktopmobile-edition/"><u>[New] Top Zero-Cost Image Amplifier Desktop/Mobile Edition</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-transitioning-from-smartphone-to-watching-fb-videos-on-appletv-for-2024/"><u>[New] Transitioning From Smartphone to Watching FB Videos on AppleTV for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/solved-back-4-blood-not-launching-on-windows-11107/"><u>[Solved] Back 4 Blood Not Launching on Windows 11/10/7</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-charting-the-course-of-knowledge-best-history-yt-channels-for-students/"><u>[Updated] In 2024, Charting the Course of Knowledge Best History YT Channels for Students</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-profitable-content-creation-on-youtube-through-smart-adsense-use/"><u>[Updated] In 2024, Profitable Content Creation on YouTube Through Smart AdSense Use</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-itel-p40plus-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Itel P40+ | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-xiaomi-redmi-note-13-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/re-and-contrast-leading-online-and-desktop-gif-tools-for-2024/"><u>Compare & Contrast Leading Online & Desktop GIF Tools for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/onomy-gurus-the-elite-of-food-vlogs-for-2024/"><u>Gastronomy Gurus The Elite of Food Vlogs for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-essential-e-steps-your-pathway-from-preparation-to-production-in-a-reviews-channel/"><u>In 2024, The Essential E-Steps Your Pathway From Preparation to Production in a Reviews Channel</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-tecno-camon-20-pro-5g-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Tecno Camon 20 Pro 5G</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-unlock-flawless-video-thumbnails-instantly/"><u>In 2024, Unlock Flawless Video Thumbnails Instantly</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-cooldown-chart-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>Pokémon Go Cooldown Chart On Apple iPhone SE (2022) | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/simplified-methods-to-close-unused-social-media-linkedin-account-for-2024/"><u>Simplified Methods to Close Unused Social Media (LinkedIn) Account for 2024</u></a></li>
 </ul></div>
 

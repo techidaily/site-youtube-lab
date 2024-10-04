@@ -1,7 +1,7 @@
 ---
 title: "\"[New] One Arm Wonders  Keeping Photos Steady\""
-date: 2024-09-20T20:54:24.128Z
-updated: 2024-09-22T16:15:03.456Z
+date: 2024-09-29T22:21:04.407Z
+updated: 2024-10-03T16:07:27.528Z
 tags:
   - ai video
   - ai youtube
@@ -59,9 +59,23 @@ And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -81,10 +95,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -94,13 +108,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -124,6 +131,13 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -143,5 +157,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-no-more-troubles-mastering-ipad-video-captures-now-for-2024/"><u>[New] No More Troubles? Mastering iPad Video Captures Now for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/remier-transcriber-platform-video-to-writing-for-2024/"><u>[New] Premier Transcriber Platform Video to Writing for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/treamlining-your-edit-with-jump-cut-tips-for-2024/"><u>[New] Streamlining Your Edit with Jump Cut Tips for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nleash-potential-quick-tips-for-establishing-a-business-and-personal-youtube-presence-for-2024/"><u>[New] Unleash Potential Quick Tips for Establishing a Business & Personal YouTube Presence for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-foremost-frame-openers-identifying-the-most-effective-16-youtube-intros-for-2024/"><u>[Updated] Foremost Frame Openers Identifying the Most Effective 16 YouTube Intros for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-best-capturing-software-for-streamers-on-youtube/"><u>[Updated] In 2024, Best Capturing Software For Streamers on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-breakdown-of-ad-revenue-average-income-for-youtube-vids/"><u>[Updated] In 2024, Breakdown of Ad Revenue Average Income for YouTube Vids?</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ai-showdown-which-one-wins-in-ease-of-use-and-reliability-claude-or-chatgpt/"><u>AI Showdown: Which One Wins in Ease of Use and Reliability - Claude or ChatGPT?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/crafting-your-sound-story-utilizing-auditions-fade-in/"><u>Crafting Your Sound Story Utilizing Audition's Fade In</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-infinix-note-30-5g-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Infinix Note 30 5G Activity | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-troubleshooting-tips-for-a-malfunctioning-mic-on-the-steelseries-arctis-7/"><u>Step-by-Step Troubleshooting Tips for a Malfunctioning Mic on the SteelSeries Arctis 7</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-ultimate-upgrade-corsair-icue-link-h1-h150i-rgb-performance-excellence-with-limitless-creativity/"><u>The Ultimate Upgrade: Corsair iCUE Link H1 🖤H150i RGB - Performance Excellence with Limitless Creativity</u></a></li>
+</ul></div>
 
