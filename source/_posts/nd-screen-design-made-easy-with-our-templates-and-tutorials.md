@@ -1,7 +1,7 @@
 ---
 title: "\"[New] End-Screen Design Made Easy with Our Templates & Tutorials\""
-date: 2024-09-16T20:31:50.341Z
-updated: 2024-09-17T18:40:30.524Z
+date: 2024-10-03T20:01:46.967Z
+updated: 2024-10-09T19:36:15.465Z
 tags:
   - ai video
   - ai youtube
@@ -106,6 +106,19 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
@@ -113,6 +126,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -122,9 +142,23 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -147,12 +181,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-12-proven-ways-to-increase-youtube-views/"><u>[New] 2024 Approved 12 Proven Ways to Increase YouTube Views</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-cyber-celebrity-countdown-worldwide-subscribers/"><u>[New] 2024 Approved Cyber Celebrity Countdown Worldwide Subscribers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-leading-luminaries-of-livestreaming-success/"><u>[New] 2024 Approved Leading Luminaries of Livestreaming Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-online-income-tally-for-youtube-stars/"><u>[New] 2024 Approved Online Income Tally for YouTube Stars</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-mastering-valheim-agriculture-seed-selection-insights-for-2024/"><u>[New] Mastering Valheim Agriculture Seed Selection Insights for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-itel-p40-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Itel P40 via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-engagement-top-8-youtube-video-trackers-unveiled/"><u>Boost Engagement - Top 8 YouTube Video Trackers Unveiled</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-toppers-unveiled-top-youtube-stars-and-their-subs/"><u>Chart-Toppers Unveiled Top YouTube Stars and Their Subs</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-evaluation-of-the-microsoft-sculpt-keyboard-exceptional-worth-and-design/"><u>Comprehensive Evaluation of the Microsoft Sculpt Keyboard - Exceptional Worth & Design</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/enjoy-sports-entertainment-how-to-stream-espn-plus-on-your-lg-display/"><u>Enjoy Sports Entertainment: How to Stream ESPN Plus on Your LG Display</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-that-make-a-difference-your-20-best-choices-for-2024/"><u>Fonts That Make a Difference Your 20 Best Choices for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-samsung-galaxy-a34-5g-frp-by-drfone-android/"><u>Full Guide to Bypass Samsung Galaxy A34 5G FRP</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-mix-fold-3-with-video-repair-utility-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Mix Fold 3 with Video Repair Utility on Windows?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-digital-artisans-exclusive-summit/"><u>In 2024, Digital Artisans' Exclusive Summit</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-lava-blaze-2-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Lava Blaze 2 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-nextgencams-investigation-pushing-the-envelope-further/"><u>In 2024, NextGenCams Investigation Pushing the Envelope Further</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-step-by-step-guide-to-adding-subtitles-in-wmp/"><u>In 2024, Step-by-Step Guide to Adding Subtitles in WMP</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-youtube-snippets-explained-simply-for-2024/"><u>Quick YouTube Snippets Explained Simply for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-out-with-yt-shorts-essential-guidelines-to-follow/"><u>Stand Out with YT Shorts Essential Guidelines to Follow</u></a></li>
+</ul></div>
 

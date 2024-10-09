@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Crafting YT Masterpieces for IGTV Showcase for 2024"
-date: 2024-09-26T18:23:31.434Z
-updated: 2024-10-04T07:11:51.456Z
+date: 2024-10-08T18:31:13.273Z
+updated: 2024-10-09T17:29:53.479Z
 tags:
   - ai video
   - ai youtube
@@ -69,6 +69,13 @@ You can watch the video below to find out more information about the Auto-Refram
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Use Kapwing to Convert YouTube to IGTV Online
 
 YouTubers who already have lots of videos on their channel can use online video editing platforms, like [Kapwing](https://www.kapwing.com/) to edit the content they want to post on IGTV. This online video editor offers a number of video editing tools that let you polish your videos before posting them on social media.
@@ -78,16 +85,10 @@ Click on the Resize tool and simply **copy and paste the URL** of a YouTube into
 ![Kapwing  Crop YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/kapwing-crop-youtube-to-igtv.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose the background color for your IGTV video, increase or decrease the zoom level or change the position of the video**. Click on the **Create button** when ready and wait for Kapwing to process your video. **All videos you create with the free version of this online video editor are going to be watermarked** and you have to pay a six-dollar fee for each watermark-free video you edit with Kapwing or you can opt for a $20 monthly subscription fee that enables you to export an unlimited amount of videos without watermarks each month.
@@ -95,16 +96,10 @@ Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose
 ![Kapwing  Rotate YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-convert-to-igtv.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 A growing number of IGTV users choose to rotate their videos, instead of resizing them, so if you already have a YouTube video with a 16:9 aspect ratio you can just rotate it and get a video with a 9:16 aspect ratio. Click on the **Rotate**  option and then rotate it **90 degrees clockwise or counterclockwise** and click on the **Create button**. If you opt for this method of creating a vertical video for IGTV, your video will remain the same size, but the viewers will have to hold their phones horizontally in order to view it properly.
@@ -112,16 +107,10 @@ A growing number of IGTV users choose to rotate their videos, instead of resizin
 **You may also like:** [ How to Convert MKV to MP4 without Losing Quality \[Free Converters Provided\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Changing the Aspect Ratio of a YouTube Video with Final Cut Pro
@@ -137,13 +126,6 @@ Posting YouTube videos on your IGTV channel is still a somewhat complicated proc
 **You may also like:** [YouTube to WAV File: 4 Best Free Convert Solutions >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -166,16 +148,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-ultimate-list-10-relaxing-game-hits/"><u>[New] 2024 Approved Ultimate List 10 Relaxing Game Hits</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/est-in-class-streaming-capture-software-for-youtubers/"><u>[New] Best-in-Class Streaming Capture Software For YouTubers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-steps-to-skyrocket-your-youtube-subscribers-count/"><u>[New] In 2024, Steps to Skyrocket Your YouTube Subscribers Count</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-youtube-videography-essentials-7-free-audio-choices/"><u>[Updated] In 2024, YouTube Videography Essentials - 7 Free Audio Choices</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-mega-popular-youtube-vids-everlasting-titles-for-2024/"><u>[Updated] Mega-Popular YouTube Vids Everlasting Titles for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-striking-visuals-a-deep-dive-into-optimal-youtube-thumbnail-sizes/"><u>[Updated] Striking Visuals A Deep Dive Into Optimal YouTube Thumbnail Sizes</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-xiaomi-14-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Xiaomi 14</u></a></li>
-<li><a href="https://games-able.techidaily.com/controlling-snes-games-new-way/"><u>Controlling SNES Games, New Way</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/t-tips-for-streamlining-youtube-audio-into-imovie-for-2024/"><u>Expert Tips for Streamlining YouTube Audio Into iMovie for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-tecno-camon-30-pro-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Tecno Camon 30 Pro 5G to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/navigating-prompt-engineering-in-ai-learning/"><u>Navigating Prompt Engineering in AI Learning</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ree-film-and-image-repository-highlights-for-2024/"><u>[New] Free Film and Image Repository Highlights for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-screencasting-guide-what-is-and-how-to/"><u>[New] Screencasting Guide What Is and How To</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-building-bridges-pathways-for-graphic-design-aspirants/"><u>[Updated] 2024 Approved Building Bridges Pathways for Graphic Design Aspirants</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-pro-grade-streaming-tools-best-software-and-hardware-reviewed/"><u>[Updated] In 2024, Pro-Grade Streaming Tools Best Software & Hardware Reviewed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-varied-and-eye-catching-vlog-discussion-points/"><u>[Updated] In 2024, Varied and Eye-Catching Vlog Discussion Points</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-command-the-field-with-a-customized-in-game-character-voice-in-free-fire/"><u>2024 Approved Command the Field with a Customized In-Game Character Voice in Free Fire</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/android-access-windows-shared-folders/"><u>Android: Access Windows Shared Folders</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/cing-content-with-youtube-tags-and-notes-for-2024/"><u>Enhancing Content with YouTube Tags & Notes for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-your-amd-rx-6800-xt-up-to-date-with-latest-windows-compatible-drivers/"><u>Get Your AMD RX 6800 XT Up-to-Date with Latest Windows Compatible Drivers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/google-backed-mondly-the-ultimate-language-learning-partner/"><u>Google-Backed Mondly: The Ultimate Language Learning Partner</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-the-right-platform-for-content-creation-podcast-or-video/"><u>In 2024, The Right Platform for Content Creation? Podcast or Video?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-youtubes-glamour-guild-comprehensive-style-compendium/"><u>In 2024, Youtube's Glamour Guild Comprehensive Style Compendium</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ltimate-list-of-beautiful-wedding-clips-youtube-and-vimeo-for-2024/"><u>The Ultimate List of Beautiful Wedding Clips - Youtube & Vimeo for 2024</u></a></li>
 </ul></div>
 

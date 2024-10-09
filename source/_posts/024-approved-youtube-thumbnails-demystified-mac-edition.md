@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  YouTube Thumbnails Demystified - Mac Edition\""
-date: 2024-09-27T22:36:04.530Z
-updated: 2024-10-04T12:30:14.931Z
+date: 2024-10-06T16:17:35.596Z
+updated: 2024-10-09T16:01:26.128Z
 tags:
   - ai video
   - ai youtube
@@ -47,15 +47,22 @@ thumbnails are a significant factor in determining the number of views a Youtube
 
 If you don’t create a thumbnail then youtube will generate one by itself which may not be so enticing for viewers. The purpose of the thumbnail is to make your videos stand out among the rest so you need to pay attention to it!
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to make Youtube Thumbnails on Mac
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1. Preview the video and choose the still snapshot
@@ -70,6 +77,13 @@ You can easily choose the frame from the video or use the preview frame button t
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
@@ -81,13 +95,6 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -103,20 +110,13 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -140,17 +140,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-digital-dive-essential-recording-tactics-for-shows/"><u>[New] 2024 Approved Digital Dive Essential Recording Tactics for Shows</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-top-5-chrome-plug-ins-for-effortless-facebook-video-downloads/"><u>[New] 2024 Approved Top 5 Chrome Plug-Ins for Effortless Facebook Video Downloads</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-2023-tech-scoop-efficiently-tracking-down-fb-vids/"><u>[Updated] 2023 Tech Scoop Efficiently Tracking Down FB Vids</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-enhancing-television-experience-playback-tips-for-youtube-content-for-2024/"><u>[Updated] Enhancing Television Experience Playback Tips for YouTube Content for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-youtubers-advanced-toolkit-studio-selection-over-beta/"><u>[Updated] In 2024, YouTuber's Advanced Toolkit Studio Selection Over Beta</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-strategies-for-seamless-integration-of-work-and-youtube-for-2024/"><u>[Updated] Strategies for Seamless Integration of Work & YouTube for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/9-ways-to-fix-keyboard-shortcuts-not-working-in-windows/"><u>9 Ways to Fix Keyboard Shortcuts Not Working in Windows</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-14-pro-without-passcode-4-easy-methods-by-drfone-ios/"><u>How To Unlock Apple iPhone 14 Pro Without Passcode? 4 Easy Methods</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-the-pathway-to-preserving-instagram-content-via-desktop-platforms/"><u>In 2024, The Pathway to Preserving Instagram Content via Desktop Platforms</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolving-the-entry-point-not-found-error-in-fortnite-a-step-by-step-guide/"><u>Resolving the 'Entry Point Not Found' Error in Fortnite: A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ate-watchlist-youtubes-greatest-hits-for-2024/"><u>Ultimate Watchlist YouTube's Greatest Hits for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ling-the-art-of-personal-branding-mastery-for-2024/"><u>Unveiling the Art of Personal Branding Mastery for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-saving-the-fun-downloading-tweets-gif-content-easily/"><u>[New] 2024 Approved Saving the Fun Downloading Tweets' GIF Content Easily</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-streamlined-success-top-10-youtube-channels-to-start-your-biz-today/"><u>[New] 2024 Approved Streamlined Success Top 10 YouTube Channels to Start Your Biz Today</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-insiders-guide-to-youtube-money-minimum-video-views-needed/"><u>[New] 2024 Approved The Insider's Guide to YouTube Money Minimum Video Views Needed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-thriving-despite-cyberbullying-and-scathing-feedback/"><u>[New] 2024 Approved Thriving Despite Cyberbullying and Scathing Feedback</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unified-youtube-behavior-manual/"><u>[New] 2024 Approved Unified YouTube Behavior Manual</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unveiling-truth-understanding-youtubes-seo-keywords/"><u>[New] 2024 Approved Unveiling Truth Understanding YouTube's SEO Keywords</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-seizing-photographic-segments-from-videos-in-windows-11/"><u>[Updated] Seizing Photographic Segments From Videos in Windows 11</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-life360-on-windows-pc-for-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Sony Xperia 1 V? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/leading-sound-transformation-tools-magic-edition-included-for-2024/"><u>Leading Sound Transformation Tools, Magic Edition Included for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/mastering-iphone-photo-processing-techniques-solutions-for-frequent-problems/"><u>Mastering iPhone Photo Processing Techniques: Solutions for Frequent Problems</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unveiling-the-art-of-closer-views-on-microsoft-teams-for-2024/"><u>Unveiling the Art of Closer Views on Microsoft Teams for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Navigating YouTube Comment Settings  Tips and Tricks\""
-date: 2024-09-16T17:25:25.861Z
-updated: 2024-09-22T16:53:40.414Z
+date: 2024-10-04T17:01:53.862Z
+updated: 2024-10-09T18:18:13.961Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -115,7 +122,21 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151858/7443" target="_top" id="2151858">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151858" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151858/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -147,6 +168,13 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -166,12 +194,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-best-alternatives-for-premium-cam-screen-recording-tech/"><u>[New] Best Alternatives for Premium Cam Screen Recording Tech</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-avoiding-youtubes-controversial-scrutiny/"><u>[Updated] 2024 Approved Avoiding YouTube's Controversial Scrutiny</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-harness-freedom-with-top-rated-android-editing-apps/"><u>[Updated] 2024 Approved Harness Freedom with Top-Rated Android Editing Apps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-crafting-yt-masterpieces-for-igtv-showcase-for-2024/"><u>[Updated] Crafting YT Masterpieces for IGTV Showcase for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-how-to-edit-youtube-videos-in-windows-movie-maker/"><u>[Updated] In 2024, How to Edit YouTube Videos in Windows Movie Maker</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-precision-problem-solving-for-youtube-short-success/"><u>[Updated] In 2024, Precision Problem-Solving for YouTube Short Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-ultimate-mobile-sound-treat-asmr/"><u>[Updated] In 2024, The Ultimate Mobile Sound Treat ASMR</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-top-picks-7-exceptional-android-adblocking-apps/"><u>[Updated] In 2024, Top Picks 7 Exceptional Android AdBlocking Apps</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-video-editing-software-showdown-bandicam-vs-camtasia/"><u>[Updated] In 2024, Video Editing Software Showdown Bandicam vs Camtasia</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-digital-dollar-first-steps-in-youtubers-revenue/"><u>2024 Approved Digital Dollar First Steps in YouTubers' Revenue</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-mp3-mastery-in-motion-prime-10-youtube-to-mp3-transformers/"><u>2024 Approved MP3 Mastery in Motion Prime 10 YouTube to Mp3 Transformers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/motion-vs-youtube-who-earns-more-from-video-content-in-2024/"><u>Dailymotion vs YouTube Who Earns More From Video Content, In 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/fix-your-hp-laptops-broken-webcam-issues-with-these-tips-for-windows-nt/"><u>Fix Your HP Laptop's Broken Webcam Issues with These Tips for Windows nT</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/free-avi-video-editor-downloads-our-top-recommendations/"><u>Free AVI Video Editor Downloads Our Top Recommendations</u></a></li>
+<li><a href="https://games-able.techidaily.com/master-mobile-entertainment-steam-link-on-iosandroid-devices/"><u>Master Mobile Entertainment - Steam Link on iOS/Android Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ling-the-numbers-comprehensive-guide-to-count-views-clicks-and-cash-in-youtube-for-2024/"><u>Unveiling the Numbers Comprehensive Guide to Count Views, Clicks, and Cash in YouTube for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-expert-recommended-3d-video-creators-you-cant-miss/"><u>Updated 2024 Approved Expert-Recommended 3D Video Creators You Cant Miss</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/lize-success-discover-the-top-10-online-tools-for-channel-branding-for-2024/"><u>Visualize Success - Discover the Top 10 Online Tools for Channel Branding for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/where-did-my-nvidia-card-go-windows/"><u>Where Did My Nvidia Card Go Windows?</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Video Guru's Playbook  Smooth Transition to Easy YouTube CC & Subtitles\""
-date: 2024-09-15T22:36:21.553Z
-updated: 2024-09-22T21:01:55.432Z
+date: 2024-10-08T18:09:21.360Z
+updated: 2024-10-09T17:26:59.940Z
 tags:
   - ai video
   - ai youtube
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/d03c6bda0db9e446c0d9464753859ee1c2f12f38d
 
  So, here we are going to show you two ways to add subtittles to video: directly or uploading caption or transcript files
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Adding subtitles and closed captions manually
 
  To add subtitles and closed captions to your YouTube video, fisrt, you should sign in to your YouTube account. On left right below 'Home' you will find 'My Channel'. It will direct you to your personal YouTube page. On the top, right next to your subscribers lays the 'Video manager', giving you the list of your uploaded videos.
@@ -57,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/d03c6bda0db9e446c0d9464753859ee1c2f12f38d
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
  An interruption might occur with appearing of subtitles in accordance with video. Hence a lot precision is required while doing so.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Uploading Caption or Transcript Files automatically
 
@@ -77,10 +91,10 @@ thumbnail: https://thmb.techidaily.com/d03c6bda0db9e446c0d9464753859ee1c2f12f38d
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3 Best Tools for add/managing video Subtitles/CC
@@ -100,10 +114,16 @@ thumbnail: https://thmb.techidaily.com/d03c6bda0db9e446c0d9464753859ee1c2f12f38d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -125,5 +145,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/updated-harvesting-high-returns-ginger-valley-farming-tips/"><u>[Updated] Harvesting High Returns Ginger Valley Farming Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-expert-recommendations-top-8-free-srt-apps-reviewed/"><u>[Updated] In 2024, Expert Recommendations Top 8 Free SRT Apps Reviewed</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-ipad-speech-recording-uncovered-top-methods/"><u>[Updated] In 2024, IPad Speech Recording Uncovered Top Methods</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-social-media-live-showdown-facebook-vs-youtube-and-twitter-periscope/"><u>[Updated] In 2024, Social Media Live Showdown Facebook Vs. YouTube & Twitter Periscope</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-revolutionize-your-mind-best-15-tech-and-science-channels-for-2024/"><u>[Updated] Revolutionize Your Mind Best 15 Tech & Science Channels for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-streamline-video-analytics-a-guide-to-youtube-statistics-with-social-blade/"><u>[Updated] Streamline Video Analytics A Guide to YouTube Statistics with Social Blade</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/4-effective-ways-to-captivate-ig-audiences-with-loop-videos-for-2024/"><u>4 Effective Ways to Captivate IG Audiences with Loop Videos for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-enchant-your-audience-with-these-20-marketing-phrases/"><u>In 2024, Enchant Your Audience with These 20 Marketing Phrases</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-innovative-sound-editing-top-4-applications-redefining-music-production-on-mac/"><u>New Innovative Sound Editing - Top 4 Applications Redefining Music Production on Mac</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-connectivity-errors-making-your-corsair-icue-work-on-windows-11/"><u>Resolving Connectivity Errors: Making Your Corsair iCUE Work on Windows 11</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/total-war-three-kingdoms-stability-issues-resolved-best-fixes/"><u>Total War: Three Kingdoms Stability Issues Resolved - Best Fixes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/standing-the-impact-of-youtubes-creative-commons-on-videos/"><u>Understanding the Impact of YouTube's Creative Commons on Videos</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Who's at the Apex? YouTube Subscribers Ranking"
-date: 2024-09-20T19:48:31.340Z
-updated: 2024-09-22T21:19:03.413Z
+date: 2024-10-07T19:09:56.276Z
+updated: 2024-10-09T18:49:46.183Z
 tags:
   - ai video
   - ai youtube
@@ -71,9 +71,23 @@ At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second 
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ###  3\.  ElrubiusOMG
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
@@ -83,25 +97,11 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
 
@@ -119,19 +119,20 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -153,5 +154,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/reating-channel-names-that-capture-attention-for-2024/"><u>[New] Creating Channel Names That Capture Attention for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ulinary-comrades-youtubes-best-food-blogs-for-2024/"><u>[New] Culinary Comrades YouTube's Best Food Blogs for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-step-by-step-backlink-blueprint-for-channel-growth/"><u>[New] In 2024, Step-by-Step Backlink Blueprint for Channel Growth</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-mastering-snapchat-for-business-success-for-2024/"><u>[New] Mastering Snapchat for Business Success for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-how-to-upload-and-share-videos-seamlessly-on-instagram/"><u>[Updated] 2024 Approved How to Upload and Share Videos Seamlessly on Instagram</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-masterclass-series-incorporating-timekeepers-into-live-production/"><u>[Updated] 2024 Approved Masterclass Series Incorporating Timekeepers Into Live Production</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-crafting-compelling-freefire-vids-with-strategy-guide-for-2024/"><u>[Updated] Crafting Compelling FreeFire Vids with Strategy Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-crafting-success-with-these-15-youtube-introduction-plans-for-2024/"><u>[Updated] Crafting Success with These 15 YouTube Introduction Plans for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-internet-idolaters-top-ten-youtube-sensations/"><u>[Updated] In 2024, Internet Idolaters Top Ten YouTube Sensations</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-hustle-humor-fast-track-funny-with-kapwing/"><u>2024 Approved Hustle Humor Fast-Track Funny with Kapwing</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-ultra-fast-windows-view-for-pictures/"><u>2024 Approved Ultra-Fast Windows View for Pictures</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-unlocking-potential-advanced-tactics-for-spotify-ads/"><u>2024 Approved Unlocking Potential Advanced Tactics for Spotify Ads</u></a></li>
+<li><a href="https://techtrends.techidaily.com/free-conversion-tools-change-mp4mpg-to-mpeg-format-online-with-ease/"><u>Free Conversion Tools - Change MP4/MPG to MPEG Format Online with Ease</u></a></li>
+<li><a href="https://extra-information.techidaily.com/prime-methods-transforming-pin-videos-to-mp3-format/"><u>Prime Methods Transforming Pin Videos To MP3 Format</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/protonvpn-introduces-new-stealth-mode-for-windows-users/"><u>ProtonVPN Introduces New Stealth Mode for Windows Users</u></a></li>
+</ul></div>
 

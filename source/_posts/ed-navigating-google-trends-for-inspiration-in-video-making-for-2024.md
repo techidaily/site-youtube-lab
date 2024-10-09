@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Navigating Google Trends for Inspiration in Video Making for 2024"
-date: 2024-09-29T22:55:49.251Z
-updated: 2024-10-03T23:25:41.743Z
+date: 2024-10-03T19:29:09.754Z
+updated: 2024-10-09T17:45:06.998Z
 tags:
   - ai video
   - ai youtube
@@ -51,13 +51,6 @@ Unless you do news or political commentary on your channel these probably aren�
 
 To get information more relevant to your channel you’re going to have to do some filtering.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -83,16 +76,10 @@ For example, if you have a gaming channel and you’re looking for a non-gamepla
 ![Google Trends Category YouTube Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-categories.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The first two happen to be about gaming. If you, as a gamer, had any strong reaction to either of these topics – whether it’s that you feel like you’re knowledgeable about them, or that you’re excited by something that’s coming up, or that something made you groan – then that would be a sign that you should make a video. Capitalizing on a trend while also covering a topic you have a lot to say about is always a good move.
@@ -112,10 +99,10 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 ![Google Trends Keywords YouTube Video](https://images.wondershare.com/filmora/article-images/explore-topic-in-google-trends.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
@@ -131,6 +118,13 @@ There, now I can see how the popularity of Filmora as a search term has spiked o
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
 
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
 
@@ -151,10 +145,16 @@ One of the biggest benefits of identifying trends and making videos about them q
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Making Better YouTube Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -186,21 +186,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-20-essentials-every-new-creator-should-own/"><u>[New] 2024 Approved 20 Essentials Every New Creator Should Own</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-essential-video-marketing-strategies-top-8-verified-services/"><u>[Updated] 2024 Approved Essential Video Marketing Strategies Top 8 Verified Services</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-engage-entertain-and-captivate-adopting-two-point-of-view-in-your-next-youtube-reaction-video-2-pov-method-for-2024/"><u>[Updated] Engage, Entertain and Captivate – Adopting Two-Point of View in Your Next YouTube Reaction Video (2 POV Method) for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-unlock-your-charm-personalized-youtube-channel-url-essentials/"><u>[Updated] Unlock Your Charm Personalized YouTube Channel URL Essentials</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-beginners-guide-adding-text-overlays-on-youtube/"><u>2024 Approved Beginner's Guide Adding Text Overlays on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-conceptualists-engineering-marvel-online-worlds/"><u>2024 Approved Conceptualists Engineering Marvel Online Worlds</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Share/Fake Location on WhatsApp for Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-pioneering-podcast-production-with-best-mixer-hits/"><u>In 2024, Pioneering Podcast Production with Best Mixer Hits</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-the-essential-toolkit-for-youtube-video-editors-everywhere/"><u>In 2024, The Essential Toolkit for YouTube Video Editors Everywhere</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ize-views-with-these-14-premier-youtube-gaming-videos-for-2024/"><u>Maximize Views with These 14 Premier YouTube Gaming Videos for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/optimize-available-space-on-android-devices-with-these-8-proven-methods/"><u>Optimize Available Space on Android Devices with These 8 Proven Methods</u></a></li>
-<li><a href="https://fox-that.techidaily.com/resolving-delayed-sms-delivery-issues-top-9-solutions-for-your-iphone/"><u>Resolving Delayed SMS Delivery Issues: Top 9 Solutions for Your iPhone</u></a></li>
-<li><a href="https://win-able.techidaily.com/seamless-gaming-ultimate-hacks-to-keep-wwe-2k2cu-running-smoothly-on-your-computer/"><u>Seamless Gaming: Ultimate Hacks to Keep WWE 2K2cu Running Smoothly on Your Computer</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/solve-your-hdmi-sound-problems-when-linking-up-your-computer-display-and-television/"><u>Solve Your HDMI Sound Problems When Linking Up Your Computer, Display, and Television</u></a></li>
-<li><a href="https://change-location.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/whats-coming-with-google-tv-price-estimations-arrival-dates-and-specs-rumors-confirmed-and-debunked/"><u>What's Coming with Google TV - Price Estimations, Arrival Dates, and Specs - Rumors Confirmed & Debunked</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-simplified-guide-instant-deletion-methods-for-youtube-discussions/"><u>[New] 2024 Approved Simplified Guide Instant Deletion Methods for Youtube Discussions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-streamline-channels-effortlessly-top-10-online-design-aids/"><u>[New] 2024 Approved Streamline Channels Effortlessly Top 10 Online Design Aids</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-top-film-artist-fusion-of-footage-and-tunes/"><u>[New] 2024 Approved Top Film Artist Fusion of Footage & Tunes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-transforming-view-counts-innovative-uses-for-short-videos/"><u>[New] 2024 Approved Transforming View Counts Innovative Uses for Short Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-ultimate-code-of-conduct-on-youtube/"><u>[New] 2024 Approved Ultimate Code of Conduct on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unlocking-the-secrets-of-captivating-auditory-and-visual-sensations-in-asmr-videos/"><u>[New] 2024 Approved Unlocking the Secrets of Captivating Auditory & Visual Sensations in ASMR Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-editing-tips-and-tricks-for-shorter-videos/"><u>[New] 2024 Approved YouTube Editing Tips and Tricks for Shorter Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-mastery-perfecting-edits-on-published-videos/"><u>[New] 2024 Approved YouTube Mastery Perfecting Edits on Published Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-policies-versus-creative-commons-a-comparative-study/"><u>[New] 2024 Approved Youtube Policies Versus Creative Commons A Comparative Study</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-behind-the-scenes-fixes-for-instagram-videos/"><u>[New] Behind-the-Scenes Fixes for Instagram Videos</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-choosing-prime-windows-11-editing-software-for-2024/"><u>[New] Choosing Prime Windows 11 Editing Software for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-step-by-step-add-vimeo-in-instagram-reels/"><u>[New] Step-by-Step Add Vimeo in Instagram Reels</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-unlocking-full-access-to-itunes-radio-features-for-2024/"><u>[Updated] Unlocking Full Access to iTunes Radio Features for 2024</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/allavsoft-the-ultimate-solution-as-an-idm-substitute-for-mac-and-pc-users-looking-for-speedier-downloads/"><u>Allavsoft: The Ultimate Solution as an IDM Substitute for Mac & PC Users Looking for Speedier Downloads</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-15-pro-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone 15 Pro Without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-unlocking-an-icloud-locked-ipad-and-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, Unlocking an iCloud Locked iPad and iPhone 11 Pro Max</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-honor-90-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/periscope-uncovered-free-entry-details-and-signup-method-for-2024/"><u>Periscope Uncovered Free Entry Details and Signup Method for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/watch-dogs-legion-evaluation-the-next-chapter-in-a-beloved-franchise/"><u>Watch Dogs: Legion Evaluation – The Next Chapter in a Beloved Franchise</u></a></li>
 </ul></div>
 

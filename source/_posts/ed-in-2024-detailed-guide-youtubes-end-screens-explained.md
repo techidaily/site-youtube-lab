@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Detailed Guide  YouTube's End Screens Explained\""
-date: 2024-09-14T16:40:03.504Z
-updated: 2024-09-17T21:00:23.090Z
+date: 2024-10-06T20:00:52.818Z
+updated: 2024-10-09T16:53:12.001Z
 tags:
   - ai video
   - ai youtube
@@ -90,6 +90,13 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
@@ -99,6 +106,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -122,9 +136,29 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -147,12 +181,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-beauty-blogging-101-starting-up-as-an-aesthetic-vlogger/"><u>[New] 2024 Approved Beauty Blogging 101 Starting Up as an Aesthetic Vlogger</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-crafting-animation-dynamic-bouncy-text-techniques/"><u>[New] 2024 Approved Crafting Animation Dynamic, Bouncy Text Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-flawless-foundations-top-youtube-skincare-routines/"><u>[New] 2024 Approved Flawless Foundations Top YouTube Skincare Routines</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-make-every-youtube-video-count-learn-how-to-free-transcribe-easily/"><u>[New] 2024 Approved Make Every YouTube Video Count Learn How to Free-Transcribe Easily</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-mastering-youtube-profits-studio-tips-for-all-gadgets/"><u>[New] 2024 Approved Mastering YouTube Profits Studio Tips for All Gadgets</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-nine-all-inclusive-free-holiday-movies-streamed-on-youtube/"><u>[New] 2024 Approved Nine All-Inclusive Free Holiday Movies Streamed on YouTube</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-innovative-acoustic-link-for-speakers/"><u>[New] In 2024, Innovative Acoustic Link for Speakers</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/coin-sized-innovation-discover-the-worlds-first-chip-integrated-absolutely-zero-moving-parts/"><u>Coin-Sized Innovation: Discover the World's First Chip-Integrated Absolutely Zero Moving Parts</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Google Pixel 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-understanding-magixs-acid-pro-and-its-market-rivals/"><u>In 2024, Understanding Magix's ACID Pro and Its Market Rivals</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-network-delays-a-comprehensive-guide-to-improving-your-gameplay-experience-in-back-4-blood/"><u>Overcoming Network Delays: A Comprehensive Guide to Improving Your Gameplay Experience in 'Back 4 Blood'</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-and-simple-access-high-res-youtube-images-for-free-here/"><u>Quick & Simple Access High-Res YouTube Images for Free Here</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/the-leading-8-linux-programs-for-screenshots-for-2024/"><u>The Leading 8 Linux Programs for Screenshots for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-windows-10-essentials-top-free-video-compressors/"><u>Updated In 2024, Windows 10 Essentials Top Free Video Compressors</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-11-dvd-8/"><u>Windows 11対応 DVD コピープロテクトを解除するための無料ツール、ベスト8推薦</u></a></li>
+</ul></div>
 

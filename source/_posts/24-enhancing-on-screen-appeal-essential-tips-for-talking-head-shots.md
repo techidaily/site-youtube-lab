@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Enhancing On-Screen Appeal  Essential Tips for Talking-Head Shots\""
-date: 2024-09-28T10:25:17.895Z
-updated: 2024-10-04T02:40:07.590Z
+date: 2024-10-02T16:28:09.715Z
+updated: 2024-10-09T19:53:42.914Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,10 @@ We’ve summarized the key points about setting up talking head style video shot
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
@@ -65,13 +65,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -87,10 +80,10 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
@@ -117,20 +110,27 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -153,19 +153,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-capturecast-unveiling-2023s-best-recording-software/"><u>[New] CaptureCast Unveiling 2023'S Best Recording Software</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-expressiveness-enhancing-youtube-comments-via-emojis/"><u>[New] In 2024, Expressiveness Enhancing YouTube Comments via Emojis</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-a-comprehensive-look-at-youtubes-adsense-mechanisms/"><u>[Updated] 2024 Approved A Comprehensive Look at YouTube's AdSense Mechanisms</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-a-visual-guide-to-subtitling-techniques-for-effective-dialogue-placement/"><u>[Updated] 2024 Approved A Visual Guide to Subtitling Techniques for Effective Dialogue Placement</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-maximizing-impact-strategies-for-going-viral-on-instagram/"><u>[Updated] Maximizing Impact Strategies for Going Viral on Instagram</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-the-ultimate-checklist-for-mastering-bandicam-in-the-new-year/"><u>[Updated] The Ultimate Checklist for Mastering Bandicam in the New Year</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-15-must-have-openers-for-maximum-youtube-engagement/"><u>2024 Approved 15 Must-Have Openers for Maximum YouTube Engagement</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-shorts-visibility-no-more-problem-after-fix/"><u>2024 Approved Shorts Visibility No More Problem After Fix</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-gaming-hub-vs-content-creators-haven-twitch-and-youtube-compared/"><u>2024 Approved The Gaming Hub vs Content Creator's Haven Twitch & YouTube Compared</u></a></li>
-<li><a href="https://games-able.techidaily.com/6-ways-to-use-chatgpt-as-a-video-game-scriptwriter/"><u>6 Ways to Use ChatGPT as a Video Game Scriptwriter</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-xiaomi-13t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Xiaomi 13T Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-cutting-edge-mp4-utilities-choosing-the-right-one-for-mac/"><u>In 2024, Cutting Edge MP4 Utilities Choosing the Right One for Mac</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/step-by-step-guide-to-embedding-youtube-content-in-different-powerpoint-editions/"><u>Step-by-Step Guide to Embedding YouTube Content in Different PowerPoint Editions</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/mlining-co-productions-a-guide-to-more-followers/"><u>Streamlining Co-Productions A Guide to More Followers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rom-end-to-start-annoying-yourself-with-yt-playlist-upside-down-for-2024/"><u>[New] From End to Start Annoying Yourself with YT Playlist Upside-Down for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-yt-cover-art-the-key-to-more-views/"><u>[New] In 2024, YT Cover Art The Key to More Views</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ecuring-youtube-partnership-a-comprehensive-guide-for-video-creators/"><u>[New] Securing YouTube Partnership A Comprehensive Guide for Video Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-large-display-medium-network-selection-tips/"><u>[Updated] 2024 Approved Large Display Medium Network Selection Tips</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1724766414607-firefox/"><u>Firefoxで動画をダウンロードするための「ビデオダウンロードヘルパー」インストールと設定ガイド</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-the-activation-lock-on-your-ipad-and-apple-iphone-6s-plus-without-apple-account-by-drfone-ios/"><u>How to Remove the Activation Lock On your iPad and Apple iPhone 6s Plus without Apple Account</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Lava Blaze 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-vivo-y27-5g-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Vivo Y27 5G Phone?</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/unable-to-connect-domains-and-printers-offline/"><u>Unable To Connect: Domains and Printers Offline</u></a></li>
 </ul></div>
 

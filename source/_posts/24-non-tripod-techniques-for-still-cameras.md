@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Non-Tripod Techniques for Still Cameras\""
-date: 2024-10-01T06:10:25.783Z
-updated: 2024-10-04T08:26:23.485Z
+date: 2024-10-07T16:46:28.373Z
+updated: 2024-10-09T19:47:44.895Z
 tags:
   - ai video
   - ai youtube
@@ -56,16 +56,10 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
@@ -73,22 +67,21 @@ And here it is with hair clips:
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -107,13 +100,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -121,6 +107,13 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -144,6 +137,13 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -165,22 +165,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-innovate-and-captivate-top-10-video-response-examples/"><u>[New] 2024 Approved Innovate and Captivate Top 10 Video Response Examples</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-advanced-recording-setup-gamers-guide-to-flawless-footage/"><u>[New] Advanced Recording Setup Gamers' Guide to Flawless Footage</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ffortless-youtube-live-with-step-by-step-obs-guide-for-beginners-for-2024/"><u>[New] Effortless YouTube Live with Step-by-Step OBS Guide for Beginners for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-digital-influencers-riches-exceed-ages-kaji-ryan-story/"><u>[New] In 2024, Digital Influencer's Riches Exceed Ages Kaji Ryan Story</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-elevate-your-youtube-shorts-top-10-strategies-for-uniqueness/"><u>[New] In 2024, Elevate Your YouTube Shorts Top 10 Strategies for Uniqueness</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-free-to-fortune-carryminatis-youtube-transformation-ajey/"><u>[New] In 2024, From Free to Fortune CarryMinati’s YouTube Transformation (Ajey)</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-virtual-experiences-unveiled-googles-cardboard-meets-samsung-vr/"><u>[New] In 2024, Virtual Experiences Unveiled Google's Cardboard Meets Samsung VR</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-freeing-up-youtube-views-no-more-grey-lines/"><u>[Updated] In 2024, Freeing Up YouTube Views No More Grey Lines</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-recommended-6-best-music-video-apps-on-android-for-2024/"><u>[Updated] Recommended 6 Best Music Video Apps on Android for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-streamline-your-vlogs-sound-with-effective-tips/"><u>[Updated] Streamline Your Vlog's Sound with Effective Tips</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-top-8-youtube-images-that-captivate-and-convert-viewers/"><u>[Updated] Top 8 YouTube Images That Captivate and Convert Viewers</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/2024-approved-quickening-vimeo-media-load-times/"><u>2024 Approved Quickening Vimeo Media Load Times</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/h-your-presentations-include-youtube-videos-in-slate/"><u>Enrich Your Presentations - Include YouTube Videos in Slate</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/how-these-seven-cutting-edge-apps-harness-the-capabilities-of-gpt-revealed/"><u>How These Seven Cutting-Edge Apps Harness the Capabilities of GPT-# Revealed!</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-comprehensive-review-lg-27ud88-w-oled-4k-hdr-tv/"><u>In 2024, Comprehensive Review LG 27UD88-W OLED 4K HDR TV</u></a></li>
-<li><a href="https://extra-support.techidaily.com/masterful-ways-of-scrolling-through-appreciated-youtube-feedback-for-2024/"><u>Masterful Ways of Scrolling Through Appreciated YouTube Feedback for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-ultimate-transformation-tutorial-sdr-to-high-dynamic-range-video-upgrading-for-2024/"><u>The Ultimate Transformation Tutorial SDR to High-Dynamic Range Video Upgrading for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-essence-of-youtubes-content-craft-room/"><u>[New] In 2024, The Essence of YouTube's Content Craft Room</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ideo-sharing-giants-clash-vimeo-vs-youtube-for-2024/"><u>[New] Video Sharing Giants Clash Vimeo vs YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-clip-conquest-top-tags-for-dominating-video-trends-on-social-media/"><u>[Updated] Clip Conquest Top Tags for Dominating Video Trends on Social Media</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-first-row-fun-without-football-baseball-or-basketball-for-2024/"><u>[Updated] First Row Fun Without Football, Baseball, or Basketball for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-inspire-your-brand-with-smart-channel-name-genesis/"><u>[Updated] In 2024, Inspire Your Brand with Smart Channel Name Genesis</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-syncing-your-live-obs-content-with-fb-network/"><u>[Updated] Syncing Your Live OBS Content with FB Network</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-tailored-titling-techniques-for-impactful-youtube-channels/"><u>2024 Approved Tailored Titling Techniques for Impactful YouTube Channels</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixing-the-issue-how-to-stop-lost-ark-from-continuously-crashing-on-your-computer/"><u>Fixing the Issue: How to Stop Lost Ark From Continuously Crashing on Your Computer</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-zte-blade-a73-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From ZTE Blade A73 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-downgrade-iphone-11-pro-max-to-the-previous-iosipados-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 11 Pro Max to the Previous iOS/iPadOS Version? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-sony-xperia-5-v-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Sony Xperia 5 V Phone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-honor-magic-5-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Honor Magic 5 FRP</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/the-ultimate-guide-to-time-lapses-with-iphone-for-2024/"><u>The Ultimate Guide to Time-Lapses with iPhone for 2024</u></a></li>
 </ul></div>
 

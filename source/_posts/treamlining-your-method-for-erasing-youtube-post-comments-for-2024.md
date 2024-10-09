@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Streamlining Your Method for Erasing YouTube Post-Comments for 2024\""
-date: 2024-09-15T16:48:32.361Z
-updated: 2024-09-22T22:42:18.075Z
+date: 2024-10-06T20:07:45.481Z
+updated: 2024-10-09T19:10:08.096Z
 tags:
   - ai video
   - ai youtube
@@ -88,13 +88,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -115,6 +108,13 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -124,6 +124,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -132,13 +139,26 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Final Thoughts
@@ -146,13 +166,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -173,5 +186,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-youtubers-dream-gear-top-cameras-unveiled/"><u>[New] 2024 Approved YouTubers' Dream Gear Top Cameras Unveiled</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/asterful-video-marketing-techniques-youtube-editions-top-5-list/"><u>[New] Masterful Video Marketing Techniques - YouTube Edition's #Top 5 List</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-quick-guide-to-capturing-timelapses-with-gopro-hero5/"><u>[New] Quick Guide to Capturing Timelapses with GoPro Hero5</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ag-tactics-amplifying-your-gaming-content-online-for-2024/"><u>[New] Tag Tactics Amplifying Your Gaming Content Online for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-art-of-authenticity-financial-fruits-in-filmmaking/"><u>[New] The Art of Authenticity Financial Fruits in Filmmaking</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-from-ideation-to-implementation-a-comprehensive-approach-for-quality-edu-videos/"><u>[Updated] 2024 Approved From Ideation to Implementation A Comprehensive Approach for Quality Edu-Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-audiovisual-interpretation-engine-for-2024/"><u>[Updated] Audiovisual Interpretation Engine for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-expert-shortcuts-for-savvy-screen-capture-on-your-pc-for-2024/"><u>[Updated] Expert Shortcuts for Savvy Screen Capture on Your PC for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-effortlessly-edit-images-using-snapseed-tips/"><u>[Updated] In 2024, Effortlessly Edit Images Using Snapseed Tips</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-increase-views-with-smart-igtv-title-and-summary-edits/"><u>[Updated] Increase Views with Smart IGTV Title and Summary Edits</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-maximizing-video-visibility-on-youtube-with-seo-insights/"><u>[Updated] Maximizing Video Visibility on YouTube with SEO Insights</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-tips-for-effective-instagram-video-sharing/"><u>2024 Approved Tips for Effective Instagram Video Sharing</u></a></li>
+<li><a href="https://windows11.techidaily.com/dealing-with-misentered-characters-in-windows-os/"><u>Dealing with Misentered Characters in Windows OS</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/explore-androids-best-collage-creators-our-choices-for-2024/"><u>Explore Android's Best Collage Creators – Our Choices for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-htc-u23-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your HTC U23 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-crafting-the-perfect-gaming-channel-header/"><u>In 2024, Crafting the Perfect Gaming Channel Header</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-picture-perfect-support-portal/"><u>In 2024, Picture Perfect Support Portal</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Step-By-Step Process  Embedding Internet Video in PPT Decks\""
-date: 2024-10-01T17:12:06.123Z
-updated: 2024-10-04T05:09:18.189Z
+date: 2024-10-02T20:03:05.128Z
+updated: 2024-10-09T18:32:46.744Z
 tags:
   - ai video
   - ai youtube
@@ -54,10 +54,10 @@ Open your default web browser, go to the YouTube video you want to embed to Powe
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-via-url.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Launch PowerPoint if it is not already open, go to the slide you want to embed the YouTube video to, click **Insert** from menu bar present above the Ribbon, click **Video** from the **Media** section at the right end of the Ribbon, click **Online Video** from the list that appears, in the **Enter the URL for the online video** field on the **Online Video** box, paste the URL that you copied earlier, and click **Insert** to **insert YouTube video into PowerPoint**.
@@ -65,15 +65,28 @@ Launch PowerPoint if it is not already open, go to the slide you want to embed t
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-url-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3: Position the Player**
 
 Once the video is added to the PowerPoint slide, drag its frame and reposition it to a suitable location.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: Embed a YouTube Video with Embed Code (For Microsoft PowerPoint 2016)
 
@@ -94,16 +107,10 @@ Launch MS PowerPoint 2016, click **Insert** from the menu bar at the top, from t
 Paste the embed code you copied earlier in the **Paste embed code here** field present next to the **From a Video Embed Code** option, and press **Enter** to **embed YouTube video in PowerPoint**.
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 3: Insert YouTube Video into PowerPoint by Searching Names (For Microsoft PowerPoint 2016)
@@ -137,13 +144,6 @@ Click the **Video** icon from the **Media** section of the Ribbon, click **Video
 **Step 3: Resize and/or Modify the Video**
 
 Grab any of the six handles of the video you inserted, and drag it inward to decrease the size of the frame. It is advisable to use the corner handle and drag them diagonally to maintain proper aspect ratio of the player’s frame. Next, right-click anywhere inside the frame, click **Format Video** from the context menu, and use the options that appear in the right pane to make necessary adjustments to the clip like color correction, manage brightness and contrast, etc.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## YouTube Embedding Supported PowerPoint Version Checklist
 
@@ -205,14 +205,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ilm-fans-choice-cutting-edge-youtube-channels-for-2024/"><u>[New] Film Fan's Choice Cutting-Edge YouTube Channels for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-partner-up-strategies-optimal-selection-for-youtube-teams/"><u>[Updated] In 2024, Partner Up Strategies Optimal Selection for YouTube Teams</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-quick-creative-and-captivating-titles-ready-for-2024/"><u>[Updated] Quick, Creative, and Captivating Titles Ready for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-textual-transformations-discovering-the-best-video-effects-for-2024/"><u>[Updated] Textual Transformations - Discovering the Best Video Effects for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ck-musicals-that-bring-smiles/"><u>10 Mock Musicals That Bring Smiles</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-to-apple-iphone-x-drfone-by-drfone-ios/"><u>How to Mirror PC to Apple iPhone X? | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-vivo-s17-profrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Vivo S17 ProFRP Lock</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-unravel-time-on-your-screen-fresh-perspectives-to-watch-youtube-backwards/"><u>In 2024, Unravel Time on Your Screen Fresh Perspectives to Watch YouTube Backwards</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/gateway-to-youtube-entrepreneurship-the-best-10-easy-to-create-channels/"><u>Your Gateway to YouTube Entrepreneurship The Best 10 Easy-to-Create Channels</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-elite-selection-7-superior-fps-games/"><u>[New] 2024 Approved Elite Selection 7 Superior FPS Games</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-share-smart-optimizing-youtube-videos-on-fb-platform/"><u>[New] 2024 Approved Share Smart Optimizing YouTube Videos on FB Platform</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-simplify-collaboration-share-and-connect-through-playlists/"><u>[New] 2024 Approved Simplify Collaboration Share & Connect Through Playlists</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-skyrocket-views-with-smartly-chosen-video-release-times/"><u>[New] 2024 Approved Skyrocket Views with Smartly Chosen Video Release Times</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-streamline-your-videos-acoustic-appeal-on-youtube/"><u>[New] 2024 Approved Streamline Your Video's Acoustic Appeal on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-most-inexpensive-video-cameras-reviewed/"><u>[New] 2024 Approved The Most Inexpensive Video Cameras Reviewed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-guide-to-itunes-video-downloading-for-ios-users/"><u>[New] 2024 Approved The Ultimate Guide to iTunes Video Downloading for iOS Users</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/levate-learning-top-15-youtube-experts-in-science/"><u>[New] Elevate Learning Top 15 YouTube Experts in Science</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-gameye-expertise-a-compreeher-guide-to-quality-capture/"><u>[New] GamEye Expertise A Compreeher Guide to Quality Capture</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-best-9-smartphone-video-call-solutions-iphone-vs-android-reviewed/"><u>2024 Approved Best 9 Smartphone Video Call Solutions IPhone vs Android Reviewed</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-iphone-techniques-for-full-sphere-videography/"><u>2024 Approved IPhone Techniques for Full-Sphere Videography</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/streamlining-anomalies-dealing-with-anydesk-issues-in-windows/"><u>Streamlining Anomalies: Dealing with AnyDesk Issues in Windows</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-ultimate-gaming-companion-samsung-q60r-4k-qled-tv-reviewed-in-detail/"><u>The Ultimate Gaming Companion: Samsung Q60R 4K QLED TV Reviewed in Detail</u></a></li>
 </ul></div>
 

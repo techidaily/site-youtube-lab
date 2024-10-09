@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering the Art of Video Production  Initial Setup\""
-date: 2024-09-16T18:39:54.914Z
-updated: 2024-09-22T18:20:15.285Z
+date: 2024-10-03T17:21:53.632Z
+updated: 2024-10-09T16:11:11.708Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,13 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -87,16 +94,16 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -106,18 +113,25 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,5 +152,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ridging-the-gap-integrating-spotify-and-youtube-music-playlists-for-2024/"><u>[New] Bridging the Gap Integrating Spotify and YouTube Music Playlists for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-maximizing-click-through-rates-with-youtube-images/"><u>[New] In 2024, Maximizing Click-Through Rates with Youtube Images</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-unlocking-the-secrets-to-high-clickthrough-rates-in-thumbnails/"><u>[New] In 2024, Unlocking the Secrets to High Clickthrough Rates in Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-boosting-revenue-with-the-perfect-youtube-trailer-strategy/"><u>[Updated] In 2024, Boosting Revenue with the Perfect YouTube Trailer Strategy</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-inalterable-action-plan-to-expunge-youtube-shorts/"><u>[Updated] In 2024, Inalterable Action Plan to Expunge YouTube Shorts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-unveiling-new-era-youtube-hits-past-vidcon/"><u>[Updated] Unveiling New Era YouTube Hits Past VidCon</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-most-effective-5-image-editing-programs-on-iphone-x-7-8/"><u>2024 Approved Most Effective 5 Image Editing Programs on iPhone (X, 7, 8)</u></a></li>
+<li><a href="https://win11.techidaily.com/9-ways-to-fix-the-cant-switch-out-of-s-mode-issue-in-windows-11-or-10/"><u>9 Ways to Fix the “Can’t Switch Out of S Mode” Issue in Windows 11 or 10</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/achieving-realistic-blur-on-images-using-photoshop-techniques-for-2024/"><u>Achieving Realistic Blur on Images Using Photoshop Techniques for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/minecraft-youtube-banners-with-templates/"><u>Free Minecraft YouTube Banners with Templates</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-propel-your-youtube-presence-with-google-analytics-skills/"><u>In 2024, Propel Your YouTube Presence with Google Analytics Skills</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-syncing-soundtracks-the-apple-way/"><u>In 2024, Syncing Soundtracks The Apple Way</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/g-youtube-audio-mp3s-easily-for-your-mac-for-2024/"><u>Making YouTube Audio MP3s Easily for Your Mac for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/most-value-packed-mechanical-keyboards-reviewed/"><u>Most Value-Packed Mechanical Keyboards Reviewed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/egizing-to-spot-and-capture-youtubes-hidden-markets/"><u>Strategizing to Spot and Capture Youtube's Hidden Markets</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-rated-apple-band-accessories-for-your-smartwatch-in-2n25-in-depth-analysis-and-reviews-by-experts-techradar/"><u>Top-Rated Apple Band Accessories for Your Smartwatch in 2N25: In-Depth Analysis & Reviews by Experts | TechRadar</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-traffic-into-cash-calculating-the-essential-youtube-number/"><u>Turning Traffic Into Cash Calculating the Essential Youtube Number</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-final-cut-pros-finest-10-iconic-movies-for-2024/"><u>Updated Final Cut Pros Finest 10 Iconic Movies for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/your-next-step-experience-8-custom-gpts-now/"><u>Your Next Step: Experience 8 Custom GPTs Now</u></a></li>
+</ul></div>
 

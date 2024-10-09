@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Transforming Self-Doubt Into YouTube Dominance\""
-date: 2024-09-19T16:21:15.024Z
-updated: 2024-09-22T19:16:51.971Z
+date: 2024-10-05T19:32:50.656Z
+updated: 2024-10-09T16:50:48.574Z
 tags:
   - ai video
   - ai youtube
@@ -63,6 +63,13 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -72,10 +79,10 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
@@ -91,16 +98,10 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
@@ -150,10 +151,10 @@ If you want to find a video editing solution that empowers your imagination and 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -175,5 +176,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-best-screen-recorders-for-google-meet-you-should-try-free-and-paid/"><u>[New] 2024 Approved Best Screen Recorders for Google Meet You Should Try [Free and Paid]</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-capacity-limit-how-many-vids-in-128gb-for-2024/"><u>[New] Capacity Limit How Many Vids in 128GB for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nhancing-video-discoverability-through-youtube-images/"><u>[New] Enhancing Video Discoverability Through Youtube Images</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-recirculate-artists-bundle/"><u>[New] Recirculate Artist's Bundle</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-elevate-your-video-presentations-with-top-30-free-intra-makers/"><u>[Updated] In 2024, Elevate Your Video Presentations with Top 30 Free Intra Makers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-unveiling-the-secrets-of-monetizing-instagram-successfully/"><u>[Updated] In 2024, Unveiling the Secrets of Monetizing Instagram Successfully</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-pioneering-youtube-success-stories-via-tubebuddy/"><u>[Updated] Pioneering YouTube Success Stories via TubeBuddy</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-yuneecs-game-changer-typhoon-q500/"><u>2024 Approved Yuneec's Game-Changer Typhoon Q500</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ashen-crash-fixed-swift-and-simple-solutions/"><u>Ashen Crash Fixed: Swift and Simple Solutions!</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/craft-an-unique-chrome-dino-challenge-using-the-power-of-gendino/"><u>Craft an Unique Chrome Dino Challenge Using the Power of GenDino</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-online-cinema-top-youtube-essentials-for-2024/"><u>Curated Online Cinema Top YouTube Essentials for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-step-by-step-guide-to-youtube-playlist-in-html/"><u>In 2024, Step-by-Step Guide to YouTube Playlist in HTML</u></a></li>
+<li><a href="https://some-tips.techidaily.com/unlocking-advanced-traffic-insights-with-our-cookiebot-technology-integration/"><u>Unlocking Advanced Traffic Insights with Our Cookiebot Technology Integration</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/where-is-the-best-place-to-catch-dratini-on-tecno-pova-5-pro-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Tecno Pova 5 Pro | Dr.fone</u></a></li>
+</ul></div>
 

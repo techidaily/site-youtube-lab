@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Revolutionize Your Content Strategy  A Guide to YouTube Savvy Tips\""
-date: 2024-09-28T02:09:16.573Z
-updated: 2024-10-04T10:20:02.140Z
+date: 2024-10-07T20:21:04.121Z
+updated: 2024-10-09T19:45:17.351Z
 tags:
   - ai video
   - ai youtube
@@ -37,13 +37,6 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -54,10 +47,10 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
@@ -88,13 +81,6 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -106,6 +92,13 @@ This category talks about managing the video captions using the shortcut keys:
 | 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 5: Managing the Audio Video
 
@@ -143,13 +136,6 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -170,7 +156,21 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -193,22 +193,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-blending-beats-with-video-footage-on-vimeo-platform/"><u>[New] Blending Beats with Video Footage on Vimeo Platform</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/hannel-makeovers-made-easy-top-10-online-tools-for-artists-for-2024/"><u>[New] Channel Makeovers Made Easy - Top 10 Online Tools for Artists for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/rom-zero-to-hero-youtube-tech-required-for-2024/"><u>[New] From Zero to Hero YouTube Tech Required for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ive-youtube-streaming-unlocked-beginners-obs-tutorial/"><u>[New] Live Youtube Streaming Unlocked Beginner's OBS Tutorial</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-secure-your-conversations-mastering-free-and-paid-skype-captures-on-pcsmac/"><u>[New] Secure Your Conversations Mastering Free and Paid Skype Captures on PCs/Mac</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/rending-tactics-select-keywords-that-ignite-social-media-traffic-for-2024/"><u>[New] Trending Tactics Select Keywords That Ignite Social Media Traffic for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ealthy-web-showrunners-for-2024/"><u>[New] Wealthy Web Showrunners for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-ascent-of-jake-paul-in-online-video-fame/"><u>[Updated] The Ascent of Jake Paul in Online Video Fame</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-discovering-the-timeline-for-youtube-earnings/"><u>2024 Approved Discovering the Timeline for YouTube Earnings</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-free-thumbnail-extract-from-youtube-videos-today/"><u>2024 Approved Free Thumbnail Extract From YouTube Videos Today!</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-top-picks-8-superior-5k-computer-monitors/"><u>2024 Approved Top Picks 8 Superior 5K Computer Monitors</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-unleashing-potential-strategic-hashtags-for-video-success/"><u>2024 Approved Unleashing Potential Strategic Hashtags for Video Success</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/battle-royale-in-vr-choosing-between-oculus-htc-vive-and-ps-vr-for-2024/"><u>Battle Royale in VR Choosing Between Oculus, HTC Vive & PS VR for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-become-a-broadcast-pro-screen-sharing-101-for-facebookers/"><u>In 2024, Become a Broadcast Pro Screen Sharing 101 for Facebookers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-earn-wisely-the-simple-triad-method-for-scrutinizing-youtube-profits/"><u>In 2024, Earn Wisely The Simple Triad Method for Scrutinizing YouTube Profits</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-7-plus-online-here-are-6-easy-ways-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 7 Plus Online? Here are 6 Easy Ways</u></a></li>
-<li><a href="https://program-issues.techidaily.com/optimizing-gpu-usage-for-call-of-duty-warzone-under-windows-11/"><u>Optimizing GPU Usage for Call of Duty Warzone Under Windows 11</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-youtubes-opposite-order-rearranging-videos-in-reverse-flow/"><u>[New] 2024 Approved Youtube's Opposite Order Rearranging Videos in Reverse Flow</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nhance-engagement-with-these-essential-freegame-hashtags-for-youtube-for-2024/"><u>[New] Enhance Engagement with These Essential FreeGame Hashtags for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-delicious-ideas-top-30-creative-recipe-show-titles/"><u>[New] In 2024, Delicious Ideas Top 30 Creative Recipe Show Titles</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-optimize-media-consumption-with-picture-in-progress-screen-chrome/"><u>[New] Optimize Media Consumption with Picture In Progress Screen Chrome</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-unearth-17-methods-a-complete-guide-to-tracking-internet-radio/"><u>[New] Unearth 17 Methods A Complete Guide to Tracking Internet Radio</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-facebooks-novelty-the-leading-five-new-features-unraveled-for-2024/"><u>[Updated] Facebook's Novelty The Leading Five New Features Unraveled for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-essential-strategies-for-professional-grade-video-editing/"><u>[Updated] In 2024, Essential Strategies for Professional-Grade Video Editing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-cinematic-wisdom-bank/"><u>2024 Approved Cinematic Wisdom Bank</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-full-range-locomotion-appraisal/"><u>2024 Approved Full Range Locomotion Appraisal</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-enhancing-youtube-content-with-text-overlays/"><u>In 2024, Enhancing YouTube Content with Text Overlays</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-xiaomi-civi-3-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Xiaomi Civi 3 Devices | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-reels-unlocking-the-ninja-mindset/"><u>In 2024, Instagram Reels Unlocking the Ninja Mindset</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ts-to-standout-final-scenes-on-yt-platforms/"><u>Secrets to Standout Final Scenes on YT Platforms</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-crashes-in-persona-3-ultimate-version-on-pcs/"><u>Troubleshooting Crashes in Persona 3 Ultimate Version on PCs</u></a></li>
 </ul></div>
 
