@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Altering Who Can Access Your YouTube Videos"
-date: 2024-09-16T16:26:37.790Z
-updated: 2024-09-17T20:18:31.106Z
+date: 2024-10-13T17:08:03.564Z
+updated: 2024-10-15T19:23:38.291Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,13 @@ thumbnail: https://thmb.techidaily.com/e086106512b2e9d753e081998408f58f33739fa1f
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -75,11 +82,31 @@ thumbnail: https://thmb.techidaily.com/e086106512b2e9d753e081998408f58f33739fa1f
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
@@ -89,33 +116,20 @@ thumbnail: https://thmb.techidaily.com/e086106512b2e9d753e081998408f58f33739fa1f
 
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -136,5 +150,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastering-video-creation-the-complete-review-of-sj-cam-s6/"><u>[New] In 2024, Mastering Video Creation The Complete Review of SJ-CAM S6</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-virtual-gallery-combining-crescendos-with-clarity/"><u>[New] In 2024, Virtual Gallery Combining Crescendos with Clarity</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nline-video-hubs-picking-between-vimeo-youtube-and-dailymotion/"><u>[New] Online Video Hubs Picking Between Vimeo, YouTube & Dailymotion</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/99928899-new-revolutionize-your-branding-50-free-youtube-banners-inside/"><u>[New] Revolutionize Your Branding - 50 Free YouTube Banners Inside!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nderstanding-youtube-shorts-revenue-strategy-for-2024/"><u>[New] Understanding YouTube Shorts Revenue Strategy for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlock-your-presentation-potential-with-these-high-quality-templates/"><u>[New] Unlock Your Presentation Potential with These High-Quality Templates</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-harnessing-the-benefits-with-creative-commons-licenses/"><u>[Updated] 2024 Approved Harnessing the Benefits with Creative Commons Licenses</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-efficiently-balancing-professional-commitments-and-creativity/"><u>[Updated] Efficiently Balancing Professional Commitments & Creativity</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-how-to-go-viral-on-youtube-with-minimal-effort/"><u>[Updated] In 2024, How to Go Viral on YouTube with Minimal Effort</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-is-an-annual-subscription-to-youtube-premium-justifiable-in-2024/"><u>[Updated] Is an Annual Subscription to YouTube Premium Justifiable, In 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-premiere-live-concert-streams/"><u>[Updated] Premiere Live Concert Streams</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-streamline-your-videos-top-10-youtube-to-webm-converters-for-2024/"><u>[Updated] Streamline Your Videos Top 10 YouTube-to-WebM Converters for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-xsplit-vs-obs-which-one-simplifies-live-broadcast/"><u>[Updated] XSplit Vs. OBS – Which One Simplifies Live Broadcast?</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changefake-your-oppo-a1-5g-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Oppo A1 5G Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-special-features-virtual-location-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Xiaomi Redmi Note 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-after-effects-vs-adobe-premiere-whats-the-difference/"><u>In 2024, After Effects VS Adobe Premiere, Whats the Difference?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-palette-strategies-utilizing-color-science-in-art/"><u>In 2024, Palette Strategies Utilizing Color Science in Art</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-reverse-the-norm-creative-methods-for-backward-youtube-watching/"><u>In 2024, Reverse the Norm Creative Methods for Backward Youtube Watching</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/warzone-blackout-problems-heres-how-you-can-fix-them-essential-tips/"><u>Warzone Blackout Problems? Here's How You Can Fix Them - Essential Tips!</u></a></li>
+</ul></div>
 

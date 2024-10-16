@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Masterclass in Cinematography  Best Lenses to Invest In\""
-date: 2024-10-07T17:27:51.485Z
-updated: 2024-10-09T19:29:05.178Z
+date: 2024-10-11T02:39:32.551Z
+updated: 2024-10-16T01:23:58.010Z
 tags:
   - ai video
   - ai youtube
@@ -40,10 +40,10 @@ We have explained the differences between Fixed lens and Zoom lens and advantage
 Before we get into the recommendations here is a little background information on lenses in general:
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Beginner's Guide to Aperture and F-Stops
@@ -65,10 +65,10 @@ F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more informa
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Types of Camera Lenses
@@ -96,10 +96,16 @@ Recording videos of vast open spaces, breathtaking vistas or beautiful city view
 YouTubers who are working on demanding projects can try to solve their troubles by using a specialist lens. Soft-focus lenses can help you take better portraits while tilt-shift lenses allow you to control the perspective. However, it is hard to imagine a scenario in which you'll need a specialist lense if you are just starting out since even experienced videographers only use special lenses when they have absolutely no better way to record a scene.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Recommended Best Camera Lenses for Shooting YouTube Videos
@@ -127,6 +133,13 @@ Canon released this lens in 2014 and shortly after it has gained the reputation 
 
 ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
 
 If you are looking for an inexpensive prime lens that lets you create sharp videos with shallow depth of field, you should look no further. This model is one of three Canon's 50mm prime lenses, although the [50mm f/1.4 USM](https://www.amazon.com/Canon-Standard-Medium-Telephoto-Cameras/dp/B00009XVCZ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-3&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=11bff1019e73f0462c30a04e98d4874f&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTe) and [50mm f/1.2 'L' USM](https://www.amazon.com/Canon-50mm-Lens-Digital-Cameras/dp/B000I1YIDQ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-4&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=d77bb813550f12e8aa72c8738dfaad81&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTeAiw&slot) models are much more expensive. You can use it to record a lot of different types of YouTube videos, like product reviews or makeup tutorials. The 50 mm f/1.8 STM lens doesn't have image stabilization technology so you should try to be as still as you can possibly be when shooting handheld videos in order to avoid recording footage that has a lot of camera shakes.
@@ -151,13 +164,6 @@ If you are using a 4k camera to shoot your YouTube video, check out [best camera
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -179,19 +185,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-support.techidaily.com/new-master-clearer-photos-unveiling-the-top-10-web-edits/"><u>[New] Master Clearer Photos Unveiling the Top 10 Web Edits</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-redefining-visual-storytelling-with-vidas-advanced-tools/"><u>[New] Redefining Visual Storytelling with Vida's Advanced Tools</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-masters-of-digital-avengers-realms/"><u>[Updated] In 2024, Masters of Digital Avengers Realms</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-nostalgia-in-streaming-restoring-yt-videos-removed/"><u>[Updated] In 2024, Nostalgia in Streaming Restoring YT Videos Removed</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-swiftly-upgrade-your-videos-with-top-tips-for-adding-youtube-closed-captions/"><u>[Updated] In 2024, Swiftly Upgrade Your Videos with Top Tips for Adding YouTube Closed Captions</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-innovative-approaches-to-combine-yt-videos-with-ppt-formats/"><u>[Updated] Innovative Approaches to Combine YT Videos with PPT Formats</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-stream-switch-and-succeed-the-complete-guide-to-using-float-on-netflix/"><u>2024 Approved Stream, Switch and Succeed The Complete Guide to Using Float on Netflix</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/free-online-converter-transform-wav-files-into-mpeg-format-with-ease/"><u>Free Online Converter: Transform WAV Files Into MPEG Format with Ease</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-vivo-y28-5g-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Vivo Y28 5G</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-pathway-to-free-final-cut-pro/"><u>In 2024, The Pathway to Free Final Cut Pro</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/egic-hash-tags-to-launch-you-into-six-figures-for-2024/"><u>Strategic Hash Tags to Launch You Into Six Figures for 2024</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-recover-deleted-photos-on-vivo-y02t-without-backup-by-fonelab-android-recover-photos/"><u>The way to recover deleted photos on Vivo Y02T without backup.</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/top-techniques-for-downscaling-720p1080p-videos-to-480p-resolution/"><u>Top Techniques for Downscaling 720P/1080p Videos to 480P Resolution</u></a></li>
-<li><a href="https://article-posts.techidaily.com/unleash-the-power-of-subtitling-an-online-tool-compendium-for-2024/"><u>Unleash the Power of Subtitling An Online Tool Compendium for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xperience-the-virtual-reality-frontier-on-youtube-for-2024/"><u>[New] Experience the Virtual Reality Frontier on Youtube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-closing-with-panache-free-youtubes-1-six/"><u>[New] In 2024, Closing with Panache Free YouTube's #1 Six</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-launching-into-content-creation-account-setup-on-youtube/"><u>[New] In 2024, Launching Into Content Creation Account Setup on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ise-on-youtube-initiating-your-chanel-and-earning-pathway-for-2024/"><u>[New] Rise on YouTube Initiating Your Chanel & Earning Pathway for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/kyrocket-traffic-the-ultimate-list-of-video-growth-techniques-for-2024/"><u>[New] Skyrocket Traffic The Ultimate List of Video Growth Techniques for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-install-the-newest-evga-graphics-card-drivers-for-windows-os/"><u>Download and Install the Newest EVGA Graphics Card Drivers for Windows OS</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/sing-fears-in-your-first-10-videos-for-2024/"><u>Eclipsing Fears in Your First 10 Videos for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ient-keyword-utilization-discover-the-best-7-online-video-tag-extractors-reviewed-for-2024/"><u>Efficient Keyword Utilization Discover the Best 7 Online Video Tag Extractors Reviewed for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fix-your-windows-11-audio-issues-troubleshooting-non-responsive-volume-control/"><u>Fix Your Windows 11 Audio Issues: Troubleshooting Non-Responsive Volume Control</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-5-simple-tricks-for-aspiring-photoshop-editors/"><u>In 2024, 5 Simple Tricks for Aspiring Photoshop Editors</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/trouble-with-apple-iphone-6-plus-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>Trouble with Apple iPhone 6 Plus Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-starting-dolby-digital-and-dolby-pro-logic-ii-sound-in-windows-11-systems/"><u>Troubleshooting Guide: Starting Dolby Digital and Dolby Pro Logic II Sound in Windows 11 Systems</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-realme-narzo-60-5g-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Realme Narzo 60 5G? | Dr.fone</u></a></li>
 </ul></div>
 

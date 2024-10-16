@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Thriving as a Novice YouTuber? Sidestep These 8 Crucial Pitfalls"
-date: 2024-10-08T18:49:45.224Z
-updated: 2024-10-09T18:37:25.712Z
+date: 2024-10-13T21:38:19.512Z
+updated: 2024-10-15T21:14:44.400Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,13 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
@@ -58,10 +65,16 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Failing to have a thumbnail strategy
@@ -69,6 +82,19 @@ As an example, let's suppose you vlogged your time backpacking around Europe las
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
+
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -79,16 +105,10 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Forgetting to engage with subscribers
@@ -96,13 +116,6 @@ To read more on how some of the most successful YouTubers effectively do their i
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
 
@@ -119,13 +132,6 @@ But rather than leaving interesting comments that are related to the video, rath
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -148,18 +154,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/treamline-video-production-with-free-music-for-2024/"><u>[New] Streamline Video Production with Free Music for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-simplicity-in-action-constructing-an-intuitive-youtube-signup-page/"><u>[Updated] 2024 Approved Simplicity in Action Constructing an Intuitive YouTube Signup Page</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-unveiling-the-numbers-comprehensive-guide-to-count-views-clicks-and-cash-in-youtube/"><u>[Updated] Unveiling the Numbers Comprehensive Guide to Count Views, Clicks, and Cash in YouTube</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/7-ways-to-unlock-a-locked-oppo-a78-5g-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Oppo A78 5G Phone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/oad-and-translate-youtube-videos-for-free-for-2024/"><u>Download and Translate YouTube Videos for Free for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/rical-deep-dives-from-youtubes-most-impactful-creators-for-2024/"><u>Historical Deep Dives From YouTube's Most Impactful Creators for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-realme-gt-neo-5-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Realme GT Neo 5 to iPod | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-discover-the-magic-of-jujutsu-kaisen-with-tiktok-videos/"><u>In 2024, Discover the Magic of Jujutsu Kaisen with TikTok Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-from-idea-to-execution-an-essential-guide-to-youtube-shorts-template-design/"><u>In 2024, From Idea to Execution An Essential Guide to YouTube Shorts Template Design</u></a></li>
-<li><a href="https://change-location.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Vivo T2 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://common-error.techidaily.com/proven-methods-for-overcoming-internet-explorer-has-stopped-working-glitches/"><u>Proven Methods for Overcoming 'Internet Explorer Has Stopped Working' Glitches</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-the-ultimate-final-cut-pro-slideshow-tutorial-for-beginners/"><u>Updated 2024 Approved The Ultimate Final Cut Pro Slideshow Tutorial for Beginners</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/what-does-the-telegram-app-offer-a-comprehensive-overview/"><u>What Does the Telegram App Offer? A Comprehensive Overview</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-advanced-techniques-for-efficient-use-of-luts-in-cs6cc/"><u>[New] 2024 Approved Advanced Techniques for Efficient Use of LUTs in CS6/CC</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-harness-the-power-of-hashtags-in-instagram-marketing-strategies/"><u>[New] 2024 Approved Harness the Power of Hashtags in Instagram Marketing Strategies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-from-parts-to-proficiency-assembling-a-powerhouse-4k-video-editor-pc/"><u>[New] From Parts to Proficiency Assembling a Powerhouse 4K Video Editor PC</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-getting-started-with-snapchats-new-spotlight/"><u>[New] Getting Started with Snapchat's New Spotlight</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-fbx-gaming-record-your-adventure/"><u>[New] In 2024, FBX Gaming Record Your Adventure</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-sculpting-styles-manipulating-text-with-3d/"><u>[New] In 2024, Sculpting Styles Manipulating Text with 3D</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nlocking-youtube-potential-try-these-12-effective-strategies/"><u>[New] Unlocking YouTube Potential - Try These 12 Effective Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-journey-through-virtual-realms-on-youtubes-channel-for-2024/"><u>[Updated] Journey Through Virtual Realms on YouTube's Channel for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-premium-broadcasting-gear-top-rated-software-and-hardware-for-youtubers/"><u>2024 Approved Premium Broadcasting Gear Top-Rated Software & Hardware for Youtubers</u></a></li>
+<li><a href="https://win-guides.techidaily.com/activating-hibernation-mode-on-your-windows-xp-system-a-comprehensive-guide/"><u>Activating Hibernation Mode on Your Windows XP System: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/comprehensive-analysis-of-the-mophie-powerstation-ac-is-the-price-justified-by-its-utility/"><u>Comprehensive Analysis of the Mophie Powerstation AC – Is the Price Justified by Its Utility?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ted-focus-youtubes-easy-ways-for-smoother-borders/"><u>Directed Focus YouTube's Easy Ways for Smoother Borders</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tly-infuse-youtube-music-into-any-imovie-project/"><u>Directly Infuse YouTube Music Into Any iMovie Project</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/easy-to-follow-guide-adding-snapchat-to-your-mac-os/"><u>Easy-to-Follow Guide Adding Snapchat to Your Mac OS</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-lava-agni-2-5g-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Lava Agni 2 5G?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-best-audio-modification-methods-for-youtube-stars/"><u>In 2024, Best Audio Modification Methods for YouTube Stars</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-perfect-your-clips-step-by-step-youtube-editing-tips/"><u>In 2024, Perfect Your Clips Step-by-Step YouTube Editing Tips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-video-basics-made-simple-a-list-of-10-accessible-youtube-projects/"><u>In 2024, Video Basics Made Simple A List of 10 Accessible YouTube Projects</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/form-your-food-blog-into-an-engaging-mukbang-show/"><u>Transform Your Food Blog Into an Engaging Mukbang Show</u></a></li>
 </ul></div>
 

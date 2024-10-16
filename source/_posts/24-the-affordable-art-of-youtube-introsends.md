@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Affordable Art of YouTube Intros/Ends"
-date: 2024-09-14T19:01:15.290Z
-updated: 2024-09-17T17:15:33.558Z
+date: 2024-10-12T02:30:38.857Z
+updated: 2024-10-15T22:00:04.941Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +124,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,12 +150,21 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-best-practices-in-yt-thumbnail-sizing/"><u>[New] In 2024, Best Practices in YT Thumbnail Sizing</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-map-masters-reveal-top-five-for-gold-collection/"><u>[New] Map Masters Reveal Top Five For Gold Collection</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-proven-techniques-for-soaring-high-in-the-world-of-tiktok-fame/"><u>[New] Proven Techniques for Soaring High in the World of TikTok Fame</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-ultimate-guide-to-inspiring-youtube-names-for-2024/"><u>[New] The Ultimate Guide to Inspiring YouTube Names for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unleash-your-creative-vision-a-guide-to-android-editors/"><u>[New] Unleash Your Creative Vision A Guide to Android Editors</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-unlocking-instagrams-hidden-filter-tools-for-2024/"><u>[New] Unlocking Instagram's Hidden Filter Tools for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-streamlining-your-mac-techniques-to-remove-green-screen-effects/"><u>[Updated] In 2024, Streamlining Your Mac Techniques to Remove Green Screen Effects</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-instantaneous-viewership-metering/"><u>2024 Approved Instantaneous Viewership Metering</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-magix-acid-pro-review-a-look-at-similar-programs/"><u>2024 Approved Magix ACID Pro Review A Look at Similar Programs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/becoming-an-srt-creation-virtuoso-a-complete-manual/"><u>Becoming an SRT Creation Virtuoso A Complete Manual</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/te-small-screen-experience-with-these-leading-and-affordable-tools-to-download-youtubes-tiny-videos/"><u>Elevate Small Screen Experience with These Leading & Affordable Tools to Download YouTubes' Tiny Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/essential-guide-incorporating-visual-annotations-in-edits/"><u>Essential Guide Incorporating Visual Annotations in Edits</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mkv-wmv-movavi/"><u>MKV, WMV 포맷터에서 원거리로 무료 전환하기 - Movavi의 가장 나은 방법!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ating-the-seo-maze-a-guide-to-youtube-keywords-for-2024/"><u>Navigating the SEO Maze A Guide to YouTube Keywords for 2024</u></a></li>
+</ul></div>
 

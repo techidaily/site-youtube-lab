@@ -1,7 +1,7 @@
 ---
 title: "[New] How to View YouTube Statistics?"
-date: 2024-09-16T21:37:40.118Z
-updated: 2024-09-17T17:25:47.260Z
+date: 2024-10-11T17:11:48.429Z
+updated: 2024-10-15T16:16:19.115Z
 tags:
   - ai video
   - ai youtube
@@ -48,6 +48,13 @@ As one of the best video editing software for YouTube, [Filmora](https://tools.t
 
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to View Your YouTube Statistics
 
 In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
@@ -71,10 +78,10 @@ In the watch time reports for individual videos, you will be able to see data on
 Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Interpreting YouTube Interaction Reports
@@ -101,6 +108,13 @@ Interaction reports can be broken down into several different reports that can h
 
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to View Other Peoples YouTube Statistics
 
 If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
@@ -110,16 +124,10 @@ Now that you know how to view YouTube statistics, what will you do with them?
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1885947/19272" target="_top" id="1885947">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885947" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885947/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -141,5 +149,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/chieving-1k-subs-in-a-weekend-a-plan-of-action-for-2024/"><u>[New] Achieving 1K Subs in a Weekend A Plan of Action for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-amplify-views-and-engagement-through-google-analytics-expertise/"><u>[New] In 2024, Amplify Views & Engagement Through Google Analytics Expertise</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-essential-insights-on-asmr-videos/"><u>[New] In 2024, Essential Insights on ASMR Videos</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-seamlessly-connect-with-friends-and-family-via-skype-call/"><u>[New] In 2024, Seamlessly Connect with Friends & Family via Skype Call</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-best-for-videos-vlc-or-mx-in-2024/"><u>[Updated] Best for Videos VLC or MX, In 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-the-ultimate-guide-to-digital-marketing-triumphs/"><u>[Updated] In 2024, The Ultimate Guide to Digital Marketing Triumphs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-quickly-speed-up-or-decelerate-videos-for-peak-engagement-for-2024/"><u>[Updated] Quickly Speed Up or Decelerate Videos for Peak Engagement for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-samsung-revolution-diving-deep-into-the-ue590-monitor-review/"><u>[Updated] The Samsung Revolution - Diving Deep Into the UE590 Monitor Review</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-top-5-accessories-for-beneath-water-shooting-for-2024/"><u>[Updated] Top 5 Accessories for Beneath Water Shooting for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-tecno-camon-20-pro-5g-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Tecno Camon 20 Pro 5G to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722971118417-seamless-setup-how-to-update-or-download-epson-drivers-for-windows-with-ease/"><u>Seamless Setup: How to Update or Download Epson Drivers for Windows with Ease!</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/troubleshoot-and-fix-vlc-player-issues-with-mkv-files-for-seamless-viewing/"><u>Troubleshoot & Fix VLC Player Issues with MKV Files for Seamless Viewing</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/your-makeup-maestro-journey-establishing-a-channel-for-beauty-buffs-for-2024/"><u>Your Makeup Maestro Journey Establishing a Channel for Beauty Buffs for 2024</u></a></li>
+</ul></div>
 

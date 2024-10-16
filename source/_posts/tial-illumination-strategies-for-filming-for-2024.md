@@ -1,7 +1,7 @@
 ---
 title: "Essential Illumination Strategies for Filming for 2024"
-date: 2024-09-10T20:32:00.454Z
-updated: 2024-09-17T20:23:21.600Z
+date: 2024-10-11T19:12:03.758Z
+updated: 2024-10-15T18:55:14.607Z
 tags:
   - ai video
   - ai youtube
@@ -49,7 +49,21 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -77,6 +91,19 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -88,6 +115,13 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -108,12 +142,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-comprehensive-breakdown-sony-fdr-x1000v-complete-guide/"><u>[New] Comprehensive Breakdown Sony FDR-X1000V Complete Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/mulating-old-hollywood-style-in-modern-videos/"><u>[New] Emulating Old Hollywood Style in Modern Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nlocking-youtube-potential-try-these-12-effective-strategies/"><u>[New] Unlocking YouTube Potential - Try These 12 Effective Strategies</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-crafting-memes-that-stand-out-the-9gag-way/"><u>[Updated] Crafting Memes that Stand Out The 9GAG Way</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-curating-best-tiktok-scenes-as-pixel-art/"><u>[Updated] In 2024, Curating Best TikTok Scenes as Pixel Art</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-journey-through-virtual-realms-on-youtubes-channel-for-2024/"><u>[Updated] Journey Through Virtual Realms on YouTube's Channel for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/comprehensive-analysis-of-the-mophie-powerstation-ac-is-the-price-justified-by-its-utility/"><u>Comprehensive Analysis of the Mophie Powerstation AC – Is the Price Justified by Its Utility?</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-footprints-download-with-discretion-in-social-media/"><u>Digital Footprints: Download with Discretion in Social Media</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ted-focus-youtubes-easy-ways-for-smoother-borders/"><u>Directed Focus YouTube's Easy Ways for Smoother Borders</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discover-the-ultimate-iphone-bargains-for-july-2024-find-your-perfect-price-point-guide/"><u>Discover the Ultimate iPhone Bargains for July 2024 – Find Your Perfect Price Point Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-after-format-on-13-ultra-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery after format on 13 Ultra</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-best-audio-modification-methods-for-youtube-stars/"><u>In 2024, Best Audio Modification Methods for YouTube Stars</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-explore-online-communities-with-youtube-monetization-opportunities/"><u>In 2024, Explore Online Communities with YouTube Monetization Opportunities</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-perfect-your-clips-step-by-step-youtube-editing-tips/"><u>In 2024, Perfect Your Clips Step-by-Step YouTube Editing Tips</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtubes-pinnacle-tools-studio-vs-next-gen-beta/"><u>In 2024, YouTube's Pinnacle Tools Studio Vs. Next-Gen Beta</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/installation-tips-for-seamlessly-connecting-your-hp-officejet-4500i/"><u>Installation Tips for Seamlessly Connecting Your HP Officejet 4500I</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-honor-magic-5-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Honor Magic 5 Phone? Unlock It Now</u></a></li>
+</ul></div>
 

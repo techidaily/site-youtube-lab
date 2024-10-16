@@ -1,7 +1,7 @@
 ---
 title: "[Updated] A Comprehensible Breakdown for YouTube Annotation and Card Implementation"
-date: 2024-09-15T19:15:10.723Z
-updated: 2024-09-17T18:45:36.746Z
+date: 2024-10-11T22:13:50.757Z
+updated: 2024-10-15T16:25:08.618Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -82,10 +89,30 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -125,6 +152,19 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -144,18 +184,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-broadcast-battleground-pick-your-preferred-livestreaming-champion-vmixwirecast/"><u>[New] 2024 Approved Broadcast Battleground Pick Your Preferred Livestreaming Champion (VMix/Wirecast)</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-from-zero-to-hero-youtubes-masterclass-in-channels/"><u>[New] From Zero to Hero YouTube's Masterclass in Channels</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-youtube-snippets-guide-essential-info-inside/"><u>[New] In 2024, YouTube Snippets Guide Essential Info Inside</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/eep-it-legal-how-to-convert-youtube-to-mp4-safely-for-2024/"><u>[New] Keep It Legal How to Convert YouTube to MP4 Safely for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-innovative-youtube-titles-crafting-a-standout-brand/"><u>[Updated] 2024 Approved Innovative YouTube Titles Crafting a Standout Brand</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-elevate-your-online-video-quality-mastery-in-finalcut-for-youtube/"><u>[Updated] In 2024, Elevate Your Online Video Quality Mastery in FinalCut for YouTube</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-making-insta-videos-audio-the-ultimate-transformation-for-2024/"><u>[Updated] Making Insta Videos Audio The Ultimate Transformation for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-optimal-youtube-video-formats-a-comprehensive-guide-for-2024/"><u>[Updated] Optimal YouTube Video Formats A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-your-guide-to-50-creative-free-youtube-advertising-options-for-2024/"><u>[Updated] Your Guide to 50 Creative, Free YouTube Advertising Options for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-tecno-spark-go-2023-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Tecno Spark Go (2023) | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-understanding-youtubes-hidden-content-the-unlisted-reality/"><u>2024 Approved Understanding YouTube's Hidden Content The Unlisted Reality</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/dvd-android-ios-ipadavi-mp4-h264-dvd/"><u>无价格 DVD转换器 - Android, iOS, iPad专业制作的免费高效AVI MP4 H264 DVD转化软件</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/excellent-series-of-animated-type-options/"><u>Excellent Series of Animated Type Options</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-videos-not-playing-on-vivo-x100-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix Videos Not Playing on Vivo X100?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/shaky-shots-be-gone-secure-your-iphone-videos/"><u>Shaky Shots Be Gone! Secure Your iPhone Videos</u></a></li>
+</ul></div>
 

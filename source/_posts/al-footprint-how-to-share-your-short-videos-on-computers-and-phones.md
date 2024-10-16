@@ -1,7 +1,7 @@
 ---
 title: "\"Digital Footprint  How to Share Your Short Videos on Computers & Phones\""
-date: 2024-09-16T21:04:54.929Z
-updated: 2024-09-17T21:34:32.222Z
+date: 2024-10-09T22:55:08.672Z
+updated: 2024-10-15T17:37:10.788Z
 tags:
   - ai video
   - ai youtube
@@ -87,6 +87,13 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 1: Upload an Existing Short Video
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
@@ -95,11 +102,25 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
 #### Step 2: Add Details
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -133,33 +154,20 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -180,5 +188,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-a-thorough-examination-adobe-lightroom-for-android-users-for-2024/"><u>[New] A Thorough Examination Adobe Lightroom for Android Users for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rom-shots-to-screens-the-importance-of-camera-lenses-in-vlogs/"><u>[New] From Shots to Screens The Importance of Camera Lenses in Vlogs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-guide-to-choosing-ideal-youtube-thumbnail-shapes/"><u>[Updated] Guide to Choosing Ideal Youtube Thumbnail Shapes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-quick-vid-overview-top-tips-and-facts-now/"><u>[Updated] In 2024, Quick Vid Overview Top Tips & Facts Now!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-ultimate-hitchhikers-guide-to-youtube-playlists/"><u>[Updated] In 2024, The Ultimate Hitchhiker's Guide to YouTube Playlists</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-master-the-art-of-snapchats-boomerangs/"><u>[Updated] Master the Art of Snapchat's Boomerangs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-importance-of-understanding-asmr-media/"><u>2024 Approved The Importance of Understanding ASMR Media</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tless-earnings-channel-size-no-longer-a-challenge/"><u>Effortless Earnings Channel Size No Longer a Challenge</u></a></li>
+<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-poco-f5-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-samsung-galaxy-f54-5g-frp-by-drfone-android/"><u>Full Guide to Bypass Samsung Galaxy F54 5G FRP</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-from-real-time-to-leisurely-iphone-methods-for-slow-motion-video/"><u>In 2024, From Real Time to Leisurely IPhone Methods for Slow Motion Video</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastery-of-windows-11-search-quick-fixes-to-follow/"><u>Mastery of Windows 11 Search: Quick Fixes to Follow</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mp4-to-avi-conversion-quick-simple-and-no-cost-solutions/"><u>MP4 to AVI Conversion: Quick, Simple and No Cost Solutions</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/optimal-quick-image-reader-for-pcs/"><u>Optimal Quick Image Reader for PCs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/izing-hashtags-for-youtube-traffic-triplets-for-2024/"><u>Optimizing Hashtags for YouTube Traffic Triplets for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-vivo-t2-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Vivo T2 5G to PC- Detailed Steps | Dr.fone</u></a></li>
+</ul></div>
 

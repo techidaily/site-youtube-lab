@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, YouTube Shortcuts You Should Know"
-date: 2024-09-12T21:15:33.946Z
-updated: 2024-09-17T21:33:12.353Z
+date: 2024-10-13T19:09:10.702Z
+updated: 2024-10-16T02:21:56.546Z
 tags:
   - ai video
   - ai youtube
@@ -66,10 +66,10 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 3: Manage Playback Speed
@@ -103,6 +103,13 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -117,6 +124,19 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -128,6 +148,13 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Numpad)   | Zoom out                                              |
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
@@ -149,21 +176,7 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -184,5 +197,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-ultimate-5-ps1-emulation-tools-for-modern-pcs-for-2024/"><u>[New] Ultimate 5 PS1 Emulation Tools for Modern PCs for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ideo-creation-journey-from-adobe-premiere-to-youtube-for-2024/"><u>[New] Video Creation Journey From Adobe Premiere to YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-harness-social-blade-for-profound-youtube-stats-analysis/"><u>[Updated] 2024 Approved Harness Social Blade for Profound YouTube Stats Analysis</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-disconnect-on-snapchat-are-they-blocked-for-2024/"><u>[Updated] The Disconnect on Snapchat Are They Blocked for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-mobilize-your-marketing-easy-youtube-channel-launch-tips-for-entrepreneurs/"><u>2024 Approved Mobilize Your Marketing Easy YouTube Channel Launch Tips for Entrepreneurs</u></a></li>
+<li><a href="https://win-great.techidaily.com/accelerate-your-pc-how-this-secret-windows-11-feature-rapidly-terminates-frozen-programs-revealed-by-zdnet/"><u>Accelerate Your PC: How This Secret Windows 11 Feature Rapidly Terminates Frozen Programs, Revealed by ZDNet</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-tips-on-handling-the-missing-xlivedll-component-issue/"><u>Comprehensive Tips on Handling the Missing Xlive.dll Component Issue</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-xiaomi-redmi-k70-by-drfone-android/"><u>Three Ways to Sim Unlock Xiaomi Redmi K70</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/unlock-stunning-visuals-with-dall-e-3-ultimate-list-of-8-image-prompts/"><u>Unlock Stunning Visuals with DALL-E 3: Ultimate List of 8 Image Prompts</u></a></li>
+</ul></div>
 

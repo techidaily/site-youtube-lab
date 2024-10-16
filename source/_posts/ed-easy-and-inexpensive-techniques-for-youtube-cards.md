@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Easy and Inexpensive Techniques for YouTube Cards"
-date: 2024-09-10T20:09:22.571Z
-updated: 2024-09-17T17:54:54.580Z
+date: 2024-10-12T00:32:56.055Z
+updated: 2024-10-15T20:15:15.260Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +124,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,12 +150,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/deal-free-resources-to-start-a-youtube-channel/"><u>[New] Ideal Free Resources to Start a YouTube Channel</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-elevate-your-content-with-professional-end-screen-templates/"><u>[New] In 2024, Elevate Your Content with Professional End Screen Templates</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-flip-your-video-collection-in-a-flash/"><u>[New] In 2024, How to Flip Your Video Collection in a Flash</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-revolutionize-your-photo-editing-skills-with-pixlr-insights/"><u>[New] Revolutionize Your Photo Editing Skills with Pixlr Insights</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/treaming-supremacy-the-peak-of-youtuber-popularity-for-2024/"><u>[New] Streaming Supremacy The Peak of YouTuber Popularity for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-elevate-your-content-with-these-top-5-youtube-marketing-methods-for-2024/"><u>[Updated] Elevate Your Content with These Top 5 YouTube Marketing Methods for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-high-speed-snapshot-and-voice-commentary-assistant-device/"><u>[Updated] In 2024, High-Speed Snapshot & Voice Commentary Assistant Device</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-the-best-8-value-video-communication-programs-for-pc-and-mac-for-2024/"><u>[Updated] The Best 8 Value Video Communication Programs for PC and MAC for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-comprehensive-analysis-hero4-black-overview/"><u>2024 Approved Comprehensive Analysis Hero4 Black Overview</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-host-smart-and-cheap-your-guide-to-youtube-seminars/"><u>2024 Approved Host Smart and Cheap Your Guide to Youtube Seminars</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/boosting-your-presence-on-fb-with-virality-techniques-for-2024/"><u>Boosting Your Presence on FB with Virality Techniques for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-samsung-galaxy-m34-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Samsung Galaxy M34 to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-essential-blueprint-to-compiling-youtube-soundscape/"><u>In 2024, The Essential Blueprint to Compiling YouTube Soundscape</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-the-art-of-modifying-windows-files/"><u>Mastering the Art of Modifying Windows Files</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/thumbnails-transformed-immersive-settings-for-2024/"><u>Thumbnails Transformed Immersive Settings for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/be-to-gif-magic-your-ultimate-guide-to-animated-images/"><u>Youtube to Gif Magic Your Ultimate Guide to Animated Images</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1726223214412-2024-10/"><u>로고 만들기를 위해서는 이 사이트가 필수! 2024년의 최고 10대</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Chart a Course to Higher Views with Top Optimization Tactics\""
-date: 2024-10-04T18:35:35.271Z
-updated: 2024-10-09T19:33:52.002Z
+date: 2024-10-10T01:45:01.104Z
+updated: 2024-10-15T20:15:52.605Z
 tags:
   - ai video
   - ai youtube
@@ -42,13 +42,6 @@ In this article, we will give you[a checklist](https://drive.google.com/file/d/1
 3. [Engage Your Audience](#c)
 4. [Upload YouTube Video in Proper Length](#d)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **1\. Keep Your Audience's Attention:**
 
 Even though your view count is going up, it doesn’t mean your audience is watching your video. And if they are not, then YouTube is going to consider your video less valuable and therefore, lowering its rank.
@@ -56,13 +49,6 @@ Even though your view count is going up, it doesn’t mean your audience is watc
 Audience Retention is an important metric to keep an eye on after every video you’ve published.
 
 ![low-audience-retention](https://images.wondershare.com/filmora/article-images/measurign-audience-retention.png.png)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Before you start your next project, take a look back at the Audience Retention of your previous videos.  
 
@@ -80,27 +66,27 @@ If you get above **60%** Average Percentage Viewed, you should feel very proud. 
 
 ![audience-retention-one](https://images.wondershare.com/filmora/audience-retention-one.png)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 In the example above, we see that on average, a viewer will only see 44% of the video. For the video below, we see that it only has 30% of the video viewed. Overall, the first video is performing better.
 
 ![audience-retention-two](https://images.wondershare.com/filmora/audience-retention-two.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 There is also a dip that happens at the beginning in the second example, which indicates that viewers are skipping forward and about 20% then deciding it’s not worth continuing. It’s good data to help you improve your introduction and the hook.
 
 If there is important information that you are presenting at a given point and in the Audience Retention you see that only a small percentage of your viewers actually see it, then for the next video, you might want to position the details in a different point in the video.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **How to Improve Audience Retention**
 
@@ -120,16 +106,16 @@ If you have a video that is doing a good job retaining the audience, then replic
 
 Knowing how to structure your video will allow you to be strategic as you build out your content.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **2\. Do Keyword Research:**
 
 Many viewers find YouTube videos via search, and if you aren’t using the appropriate keywords, then YouTube won’t be able to identify your content and display it for your viewers.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Where Do Keywords Appear on YouTube?**
 
@@ -140,10 +126,10 @@ Many viewers find YouTube videos via search, and if you aren’t using the appro
 **\- Descriptions:** Put important information and keywords at the beginning of the description so both searcher and the search engine understands what the video is about.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **Why Keywords Matter**
@@ -178,6 +164,13 @@ If you want to find some new keywords for your upcoming video, you will need to 
 
 ![ubersuggest](https://images.wondershare.com/filmora/ubersuggest.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Search volume:** The number of searches with that particular keyword. The higher the number the more popular it is. You should aim to use keywords with a high search volume.
 
 **Keyword competition score:** This score is usually indicated by a number and it represents how difficult it is for a keyword to rank due to other pages already ranking for that word or phrase. You want to find a keyword with a low competition score.
@@ -187,6 +180,13 @@ If you want to find some new keywords for your upcoming video, you will need to 
 **4\. Come Up With Content Related to Those Keywords:** To come up with topic ideas around a keyword, you can use a tool called [Answer the Public](https://answerthepublic.com/), which gives you all the most popular questions searched online.
 
 ![answer-the-public](https://images.wondershare.com/filmora/answer-the-public.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **3\. Engage Your Audience:**
 
@@ -236,6 +236,13 @@ If your format allows, go for a longer video instead of a shorter one. But the m
 
 ![add-videos-of-the-same-topic-to-a-playlist](https://images.wondershare.com/filmora/add-videos-of-the-same-topic-to-a-playlist.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### **Key Takeaways:**
 
 1. Use **Audience Retention** to better understand how to structure your video for the best results.
@@ -270,13 +277,6 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -300,19 +300,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ilencing-the-spotlight-avoiding-vloggers-fears/"><u>[New] Silencing the Spotlight Avoiding Vlogger's Fears</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-charting-the-course-for-youtube-keyword-mastery/"><u>[Updated] 2024 Approved Charting the Course for YouTube Keyword Mastery</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-your-ultimate-yt-shorts-companion/"><u>[Updated] 2024 Approved Your Ultimate YT Shorts Companion</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-ideal-approaches-to-stream-and-record-major-sports-games/"><u>[Updated] Ideal Approaches to Stream and Record Major Sports Games</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-directly-embedding-google-meet-in-youtubes-video-library/"><u>[Updated] In 2024, Directly Embedding Google Meet in YouTube's Video Library</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-setting-up-success-the-ultimate-instream-ad-guide-for-fb-users/"><u>[Updated] In 2024, Setting Up Success The Ultimate Instream Ad Guide for FB Users</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1-resolved-overcome-ifoproperties6-error-when-using-anydvd-for-dvd-ripping-tasks/"><u>1. Resolved: Overcome 'IfoProperties_6' Error When Using AnyDVD for DVD Ripping Tasks</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-critical-asmr-series-to-experience/"><u>2024 Approved Critical ASMR Series to Experience</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/decoding-technology-in-depth-analysis-by-tomn-hardware-experts/"><u>Decoding Technology: In-Depth Analysis by Tom'n Hardware Experts</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/enjoy-audio-excellence-and-plush-comfort-a-closer-look-at-the-rotibox-wireless-beanie-hat/"><u>Enjoy Audio Excellence and Plush Comfort - A Closer Look at the Rotibox Wireless Beanie Hat</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-ways-on-how-to-unlockbypassswiperemove-nubia-z50-ultra-fingerprint-lock-by-drfone-android/"><u>In 2024, Best Ways on How to Unlock/Bypass/Swipe/Remove Nubia Z50 Ultra Fingerprint Lock</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1723010131056-instant-fixes-accelerating-your-slow-google-chrome-in-no-time/"><u>Instant Fixes: Accelerating Your Slow Google Chrome in No Time!</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/streamyrecorder-your-simple-screen-recorder-for-windows-11-for-2024/"><u>StreamyRecorder Your Simple Screen Recorder for Windows 11 for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/p3-essentials-guide-10-online-converters-reviewed/"><u>The MP3 Essentials Guide #10 Online Converters Reviewed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xpert-picks-best-7-video-streaming-apps-to-take-your-youtube-game-upward-iosandroid/"><u>[New] Expert Picks Best 7 Video Streaming Apps to Take Your YouTube Game Upward (iOS/Android)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-splurge-audio-devices-for-yt-beginners/"><u>[New] No-Splurge Audio Devices for YT Beginners</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/haw-out-with-five-inviting-winterscapes-for-video-filming-for-2024/"><u>[New] Thaw Out with Five Inviting Winterscapes for Video Filming for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-mere-color-to-spectacle-hdr-vs-sdr-in-editing/"><u>[Updated] From Mere Color to Spectacle HDR vs SDR in Editing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-essential-steps-to-designing-exceptional-youtube-thumbnails/"><u>[Updated] In 2024, Essential Steps to Designing Exceptional YouTube Thumbnails</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-action-cam-battle-max-360-vs-hero-11-review/"><u>[Updated] Top Action Cam Battle Max 360 vs Hero 11 Review</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unleash-creativity-unlimited-samples-of-50-youtube-banners-for-free-for-2024/"><u>[Updated] Unleash Creativity Unlimited Samples of 50 YouTube Banners for Free for 2024</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/cfand/"><u>「CFカード情報損失防止&高速清算 - データ消去手順ガイド」</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-pioneers-in-the-realm-of-multimedia-synergy/"><u>2024 Approved Pioneers in the Realm of Multimedia Synergy</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-traversing-youtube-dialogue-pathways/"><u>2024 Approved Traversing YouTube Dialogue Pathways</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/apex-design-suite-assessment-for-2024/"><u>Apex Design Suite Assessment for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/al-approaches-to-extract-mp4-from-youtube-for-2024/"><u>Ethical Approaches to Extract MP4 From YouTube for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-samsung-galaxy-xcover-6-pro-tactical-edition-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Samsung Galaxy XCover 6 Pro Tactical Edition</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-5-simple-yet-powerful-strategies-to-skyrocket-your-youtube-views/"><u>In 2024, 5 Simple Yet Powerful Strategies to Skyrocket Your YouTube Views</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/lead-the-pack-identifying-the-best-facebook-timetabling-software/"><u>Lead the Pack Identifying the Best Facebook Timetabling Software</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/mastering-video-thumbnail-creation-for-maximum-clicks-for-2024/"><u>Mastering Video Thumbnail Creation for Maximum Clicks for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/reliable-start-up-essentials-dbpower-600a-peak-at-18k-mah-jump-starter-overview/"><u>Reliable Start-Up Essentials: DBPOWER 600A Peak at 18K mAh Jump Starter Overview</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Seamlessly Embedding YouTube Subtitles  An Easy-to-Follow Guide for 2024\""
-date: 2024-09-10T18:43:13.481Z
-updated: 2024-09-17T16:43:43.913Z
+date: 2024-10-13T16:46:20.006Z
+updated: 2024-10-15T16:18:39.522Z
 tags:
   - ai video
   - ai youtube
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/08f2c817ace11f52f69518bb589ba81c382ee3c50
 
  So, here we are going to show you two ways to add subtittles to video: directly or uploading caption or transcript files
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Adding subtitles and closed captions manually
 
  To add subtitles and closed captions to your YouTube video, fisrt, you should sign in to your YouTube account. On left right below 'Home' you will find 'My Channel'. It will direct you to your personal YouTube page. On the top, right next to your subscribers lays the 'Video manager', giving you the list of your uploaded videos.
@@ -57,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/08f2c817ace11f52f69518bb589ba81c382ee3c50
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
  An interruption might occur with appearing of subtitles in accordance with video. Hence a lot precision is required while doing so.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Uploading Caption or Transcript Files automatically
 
@@ -77,10 +91,16 @@ thumbnail: https://thmb.techidaily.com/08f2c817ace11f52f69518bb589ba81c382ee3c50
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3 Best Tools for add/managing video Subtitles/CC
@@ -100,16 +120,10 @@ thumbnail: https://thmb.techidaily.com/08f2c817ace11f52f69518bb589ba81c382ee3c50
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -131,5 +145,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/lassic-cinema-revisited-step-by-step-video-guide-for-2024/"><u>[New] Classic Cinema Revisited Step-by-Step Video Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-gain-currency-with-500-youtube-followers/"><u>[New] In 2024, Gain Currency with 500 YouTube Followers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-simple-steps-making-your-channels-subscription-button-stand-out/"><u>[Updated] In 2024, Simple Steps Making Your Channel's Subscription Button Stand Out</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-infinix-note-30-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Infinix Note 30 | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-tecno-camon-20-pro-5g-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Tecno Camon 20 Pro 5G Phone with Broken Screen</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-redefining-the-sony-s3700-video-experience/"><u>In 2024, Redefining the Sony S3700 Video Experience</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/secure-video-communication-made-simple-with-top-10-safe-apps-on-mobile-devices/"><u>Secure Video Communication Made Simple with Top 10 Safe Apps on Mobile Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/by-step-guide-mp3-to-youtube-live-streaming-3-phases/"><u>Step-By-Step Guide MP3 to YouTube Live Streaming [3 Phases]</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-7-budget-friendly-laptop-dvd-software-list/"><u>Top 7 Budget-Friendly Laptop DVD Software List</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/transformez-les-fichiers-wmv-en-haute-definition-mp4-avec-une-fidelite-garantie-de-98-aujourdhui-meme/"><u>Transformez Les Fichiers WMV en Haute Définition MP4 Avec Une Fidélité Garantie De 98%, Aujourd'hui Même</u></a></li>
+</ul></div>
 

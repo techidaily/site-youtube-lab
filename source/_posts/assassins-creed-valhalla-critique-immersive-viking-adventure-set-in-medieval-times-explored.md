@@ -1,7 +1,7 @@
 ---
 title: "Assassin’s Creed: Valhalla Critique: Immersive Viking Adventure Set in Medieval Times Explored"
-date: 2024-09-12T19:04:39.839Z
-updated: 2024-09-17T21:06:48.966Z
+date: 2024-10-08T21:45:26.499Z
+updated: 2024-10-16T02:35:17.006Z
 categories:
   - BestProducts
 description: "This Article Describes Assassin’s Creed: Valhalla Critique: Immersive Viking Adventure Set in Medieval Times Explored"
@@ -48,6 +48,13 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/mKaiRcg5xaWaOPRj0Ph1dRjUbSs=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_1LW4164252-1-e8b8c3eb31dd46e8a63e8e40a5a9d04b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
 
 [View On Amazon](https://www.amazon.com/7-Days-Die-PlayStation-4/dp/B01DPUVMNU/?tag=lifewire-onsite-prod-20&ascsubtag=4771121%7Cn6d0ad33beb4d40d5925c2a807d89db2412%7CB01DPUVMNU) [View On Gamestop.com](https://www.gamestop.com/video-games/playstation-4/games/products/7-days-to-die/10129841.html)
@@ -72,7 +79,27 @@ Lifewire / Rebecca Isaacs
 
 ![7 Days to Die](https://www.lifewire.com/thmb/MW5wYA5ujBjG5LdXn-w9bTJd5WQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-2-a59091cd21c04d99a42270199349fc2a.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Easy thanks to Steam**
 
@@ -83,6 +110,13 @@ Lifewire / Rebecca Isaacs
 ![7 Days to Die](https://www.lifewire.com/thmb/Eq0YCIdbj82yj3lOCWEdZS7jX6w=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-4-341174c3997543728bd2b024c6e2a309.jpg)
 
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Plot: Open world horror sandbox**
 
@@ -97,13 +131,6 @@ Lifewire / Rebecca Isaacs
  The other, titular part of the plot: every seven days, a zombie horde descends upon you. They know your location. They will find you and claw their way to you, and you have to fend yourself and your base from them. As the 7 days pass, they get harder to defeat. Our understanding is that the end goal of 7 Days is to add a story, but right now they’re focused on honing in general gameplay. We hope that the story will be optional since as a survival horror sandbox, it works very well.
 
 ![7 Days to Die](https://www.lifewire.com/thmb/U2XChOqkiQvFhP69V0cQ5mYcYME=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/1LW4164252-3-d19d9b4d19734cffb022d6e0db90382e.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -137,13 +164,6 @@ Lifewire / Rebecca Isaacs
 
  Because the graphics are a rather mixed bag, the frames per second (fps) can vary dramatically. We experienced drops as low as 18 fps when playing. When surrounded by a horde, that can cost you your life.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Platform: It’s complicated**
 
  7 Days to Die runs on many platforms:[PC](https://www.lifewire.com/what-is-a-mac-4155662) ,[PS4](https://www.lifewire.com/ps4-ps4-slim-and-ps4-pro-4154452) , and[Xbox 360](https://www.lifewire.com/xbox-360-buyers-guide-3562451) . We played 7 Days on PC, and at the time of writing, they released a teaser for the Alpha 18 update which would roll out to the PC version of the game.
@@ -151,10 +171,10 @@ Lifewire / Rebecca Isaacs
  Last time we checked, the company that owned all console rights, Telltale, went bust, and The Fun Pimps (the developer) were in legal limbo trying to reacquire their own rights. There’s a good chance that there will not be an update in the console versions of the game anytime soon as this issue makes its way through the courts. Therefore, we strongly recommend that you purchase the PC version if you decide this is a game you might like to try.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Average for an alpha game**
@@ -172,19 +192,6 @@ Lifewire / Rebecca Isaacs
  **If you love smart zombies, you’ll love this game.**
 
  Despite flaws in graphics, there’s a lot to love about 7 Days to Die. The challenging skill tree system and dangerous intelligent zombies add an element that’s not typically found in zombie shooters. If you want a game to commit to for hours on end, building bases and exploring dungeon-like homes while slaying zombie cheerleaders, then 7 Days to Die could be a fun way to ease some stress after a long day of work.
-
-<!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
 
@@ -217,5 +224,21 @@ Lifewire / Rebecca Isaacs
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-discovering-disconnected-users-in-social-network/"><u>[New] 2024 Approved Discovering Disconnected Users in Social Network</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-castwatch-inspection/"><u>[New] In 2024, CastWatch Inspection</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-steering-clear-of-mundane-channel-names-in-a-crowded-space/"><u>[New] In 2024, Steering Clear of Mundane Channel Names in a Crowded Space</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/augh-out-loud-essential-comedy-channels-for-endless-fun/"><u>[New] Laugh Out Loud Essential Comedy Channels for Endless Fun</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/evenue-sharing-explained-maximizing-profits-with-snippet-videos/"><u>[New] Revenue Sharing Explained Maximizing Profits with Snippet Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-advanced-techniques-for-mov-file-editing-in-win-11-for-2024/"><u>[Updated] Advanced Techniques for MOV File Editing in Win 11 for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-bringing-your-screens-to-life-with-camstudios-latest-tools/"><u>[Updated] Bringing Your Screens to Life with CamStudio's Latest Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-daring-dashes-olympic-short-track-highlights-2022-for-2024/"><u>[Updated] Daring Dashes Olympic Short Track Highlights, 2022 for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-enhancing-engagement-with-solutions-to-common-shorts-challenges-for-2024/"><u>[Updated] Enhancing Engagement with Solutions to Common Shorts Challenges for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/complete-set-of-macxdvd-professional-tools-unlocked-exclusive-limited-time-offer/"><u>Complete Set of MacXDVD Professional Tools Unlocked: Exclusive Limited-Time Offer</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-smart-8-pro-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Infinix Smart 8 Pro PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-samsung-galaxy-s23-ultra-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Samsung Galaxy S23 Ultra Phone without Any Data Loss</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-ultimate-tutorial-on-phantoms-reverse-recording/"><u>In 2024, The Ultimate Tutorial on Phantom's Reverse Recording</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-techniques-for-extracting-youtube-clip-sections/"><u>Proven Techniques for Extracting YouTube Clip Sections</u></a></li>
+</ul></div>
 

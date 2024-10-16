@@ -1,7 +1,7 @@
 ---
 title: "Perfect Shots Start With The Right Camera & Lens Selection"
-date: 2024-09-16T21:35:29.155Z
-updated: 2024-09-17T19:01:52.559Z
+date: 2024-10-13T03:16:31.272Z
+updated: 2024-10-15T22:17:10.183Z
 tags:
   - ai video
   - ai youtube
@@ -107,19 +107,33 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -141,13 +155,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -163,10 +170,10 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -188,5 +195,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-undo-history-rewinding-videos-on-apple-devices/"><u>[New] 2024 Approved Undo History Rewinding Videos on Apple Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/eterminants-of-youtube-video-prominence-and-success/"><u>[New] Determinants of YouTube Video Prominence and Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-best-3d-software-for-dynamic-youtube-intros/"><u>[New] In 2024, Best 3D Software for Dynamic YouTube Intros</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-best-web-microphones-at-a-glance/"><u>[New] In 2024, Best Web Microphones at a Glance</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nvestment-icons-top-15-youtube-stock-gurus/"><u>[New] Investment Icons Top 15 YouTube Stock Gurus</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ky-high-streamer-success-channel-growth-through-monetizing-every-device/"><u>[New] Sky-High Streamer Success Channel Growth Through Monetizing Every Device</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-the-comprehensive-list-of-vocal-alteration-apps/"><u>[New] The Comprehensive List of Vocal Alteration Apps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-unveiling-truth-understanding-youtubes-seo-keywords/"><u>2024 Approved Unveiling Truth Understanding YouTube's SEO Keywords</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/5-must-have-equipment-and-basic-software-to-start-vlogging-for-2024/"><u>5 Must-Have Equipment and Basic Software to Start Vlogging for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/discover-the-superiority-of-netgear-orbi-a-detailed-review-for-unmatched-wireless-performance/"><u>Discover the Superiority of Netgear Orbi - A Detailed Review for Unmatched Wireless Performance</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tial-guide-to-enhancing-youtube-content-post-upload-for-2024/"><u>Essential Guide to Enhancing YouTube Content Post-Upload for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-latest-canon-tr4520-series-drivers-on-your-desktop-computer-a-comprehensive-guide/"><u>Get the Latest Canon TR4520 Series Drivers on Your Desktop Computer: A Comprehensive Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/how-to-record-webcam-and-screen-simultaneously-for-2024/"><u>How to Record Webcam and Screen Simultaneously for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-best-practices-boosting-your-game-videos-with-tags/"><u>In 2024, Best Practices Boosting Your Game Videos with Tags</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-diy-dynamics-unlock-creative-animation-potential/"><u>In 2024, DIY Dynamics Unlock Creative Animation Potential</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-apple-iphone-13-mini-location-on-twitter-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change your Apple iPhone 13 mini Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-partner-filmmaking-for-channelnode-increase-strategies/"><u>In 2024, Partner Filmmaking for Channelnode Increase Strategies</u></a></li>
+</ul></div>
 

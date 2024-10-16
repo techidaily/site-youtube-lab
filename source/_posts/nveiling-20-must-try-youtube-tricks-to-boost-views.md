@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unveiling 20 Must-Try YouTube Tricks to Boost Views\""
-date: 2024-10-03T16:01:52.279Z
-updated: 2024-10-09T19:16:02.539Z
+date: 2024-10-14T16:09:33.775Z
+updated: 2024-10-15T17:42:44.054Z
 tags:
   - ai video
   - ai youtube
@@ -38,10 +38,10 @@ With that said, the following two-columned tables give you detailed information 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 1: YouTube Playback Hotkeys
@@ -52,6 +52,13 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -71,6 +78,13 @@ This section talks about the shortcut keys to skim the video forward and backwar
 If you’re watching videos on YouTube mobile app, you can use double-tap on the right side of the video player to skip 10 seconds forward, and double-tap on the left side of the video player to skip the video 10 seconds backward. Every double-tap forwards/rewinds the video in 10-seconds increments. E.g., Tapping 6 times on the right skips the video 30 seconds forward. Tapping 6 times on the left skips the video 30 seconds backward.
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 3: Manage Playback Speed
 
@@ -103,13 +117,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -124,13 +131,6 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -142,6 +142,13 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Numpad)   | Zoom out                                              |
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
@@ -165,13 +172,6 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -193,22 +193,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/hannel-success-story-turning-budget-into-brands-for-2024/"><u>[New] Channel Success Story Turning Budget Into Brands for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-cutting-edge-content-summit/"><u>[New] In 2024, Cutting-Edge Content Summit</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-in-2024-image-innovation-at-its-peak-8-leaders-in-photogridding/"><u>[New] In 2024, Image Innovation at Its Peak 8 Leaders in Photogridding</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nnovating-mukbang-content-with-fresh-creative-ideas/"><u>[New] Innovating Mukbang Content with Fresh, Creative Ideas</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-audio-ambition-selecting-top-6-free-downloader-apps-from-youtube-vaults/"><u>[Updated] 2024 Approved Audio Ambition Selecting Top 6 Free Downloader Apps From YouTube Vaults</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-blueprint-producing-purposeful-life-exploration-broadcasts/"><u>[Updated] 2024 Approved Blueprint Producing Purposeful Life Exploration Broadcasts</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-sharing-strategies-maximize-video-impact-from-youtube-to-facebook/"><u>[Updated] 2024 Approved Sharing Strategies Maximize Video Impact From YouTube to Facebook</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-budget-friendly-ultra-panoramic-video-cameras/"><u>2024 Approved Budget-Friendly Ultra-Panoramic Video Cameras</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-enhance-your-content-filmmaking-for-youtube-trailers-with-filmora/"><u>2024 Approved Enhance Your Content Filmmaking for YouTube Trailers with Filmora</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/sy-to-follow-guide-to-applying-cc-license-types/"><u>An Easy-to-Follow Guide to Applying CC License Types</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/tless-keyword-harvesting-explore-the-best-7-no-fee-tag-extractors/"><u>Effortless Keyword Harvesting Explore the Best 7 No-Fee Tag Extractors</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-to-speak-directly-with-rtx-ai-on-your-system/"><u>How to Speak Directly with RTX AI on Your System</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-a-network-locked-tecno-spark-10-4g-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Tecno Spark 10 4G Phone?</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-innovative-approaches-to-keeping-your-snaps-connected/"><u>In 2024, Innovative Approaches to Keeping Your Snaps Connected</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/master-your-star-wars-movie-marathon-the-perfect-viewing-order-on-disneyplus/"><u>Master Your 'Star Wars' Movie Marathon: The Perfect Viewing Order on Disney+</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/peak-psd-gradient-innovations-for-2024/"><u>Peak PSD Gradient Innovations for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/quick-tips-enabling-instant-logon-feature-for-windows-users/"><u>Quick Tips: Enabling Instant Logon Feature for Windows Users</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-peak-craft-studio-25-overview/"><u>[New] 2024 Approved Peak Craft Studio 25 Overview</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-comprehensive-walkthrough-setting-up-your-first-wirecast-livestream-to-youtube/"><u>[New] A Comprehensive Walkthrough Setting Up Your First WireCast Livestream to Youtube</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-skyrocket-likes-and-views-on-your-tiktok-unboxings/"><u>[New] How to Skyrocket 'Likes' And Views on Your TikTok Unboxings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nmatched-convert-experience-premier-online-ytvideo-tools/"><u>[New] Unmatched Convert Experience Premier Online YTVideo Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-distinctive-digital-monikers-for-video-creators/"><u>[Updated] 2024 Approved Distinctive Digital Monikers for Video Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-your-guide-to-making-millions-on-youtube-from-novice-to-big-earnings/"><u>[Updated] 2024 Approved Your Guide to Making Millions on YouTube From Novice to Big Earnings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-decoding-youtubes-thumbnail-impact-on-traffic/"><u>[Updated] Decoding YouTube's Thumbnail Impact on Traffic</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-maximizing-youtube-visibility-with-key-hashtags-for-2024/"><u>[Updated] Maximizing YouTube Visibility with Key #Hashtags for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-the-brisk-blueprint-to-crafting-google-image-mosaics-for-2024/"><u>[Updated] The Brisk Blueprint to Crafting Google Image Mosaics for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-your-complete-breakdown-of-youtube-short-content-for-2024/"><u>[Updated] Your Complete Breakdown of YouTube Short Content for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-in-depth-review-of-budget-friendly-clouds/"><u>2024 Approved In-Depth Review of Budget-Friendly Clouds</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-strategies-for-watching-multiple-youtube-videos/"><u>2024 Approved Strategies for Watching Multiple YouTube Videos</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/beginner-friendly-steps-setting-up-a-vpn-connection-on-your-apple-tv/"><u>Beginner-Friendly Steps: Setting up a VPN Connection on Your Apple TV</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-oppo-find-x6-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Oppo Find X6 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-realme-narzo-60x-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Realme Narzo 60x 5G without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/memelores-premier-10-templates-for-2024/"><u>Memelore's Premier 10 Templates for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/water-management/"><u>Water Management</u></a></li>
 </ul></div>
 

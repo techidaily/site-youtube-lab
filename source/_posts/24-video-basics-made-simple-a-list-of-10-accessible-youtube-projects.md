@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Video Basics Made Simple  A List of 10 Accessible YouTube Projects\""
-date: 2024-10-05T19:33:26.897Z
-updated: 2024-10-09T16:32:55.360Z
+date: 2024-10-09T18:14:05.635Z
+updated: 2024-10-16T01:51:28.321Z
 tags:
   - ai video
   - ai youtube
@@ -53,10 +53,10 @@ Let the world know who you are and what you do. If you are planning on starting 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Vlog About Your Day
@@ -79,13 +79,6 @@ Everywhere around you, there are items you can review. The Apple Watch and the l
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5\. Your Favorite Songs / Movies / Etc
 
 Are you a Tarantino fan? Why not? When you are struggling to find inspiration for your videos, just think about the things you like. Your subscribers are interested in you, so they’ll be interested in knowing about your favorite movies or music albums. Books, movies, and music are an inexhaustible source of fresh ideas because there is always a new song or a film you can talk about in your video.
@@ -93,10 +86,10 @@ Are you a Tarantino fan? Why not? When you are struggling to find inspiration fo
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016165/19272" target="_top" id="2016165">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016165" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016165/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. What’s on Your Phone?
@@ -106,10 +99,16 @@ There were over two billion smartphone users worldwide in 2017, and this number 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 7\. Make a Slideshow
@@ -129,6 +128,13 @@ YouTube channels that feature tutorials often have millions of followers, becaus
 Being open is important, so why not share 10 things about yourself you think your audience would find interesting or which you think are important for people to know. The top 10 things structure is often used in YouTube videos because it provides a clear rhythm to a video clip, and it enables you to gradually increase the tension as the video progresses.
 
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 10\. Video Rant
 
@@ -167,19 +173,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-decoding-the-mystery-of-where-are-my-youtube-comments/"><u>[New] Decoding the Mystery of Where Are My YouTube Comments?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-unlock-the-full-potential-of-your-videos-on-instagram-platform/"><u>[New] In 2024, Unlock the Full Potential of Your Videos on Instagram Platform</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-ultimate-blueprint-for-branding-success-on-snapchat/"><u>[Updated] 2024 Approved The Ultimate Blueprint for Branding Success on SnapChat</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-responding-to-criticism-with-confidence-on-youtube/"><u>[Updated] In 2024, Responding to Criticism with Confidence on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-superior-streaming-recorders-for-youtube-vloggers/"><u>[Updated] Superior Streaming Recorders for YouTube Vloggers</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-flawless-image-reader-with-quick-access/"><u>2024 Approved Flawless Image Reader with Quick Access</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-leading-vr-game-experts-you-cant-miss/"><u>2024 Approved Leading VR Game Experts You Can't Miss</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-seamless-youtube-editing-the-ultimate-finalcut-pro-guidebook/"><u>2024 Approved Seamless YouTube Editing The Ultimate FinalCut Pro Guidebook</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ating-the-index-youtube-seo-tools-that-work-for-2024/"><u>Dominating the Index YouTube SEO Tools That Work for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-do-you-play-mov-files-on-xiaomi-13t-pro-by-aiseesoft-video-converter-play-mov-on-android/"><u>How do you play .mov files on Xiaomi 13T Pro ?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-photos-from-asus-by-fonelab-android-recover-photos/"><u>How to Rescue Lost Photos from Asus ?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-finding-the-perfect-video-dimensions-on-facebook/"><u>In 2024, Finding the Perfect Video Dimensions on Facebook</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ize-views-the-art-of-timestamp-integration-on-youtube-for-2024/"><u>Maximize Views The Art of Timestamp Integration on YouTube for 2024</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/top-methods-for-converting-your-dvd-videots-into-mp4-format/"><u>Top Methods for Converting Your DVD VIDEO_TS Into MP4 Format</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-perfecting-your-recording-setup-pc-and-macs-best-software/"><u>[New] 2024 Approved Perfecting Your Recording Setup PC and Mac's Best Software</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-imaginedge-coder/"><u>[New] ImaginEdge Coder</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-your-pathway-to-a-clutter-free-device-with-video-deletion-tips/"><u>[New] In 2024, Your Pathway to a Clutter-Free Device with Video Deletion Tips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-essential-11-zero-cost-youtube-moniker-makers/"><u>[Updated] 2024 Approved Essential 11 Zero-Cost YouTube Moniker Makers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/66794225-updated-2024-approved-how-to-become-a-youtube-partner-you-need-10000-views-now/"><u>[Updated] 2024 Approved How to Become a YouTube Partner - You Need 10,000 Views Now!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-instant-adjustment-match-youtube-to-mac-aspects/"><u>[Updated] 2024 Approved Instant Adjustment Match YouTube to Mac Aspects</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-turning-viewers-into-cash-a-youtube-advertising-primer/"><u>[Updated] In 2024, Turning Viewers Into Cash A YouTube Advertising Primer</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-making-the-leap-set-up-a-sports-vlog-on-macos-for-2024/"><u>[Updated] Making the Leap Set Up a Sports Vlog on macOS for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-scalable-earnings-via-youtube-beauty-channels-for-2024/"><u>[Updated] Scalable Earnings via YouTube Beauty Channels for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-taking-the-leap-secrets-for-free-fcp-acquisition/"><u>2024 Approved Taking the Leap Secrets for Free FCP Acquisition</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-honor-magic-6-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Honor Magic 6 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://media-tips.techidaily.com/1723620218630-effortlessly-convert-your-mkv-videos-into-avi-for-free-top-techniques-explored/"><u>Effortlessly Convert Your MKV Videos Into AVI for Free - Top Techniques Explored</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-poco-m6-pro-4g-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Poco M6 Pro 4G to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rless-vs-dslr-video-mastery-in-focus-for-2024/"><u>Mirrorless vs DSLR Video Mastery in Focus for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-doors-creating-an-account-on-youtube/"><u>Opening Doors Creating an Account on YouTube</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722968635485-streamline-your-surface-books-experience-with-quick-driver-downloads-and-updates/"><u>Streamline Your Surface Book's Experience with Quick Driver Downloads and Updates</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722996334433-the-deathloop-glitch-on-desktops-is-now-fixed-what-you-need-to-know/"><u>The Deathloop Glitch on Desktops Is Now Fixed – What You Need to Know</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-power-of-social-media-engage-on-facebook-tweet-on-twitter-post-on-instagram-stream-on-youtube/"><u>The Power of Social Media: Engage on Facebook, Tweet on Twitter, Post on Instagram, Stream on Youtube</u></a></li>
+<li><a href="https://review-topics.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Infinix Note 30 5G | Dr.fone</u></a></li>
 </ul></div>
 
