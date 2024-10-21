@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Roadmap to Making Money with Personal Videos"
-date: 2024-10-08T22:25:26.838Z
-updated: 2024-10-15T20:56:48.410Z
+date: 2024-10-14T16:20:44.706Z
+updated: 2024-10-21T16:01:21.954Z
 tags:
   - ai video
   - ai youtube
@@ -58,59 +58,13 @@ So you've started filming videos on YouTube vlogs, but why aren't you making any
 
 ![target audience](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-3.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 So, let's be honest; most vloggers focus on the wrong audience. Most vloggers think they're not making money because they haven't figured out the right audience for their videos. But the reason why most vloggers aren't making money is that the majority of their audience is just not interested in them. It seems strange to say it, but when it comes down to it, most vloggers they're trying to appeal to the wrong type of people.
-
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### What problems am I solving?
 
 ![problem solving](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 It seems that more and more vloggers are doing videos today. However, so many vloggers aren't making money because they are trying to solve problems that no one wants to hear about! Make videos on the problem many people want to know about; they will want to see what you are saying—resulting in more views and money.
-
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### What solutions am I offering? Are these solutions both financially viable for you and in line with the needs of your target audience?
 
@@ -137,13 +91,6 @@ And to do that, you must try [Wondershare Filmora](https://tools.techidaily.com/
 **[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 ![wondershare filmora 11](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 This game-changing editor helps you create amazing videos by offering effects and features designed explicitly for Youtube videos.
 
@@ -208,6 +155,13 @@ Vloggers also use their videos to demonstrate how a product should be used and a
 
 ![youtube affiliate marketing](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Affiliate marketing is another form of monetization for online video bloggers. In affiliate marketing, bloggers earn commissions by referring traffic to affiliate products through affiliate links. The goal of affiliate marketing is to drive sales and build a sustainable source of revenue, whether it's through Amazon, Google, or other platforms.
 
 ### Patreon
@@ -215,6 +169,13 @@ Affiliate marketing is another form of monetization for online video bloggers. I
 ![support on patreon](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-9.jpg)
 
 Patreon is another option, and if done correctly, it can turn a niche blog into a revenue source, which is great for bloggers and vloggers alike. By creating a Patreon account, you are allowing people to donate money to help support your content creation. In return, you offer rewards to supporters of your channel. Rewards could include extra content, merchandise, access to private forums, or even free ebooks.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Sell your service or products
 
@@ -242,13 +203,6 @@ Here are the top 10 highest paid vloggers on YouTube, according to Forbes:
 | 10\. Preston Arsement | 20 million        |
 
 ## Hot FAQs on How To Start a Vlog and Make Money
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Is daily vlogging worth it?
 
@@ -278,11 +232,32 @@ Part 1: Why Can’t I Make Money Through My Vlog?
 
 So you've started filming videos on YouTube vlogs, but why aren't you making any money from them? Is it something you can change? Let's look at some common reasons why vloggers aren't making any income and figure out how to get around them.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Who is my target audience?
 
 ![target audience](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 So, let's be honest; most vloggers focus on the wrong audience. Most vloggers think they're not making money because they haven't figured out the right audience for their videos. But the reason why most vloggers aren't making money is that the majority of their audience is just not interested in them. It seems strange to say it, but when it comes down to it, most vloggers they're trying to appeal to the wrong type of people.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What problems am I solving?
 
@@ -315,13 +290,6 @@ And to do that, you must try [Wondershare Filmora](https://tools.techidaily.com/
 **[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 ![wondershare filmora 11](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 This game-changing editor helps you create amazing videos by offering effects and features designed explicitly for Youtube videos.
 
@@ -370,6 +338,19 @@ We've seen so much misinformation about how to make money via vlogging. This mak
 
 ![youtube advertising](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-6.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ad revenue comes from advertisers who pay to show their brand message across the top of the video. Advertisers choose which ads are displayed, so don't let a video with few views make you think you can't make money with your videos. The key is to monetize your content and become eligible for Youtube ads.
 
 According to Google, a publisher (Youtuber) will get 68% of ad revenue. An advertiser's actual rate varies, but it averages almost $0.18\. That means that for every 1000 ad views, a vlogger will receive $18.
@@ -381,13 +362,6 @@ According to Google, a publisher (Youtuber) will get 68% of ad revenue. An adver
 While the vlogger market is still young, brands are starting to recognize its enormous potential for brand recognition, building a community, and engaging with current and potential customers.
 
 Vloggers also use their videos to demonstrate how a product should be used and answer questions about the brand, its products, and services. As well as they will often provide some insight into a product or service through creative storytelling.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Affiliate Marketing
 
@@ -404,6 +378,13 @@ Patreon is another option, and if done correctly, it can turn a niche blog into 
 ### Sell your service or products
 
 ![sell products or services](https://images.wondershare.com/filmora/article-images/2022/11/how-to-start-a-vlog-and-make-money-10.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925489/19272" target="_top" id="1925489">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925489/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 With over 1 billion monthly active users, there's an opportunity for content creators to make money by selling their products or services. You could sell your physical products to your audience as a vlogger. The best method this can be done is by creating an online store that sells T-shirts and mugs with your branding. Make sure those products must be related to your niche or channel category. As for services, you could also offer tips on improving your life, starting an online business, or even becoming a successful Youtuber!
 
@@ -433,6 +414,13 @@ Here are the top 10 highest paid vloggers on YouTube, according to Forbes:
 Yes, daily vlogs are the perfect way to establish yourself as an online expert if you think of it as a business. With the right strategy, there is no doubt that starting daily vlogs will be worthwhile for your business.
 
 However, many vloggers have found that it isn't easy to stick to the routine. You may start losing quality, and as a result, your daily vlogs performance degrades. This can be a frustrating experience for you, so you must consider this before embarking on a daily vlogging project.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. What is the best topic for vlogging?
 
@@ -473,20 +461,24 @@ So, in summary, if you want to become a vlogger, you will need to figure out how
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/0-tips-to-make-your-youtube-shorts-channels-stand-out-for-2024/"><u>[New] 10 Tips to Make Your YouTube Shorts Channels Stand Out for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-evaluating-rapid-subscriptions-impact-on-video-engagement/"><u>[New] 2024 Approved Evaluating Rapid Subscription's Impact on Video Engagement</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-fast-fortnite-cover-art-techniques/"><u>[New] 2024 Approved Fast Fortnite Cover Art Techniques</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-implementing-youtubes-custom-markup-guide/"><u>[New] 2024 Approved Implementing YouTube's Custom Markup Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-reel-it-in-pro-level-techniques-for-youtube-video-editors/"><u>[New] 2024 Approved Reel It In Pro-Level Techniques for YouTube Video Editors</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-top-2024-general-facts-challenge-videos/"><u>[Updated] Top 2024 General Facts Challenge Videos</u></a></li>
-<li><a href="https://program-issues.techidaily.com/cyberpunk-2077-hits-major-setback-unraveling-the-mystery-behind-error-2024/"><u>Cyberpunk 2077 Hits Major Setback: Unraveling the Mystery Behind Error 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/customization-free-youtube-visual-templates-for-2024/"><u>Easy Customization Free YouTube Visual Templates for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-youtube-shorts-not-showing-up-for-2024/"><u>Fixed YouTube Shorts Not Showing Up for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-full-guide-to-apple-iphone-11-pro-max-icloud-bypass-by-drfone-ios/"><u>In 2024, Full guide to Apple iPhone 11 Pro Max iCloud Bypass</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-videopilot-hd-snapshot-guide/"><u>In 2024, VideoPilot HD Snapshot Guide</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/installing-the-latest-wireless-network-drivers-for-optimal-performance-on-windows-11-and-10/"><u>Installing the Latest Wireless Network Drivers for Optimal Performance on Windows 11 & 10</u></a></li>
-<li><a href="https://techidaily.com/recover-apple-iphone-xs-data-from-ios-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone XS Data From iOS iCloud | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-length-amplify-impact-youtube-video-editing-for-2024/"><u>Slash Length, Amplify Impact YouTube Video Editing for 2024</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/swift-uninstallation-for-graphics-drivers-in-windows/"><u>Swift Uninstallation for Graphics Drivers in Windows</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/emystifying-video-profit-on-youtube/"><u>[New] Demystifying Video Profit on YouTube</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/1715860867872-new-easy-gaming-memories-start-recording-now/"><u>[New] Easy Gaming Memories Start Recording Now!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-free-10-best-intro-maker-apps-for-iphone-and-android/"><u>[New] In 2024, FREE 10 Best Intro Maker Apps for iPhone and Android</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-instant-guide-image-to-thumbnail-magic-for-your-youtube-channel/"><u>[New] In 2024, Instant Guide Image-To-Thumbnail Magic for Your YouTube Channel</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-cutting-edge-techniques-elevating-your-youtube-edits-using-imovie/"><u>[Updated] 2024 Approved Cutting-Edge Techniques Elevating Your YouTube Edits Using iMovie</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-top-6-unique-sources-for-premium-youtube-imagery/"><u>[Updated] 2024 Approved Top 6 Unique Sources for Premium YouTube Imagery</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-buy-subscribers-wisely-watch-your-numbers-soar/"><u>[Updated] In 2024, Buy Subscribers Wisely, Watch Your Numbers Soar!</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-elevate-your-lenovo-experience-with-advanced-capture-methods/"><u>[Updated] In 2024, Elevate Your Lenovo Experience with Advanced Capture Methods</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-making-an-impact-integrating-individual-thumbnails-in-videos/"><u>[Updated] In 2024, Making an Impact Integrating Individual Thumbnails in Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-million-view-achievement-and-its-monetary-benefit/"><u>[Updated] In 2024, Million View Achievement and Its Monetary Benefit</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-scale-up-your-youtube-audience-by-the-hundredfold/"><u>[Updated] In 2024, Scale Up Your YouTube Audience by the Hundredfold</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-speedy-file-assessment-on-windows-pcs/"><u>[Updated] Speedy File Assessment on Windows PCs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-final-touch-youtube-outro-essentials-plus-premier-creator-list/"><u>2024 Approved The Final Touch YouTube Outro Essentials + Premier Creator List</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-analysis-of-spider-man-miles-morales-narrow-scope-delivers-grand-effect/"><u>Comprehensive Analysis of Spider-Man: Miles Morales - Narrow Scope Delivers Grand Effect</u></a></li>
+<li><a href="https://article-posts.techidaily.com/enhancing-audio-quality-on-spotify-quickly-and-safely/"><u>Enhancing Audio Quality on Spotify Quickly & Safely</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/fixing-the-missing-ftd2xxdll-file-comprehensive-troubleshooting-tips/"><u>Fixing the 'Missing' ftd2XX.dll File - Comprehensive Troubleshooting Tips</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-photoshops-handy-hacks-for-horizontal-and-vertical-warping/"><u>In 2024, Photoshop's Handy Hacks for Horizontal and Vertical Warping</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-5-best-tv-for-ps5-and-xbox-series-x-updated-july-for-2024/"><u>Top 5 Best TV for Ps5 and Xbox Series X (Updated July) for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-divx-video-editing-made-easy-top-free-cutting-tools-for-2024/"><u>Updated Divx Video Editing Made Easy Top Free Cutting Tools for 2024</u></a></li>
 </ul></div>
 

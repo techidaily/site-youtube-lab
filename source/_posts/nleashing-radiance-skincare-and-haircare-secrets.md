@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unleashing Radiance  Skincare and Haircare Secrets\""
-date: 2024-10-11T17:22:15.639Z
-updated: 2024-10-15T17:33:42.848Z
+date: 2024-10-20T17:49:33.833Z
+updated: 2024-10-21T17:16:11.875Z
 tags:
   - ai video
   - ai youtube
@@ -63,10 +63,10 @@ Another way you could find a niche is by taking on a specific area of interest, 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Types of Beauty Videos – Your Content Strategy**
@@ -128,6 +128,19 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -165,26 +178,27 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983584">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Lighting for Beauty**
 
@@ -199,13 +213,6 @@ There are, however, some reasons you might want additional light:
 If you only have a ring light/front light then you may end up looking like you’re surrounded by shadows. If you want more light for your space you can use windows, household lamps, or professional video lights like softboxes or LED panels.
 
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
 
@@ -248,10 +255,10 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Build Your Own Diva Ring Light**
@@ -281,13 +288,6 @@ This is your ring light. Continue to step 5 if you want it to have a stand (you 
 
 **_Step 5:_** Fasten your ring light tightly to your paper towel stand securely with several zip ties. Make sure to fasten it at the bottom (where the excess rope light is coming out of your ring light). Cut off the tails of the zip ties.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **How to Make a Makeup Tutorial – Before You Start**
 
 Before you start recording your makeup tutorial there are a few things you should do.
@@ -298,13 +298,6 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -313,6 +306,13 @@ Here are some things to keep in mind while you record your makeup tutorial:
 If you’re using autofocus, you can hold products up to the screen and wait for it to kick in. If you’re not using autofocus, just hold them up next to you for a moment. You can also shoot separate closeups of each product and cut them into your main tutorial video.
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – After Shooting**
 
@@ -351,24 +351,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-an-in-depth-look-at-video-apps-for-iphone-and-android-users/"><u>[New] 2024 Approved An In-Depth Look at Video Apps for iPhone & Android Users</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-crafting-the-perfect-schedule-for-jobs-and-youtube/"><u>[New] 2024 Approved Crafting the Perfect Schedule for Jobs & YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-from-raw-to-refined-youtube-thumbnail-creation-for-mobile-users/"><u>[New] 2024 Approved From Raw to Refined YouTube Thumbnail Creation for Mobile Users</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-mix-magic-how-to-download-top-dj-content/"><u>[New] 2024 Approved Mix Magic How to Download Top DJ Content</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-best-adblock-apps-for-android/"><u>[New] 7 Best AdBlock Apps for Android</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-unleash-creativity-through-iphones-top-10-visual-arrangement-techniques/"><u>[Updated] Unleash Creativity Through iPhone's Top 10 Visual Arrangement Techniques</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-vivo-y200e-5g-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Vivo Y200e 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-411-on-navigating-youtube-shorts/"><u>2024 Approved The 411 on Navigating YouTube Shorts</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/astuce-acceder-a-la-partition-de-sauvegarde-masquee-sous-windows-guide-complet/"><u>Astuce : Accéder À La Partition De Sauvegarde Masquée Sous Windows - Guide Complet</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/digiartys-ultimate-dvd-ripper-secure-your-final-user-license-agreement-now/"><u>Digiarty's Ultimate DVD Ripper: Secure Your Final User License Agreement Now!</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-by-frame-the-smartphone-storytellers-path-to-youtubes-thumbnails/"><u>Frame by Frame The Smartphone Storyteller's Path to YouTubes Thumbnails</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Life360 Circle Everything You Need to Know On Apple iPhone 11 Pro | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-top-10-tips-for-mastering-magix-video-pro-x/"><u>In 2024, Top 10 Tips for Mastering Magix Video Pro X</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-substitutes-that-shook-up-my-world-7-choices/"><u>Movie Substitutes That Shook Up My World - #7 Choices</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-start-to-youtube-success-creating-business-and-personal-channels-on-phone/"><u>Quick Start to YouTube Success Creating Business & Personal Channels on Phone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/smooth-start-gradual-appearance/"><u>Smooth Start Gradual Appearance</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/step-by-step-tutorial-activating-windows-11s-system-shield-and-safeguards/"><u>Step-by-Step Tutorial: Activating Windows 11'S System Shield and Safeguards</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Vivo V29 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-in-motion-a-guide-to-lively-animation-methods-for-2024/"><u>Words in Motion A Guide to Lively Animation Methods for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-discover-the-secret-to-friends-livestream-participation/"><u>[New] Discover the Secret to Friend's Livestream Participation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-gamers-path-to-earnings-on-youtube/"><u>[New] In 2024, Gamer's Path to Earnings on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-streamlining-access-to-subscriber-information/"><u>[New] In 2024, Streamlining Access to Subscriber Information</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-make-my-video-perfectly-fit-instagram-in-2024/"><u>[New] Make My Video Perfectly Fit Instagram, In 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ransform-your-view-exclusive-alternative-video-websites/"><u>[New] Transform Your View Exclusive Alternative Video Websites</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-accelerate-your-channel-growth-affordable-subscribers-available/"><u>[Updated] 2024 Approved Accelerate Your Channel Growth - Affordable Subscribers Available</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unveiling-youtubes-mechanism-post-upload/"><u>[Updated] 2024 Approved Unveiling YouTube's Mechanism Post-Upload</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-easy-in-getting-vrecorder-on-your-pc-for-2024/"><u>[Updated] Easy In Getting VRecorder on Your PC for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-review-high-cost-yet-user-friendly-mophie-powerstation-ac-charger-unveiled/"><u>Comprehensive Review: High-Cost Yet User-Friendly Mophie Powerstation AC Charger Unveiled</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-vivo-s18e-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Vivo S18e to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-perfect-sources-for-dj-template-video-downloads/"><u>In 2024, Perfect Sources for DJ Template Video Downloads</u></a></li>
+<li><a href="https://windows11.techidaily.com/integrate-bandwidth-status-into-windows-shell/"><u>Integrate Bandwidth Status Into Windows Shell</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ring-youtube-link-building-strategies/"><u>Mastering YouTube Link-Building Strategies</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-pc-spontaneous-reboot-incident/"><u>Windows PC: Spontaneous Reboot Incident</u></a></li>
+<li><a href="https://win-forum.techidaily.com/m4a-swfmovavi/"><u>オンラインで無料: M4A SWFフォーマット間の変換ソリューションを見つけるためにMovavi</u></a></li>
 </ul></div>
 

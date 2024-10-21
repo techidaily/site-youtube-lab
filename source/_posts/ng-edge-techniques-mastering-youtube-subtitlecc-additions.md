@@ -1,7 +1,7 @@
 ---
 title: "\"Cutting-Edge Techniques  Mastering YouTube Subtitle/CC Additions\""
-date: 2024-09-14T16:43:17.331Z
-updated: 2024-09-17T20:06:47.848Z
+date: 2024-10-19T16:40:32.157Z
+updated: 2024-10-21T16:30:21.696Z
 tags:
   - ai video
   - ai youtube
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/795e21b2952dac96e4f9316f33c867f4d5e9a26e7
 
  So, here we are going to show you two ways to add subtittles to video: directly or uploading caption or transcript files
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Adding subtitles and closed captions manually
 
  To add subtitles and closed captions to your YouTube video, fisrt, you should sign in to your YouTube account. On left right below 'Home' you will find 'My Channel'. It will direct you to your personal YouTube page. On the top, right next to your subscribers lays the 'Video manager', giving you the list of your uploaded videos.
@@ -57,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/795e21b2952dac96e4f9316f33c867f4d5e9a26e7
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
  An interruption might occur with appearing of subtitles in accordance with video. Hence a lot precision is required while doing so.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Uploading Caption or Transcript Files automatically
 
@@ -77,16 +91,10 @@ thumbnail: https://thmb.techidaily.com/795e21b2952dac96e4f9316f33c867f4d5e9a26e7
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3 Best Tools for add/managing video Subtitles/CC
@@ -106,16 +114,10 @@ thumbnail: https://thmb.techidaily.com/795e21b2952dac96e4f9316f33c867f4d5e9a26e7
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -137,5 +139,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-youtubings-endgame-secrets-from-top-creators-and-templates/"><u>[New] In 2024, YouTubing's Endgame Secrets From Top Creators and Templates</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-definitive-guide-to-choosing-the-best-webcam-for-your-youtube-channel-for-2024/"><u>[New] The Definitive Guide to Choosing the Best Webcam for Your YouTube Channel for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-boosting-youtube-ad-revenue-keeping-cc-active/"><u>[Updated] In 2024, Boosting YouTube Ad Revenue Keeping CC Active</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-premium-content-at-a-low-price-the-ultimate-list-of-free-intros-makers/"><u>[Updated] In 2024, Premium Content at a Low Price The Ultimate List of Free Intros Makers</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-ultimate-high-quality-capture-software-pcmac/"><u>[Updated] In 2024, Ultimate High-Quality Capture Software, PC/Mac</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-chuckling-chords-and-clever-cuts-10-parody-classics/"><u>2024 Approved Chuckling Chords & Clever Cuts 10 Parody Classics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-up-your-video-quality-issues-for-2024/"><u>Clearing Up Your Video Quality Issues for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/elevate-your-metaverse-experience-expert-tips-on-avatar-creation/"><u>Elevate Your Metaverse Experience Expert Tips on Avatar Creation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-review-unveiling-the-benefits-and-features-of-the-updated-amazon-kindle-paperwhite-2018-model/"><u>Expert Review: Unveiling the Benefits and Features of the Updated Amazon Kindle Paperwhite (2018 Model)</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-messages-from-honor-magic-6-pro-by-fonelab-android-recover-messages/"><u>How to Rescue Lost Messages from Honor Magic 6 Pro</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-vivo-y36i-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Vivo Y36i Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-from-concept-to-cinematic-the-art-of-creating-memorable-tiktoks-with-templates/"><u>In 2024, From Concept to Cinematic The Art of Creating Memorable TikToks with Templates</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ative-strategies-for-hosting-zero-cost-online-courses-for-2024/"><u>Innovative Strategies for Hosting Zero-Cost Online Courses for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/reasons-why-pokemon-gps-does-not-work-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>Reasons why Pokémon GPS does not Work On OnePlus Ace 3? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-ultimate-comparison-of-face-editing-for-iphonesandroid/"><u>The Ultimate Comparison of Face-Editing for iPhones/Android</u></a></li>
+</ul></div>
 

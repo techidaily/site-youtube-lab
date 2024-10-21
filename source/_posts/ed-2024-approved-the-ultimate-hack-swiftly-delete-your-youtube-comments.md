@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Ultimate Hack  Swiftly Delete Your YouTube Comments\""
-date: 2024-10-14T00:05:20.700Z
-updated: 2024-10-16T02:52:06.356Z
+date: 2024-10-19T17:09:53.177Z
+updated: 2024-10-21T16:07:32.765Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -61,13 +68,6 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 3. Select the video from where you want to delete a comment. Scroll down to reach the desired comment.
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
 
@@ -80,6 +80,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
 
@@ -125,33 +132,19 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
@@ -160,6 +153,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -182,18 +182,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-dissecting-ajey-nagars-2023-youtube-economic-landscape/"><u>[New] 2024 Approved Dissecting Ajey Nagar's 2023 YouTube Economic Landscape</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-gamers-guide-to-twisting-videos-on-youtube-2e-for-2024/"><u>[New] A Gamer's Guide to Twisting Videos on YouTube (2E) for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-traversing-through-windows-movie-makers-version-landscape/"><u>[New] Traversing Through Windows Movie Maker's Version Landscape</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-bring-order-to-your-digital-memories-ios-album-structure-and-icloud-backup-synergy/"><u>[Updated] In 2024, Bring Order to Your Digital Memories IOS Album Structure & iCloud Backup Synergy</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-create-fantastic-youtube-description-with-templates-to-get-more-viewers/"><u>[Updated] In 2024, Create Fantastic YouTube Description With Templates To Get More Viewers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-compelling-videos-utilize-no-cost-templates-and-samples/"><u>Craft Compelling Videos Utilize No-Cost Templates & Samples</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/easy-mastery-of-movie-capturing-from-pc-mac-and-mobile-devices-for-2024/"><u>Easy Mastery of Movie Capturing From PC, Mac & Mobile Devices for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/enjoy-endless-tunes-with-our-picks-top-7-free-music-apps-for-all-ios-and-android-users/"><u>Enjoy Endless Tunes with Our Picks: Top 7 Free Music Apps for All iOS & Android Users</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-grading-and-correcting-with-ease-top-11-video-editing-tips/"><u>In 2024, Grading and Correcting with Ease Top 11 Video Editing Tips</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-premium-mp4-channel-updater/"><u>In 2024, Premium MP4 Channel Updater</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-cinematic-journey-youtube-and-vimeos-top-premium-marriage-videos/"><u>Love's Cinematic Journey YouTube & Vimeo's Top Premium Marriage Videos</u></a></li>
-<li><a href="https://driver-download.techidaily.com/the-ultimate-guide-find-install-and-update-ralink-network-drivers-on-windows-pcs/"><u>The Ultimate Guide: Find, Install, and Update Ralink Network Drivers on Windows PCs</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/0-yt-tickets-most-watched-videos-hour-by-hour/"><u>Top 10 YT Tickets Most Watched Videos, Hour by Hour</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-shopback-up-specialists-judgment/"><u>[New] 2024 Approved ShopBack Up Specialists' Judgment</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-behind-the-scenes-how-to-create-youtube-trailers-in-filmora/"><u>[New] Behind the Scenes How-To Create YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-transforming-mundane-images-with-music-on-instagram/"><u>[New] In 2024, Transforming Mundane Images with Music on Instagram</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-ultimate-youtube-financial-framework-for-content-creators/"><u>[Updated] 2024 Approved The Ultimate YouTube Financial Framework for Content Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-top-free-audio-samples-for-youtube-creators/"><u>[Updated] 2024 Approved Top Free Audio Samples for YouTube Creators</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-crafting-visual-wonders-an-insiders-guide-to-editing-on-snapchat-for-2024/"><u>[Updated] Crafting Visual Wonders An Insider’s Guide to Editing on Snapchat for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-fifas-best-players-trendy-videos-on-youtube/"><u>[Updated] FIFA's Best Players Trendy Videos on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-richest-rewards-for-creators/"><u>[Updated] Richest Rewards for Creators</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-cloaked-glance-at-social-media-snapshits/"><u>2024 Approved Cloaked Glance at Social Media Snapshits</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-mastering-the-art-of-youtube-teaser-videos/"><u>2024 Approved Mastering the Art of YouTube Teaser Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/visual-excellence-the-premier-video-formats-for-youtube/"><u>Audiovisual Excellence The Premier Video Formats for YouTube</u></a></li>
+<li><a href="https://techtrends.techidaily.com/fixing-d3dx924dll-not-found-expert-tips-and-solutions-for-dll-problems/"><u>Fixing 'd3dx9_24.dll' Not Found: Expert Tips and Solutions for DLL Problems</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-can-we-unlock-our-meizu-21-pro-phone-screen-by-drfone-android/"><u>How Can We Unlock Our Meizu 21 Pro Phone Screen?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-conquer-youtubes-realms-a-step-by-step-video-uploading-guidebook/"><u>In 2024, Conquer YouTube's Realms A Step-by-Step Video Uploading Guidebook</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Gionee F3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/iches-a-look-into-mr-beasts-wallet/"><u>The Riches A Look Into Mr. Beast's Wallet</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-tech-secrets-at-toms-hardware-hub-a-resource-for-gamers-and-professionals/"><u>Unveiling Tech Secrets at Tom's Hardware Hub: A Resource for Gamers and Professionals</u></a></li>
 </ul></div>
 

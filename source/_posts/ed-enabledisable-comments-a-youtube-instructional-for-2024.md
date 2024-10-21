@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Enable/Disable Comments  A YouTube Instructional for 2024\""
-date: 2024-09-10T19:51:22.818Z
-updated: 2024-09-17T20:35:53.559Z
+date: 2024-10-15T17:56:52.085Z
+updated: 2024-10-21T17:14:48.465Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -115,6 +122,13 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 ## FAQs About YouTube Comments
@@ -133,6 +147,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +167,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,12 +194,20 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/levate-your-videos-auditory-experience-on-youtube/"><u>[New] Elevate Your Video's Auditory Experience on YouTube</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-pixel-to-passion-unlocking-new-forms-of-entertainment-with-vr/"><u>[New] Pixel to Passion Unlocking New Forms of Entertainment with VR</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-tackling-latency-issues-for-smooth-video-conferencing-on-xbox-one/"><u>[Updated] Tackling Latency Issues for Smooth Video Conferencing on Xbox One</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-utilizing-iphones-full-screen-memories/"><u>[Updated] Utilizing iPhone's Full-Screen Memories</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-profile-pics-templates-available-for-2024/"><u>[Updated] YouTube Profile Pics Templates Available for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-discover-leading-video-ranking-tools-for-youtube-success/"><u>2024 Approved Discover Leading Video Ranking Tools for YouTube Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-from-novice-to-money-maker-on-youtube/"><u>2024 Approved From Novice to Money-Maker on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/a-treasure-trove-of-9-complete-holiday-flicks-free-streaming-for-2024/"><u>A Treasure Trove of 9 Complete Holiday Flicks, Free Streaming for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-get-the-outlook-preview-app-on-windows-11-and-11/"><u>How to Get the Outlook Preview App on Windows 11 and 11</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-youtube-vs-dailymotion-key-platform-distinctions/"><u>In 2024, YouTube Vs. Dailymotion Key Platform Distinctions</u></a></li>
+<li><a href="https://win11.techidaily.com/pro-gamers-playbook-win-11-edition-mastering-the-seven-keys/"><u>Pro Gamers' Playbook: Win 11 Edition - Mastering the Seven Keys</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/troubleshooting-the-notorious-bsod-for-usb-drivers-in-windows-11-solutions-unveiled/"><u>Troubleshooting the Notorious BSOD for USB Drivers in Windows 11 – Solutions Unveiled</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unveiling-the-dull-truth-why-you-might-find-apples-latest-ai-innovations-from-wwdc-underwhelming-and-thats-a-good-thing/"><u>Unveiling the Dull Truth: Why You Might Find Apple’s Latest AI Innovations From WWDC Underwhelming – And That's a Good Thing!</u></a></li>
+</ul></div>
 

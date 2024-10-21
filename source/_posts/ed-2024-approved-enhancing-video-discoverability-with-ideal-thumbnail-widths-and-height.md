@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Enhancing Video Discoverability with Ideal Thumbnail Widths and Height\""
-date: 2024-10-12T17:07:50.499Z
-updated: 2024-10-15T18:04:44.694Z
+date: 2024-10-14T16:48:23.799Z
+updated: 2024-10-21T17:35:37.444Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,13 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
 
 With a verified account, you can upload custom thumbnail on new videos as well as change the thumbnail of uploaded videos.
@@ -73,6 +80,13 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
@@ -83,10 +97,10 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 2\. For Already Uploaded Video
@@ -99,16 +113,10 @@ To change the thumbnail on an already uploaded video you need to follow these st
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
@@ -117,10 +125,10 @@ To change the thumbnail on an already uploaded video you need to follow these st
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
@@ -130,13 +138,6 @@ You may want to know:
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
 YouTube will not allow you to upload a custom thumbnail image if it is bigger than the 2MB limit. So, you need to make sure the file size is below the limit to be able to successfully upload a custom thumbnail. To reduce the image size you can follow the steps below:
@@ -145,19 +146,6 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 2\. Now go to the File menu and click **Save as** then select JPEG picture
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
-
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
 
@@ -210,16 +198,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-choosing-your-best-gif-creator-a-comparative-analysis/"><u>[New] 2024 Approved Choosing Your Best GIF Creator A Comparative Analysis</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-fix-noted-shorts-now-shown-prominently/"><u>[New] 2024 Approved Fix Noted Shorts Now Shown Prominently</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-identifying-causes-for-disappearing-youtube-shorts-thumbnails/"><u>[New] 2024 Approved Identifying Causes for Disappearing YouTube Shorts Thumbnails</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-identifying-high-impact-keywords-for-effective-youtube-marketing/"><u>[New] 2024 Approved Identifying High-Impact Keywords for Effective YouTube Marketing</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-unveiling-the-art-of-screencasting-orderly-tutorial-series/"><u>[New] Unveiling the Art of Screencasting Orderly Tutorial Series</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-unveiling-cosmic-divides-metaverse-and-multiverse-explained/"><u>[Updated] 2024 Approved Unveiling Cosmic Divides Metaverse and Multiverse Explained</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/a-guide-to-prolonging-gopro-power-source-lifespan-for-2024/"><u>A Guide to Prolonging GoPro Power Source Lifespan for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/defeat-the-destiny-warzone-memory-error-xboxpc-code-0-1766-a-step-by-step-fix-guide/"><u>Defeat the Destiny Warzone Memory Error (Xbox/PC, Code 0-1766): A Step-by-Step Fix Guide</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-google-pixel-8-pro-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Google Pixel 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-within.techidaily.com/reviving-your-lenovo-thinkcentre-a-four-step-guide-to-a-full-factory-reset/"><u>Reviving Your Lenovo ThinkCentre: A Four-Step Guide to a Full Factory Reset</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-real-time-strategies-to-boost-viewership/"><u>Top 8 Real-Time Strategies to Boost Viewership</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-effortless-entrepreneurship-top-10-easy-to-create-biz-channels-on-youtotube/"><u>[New] In 2024, Effortless Entrepreneurship Top 10 Easy-to-Create Biz Channels on YouToTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-vlog-confidently-like-popular-youtubers/"><u>[New] In 2024, How to Vlog Confidently Like Popular YouTubers?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-cutting-edge-strategies-for-dynamic-igtv-backgrounds/"><u>[Updated] Cutting-Edge Strategies for Dynamic IGTV Backgrounds</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/best-9-virtual-mic-recorders-to-enhance-remote-sessions-23/"><u>Best 9 Virtual Mic Recorders to Enhance Remote Sessions ('23)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ting-engagement-professional-tips-for-youtube-video-tweaks/"><u>Elevating Engagement Professional Tips for YouTube Video Tweaks</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-nokia-105-classic-by-drfone-android/"><u>In 2024, How to Bypass FRP on Nokia 105 Classic?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-how-to-upload-videos-to-youtube-a-step-by-step-guide/"><u>In 2024, How To Upload Videos to YouTube A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-real-time-caption-generator/"><u>In 2024, Real-Time Caption Generator</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-create-engaging-videos-on-the-go-best-animated-text-apps-for-phones-for-2024/"><u>New Create Engaging Videos on the Go Best Animated Text Apps for Phones for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/on-hold-regulatory-body-ponders-trump-account-ban/"><u>On Hold: Regulatory Body Ponders Trump Account Ban</u></a></li>
+<li><a href="https://change-location.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-vivo-y27-4g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Vivo Y27 4G | Dr.fone</u></a></li>
 </ul></div>
 

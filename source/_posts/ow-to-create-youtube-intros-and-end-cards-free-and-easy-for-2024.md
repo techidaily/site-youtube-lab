@@ -1,7 +1,7 @@
 ---
 title: "\"[New] How to Create YouTube Intros & End Cards - Free and Easy for 2024\""
-date: 2024-10-10T03:03:41.186Z
-updated: 2024-10-16T03:56:31.204Z
+date: 2024-10-20T16:06:33.447Z
+updated: 2024-10-21T17:15:07.105Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,10 +125,16 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -152,20 +158,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-crafting-visibility-on-youtube-the-ultimate-guide-to-featured-channel-placement/"><u>[New] 2024 Approved Crafting Visibility on YouTube The Ultimate Guide to Featured Channel Placement</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-cutting-edge-editing-with-youtubes-studio-editor/"><u>[New] 2024 Approved Cutting-Edge Editing with YouTube's Studio Editor</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-essential-free-tools-convert-youtube-audio-to-mp3-on-iphone/"><u>[New] 2024 Approved Essential Free Tools Convert YouTube Audio to MP3 on iPhone</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-instavoice-top-100-captions-that-define-your-personal-narrative/"><u>[New] 2024 Approved InstaVoice Top 100 Captions That Define Your Personal Narrative</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-mac-users-mastering-mp3-conversion-from-youtube/"><u>[New] 2024 Approved Mac Users Mastering MP3 Conversion From YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-precision-in-playback-a-compreenhensive-guide-to-youtube-video-loops/"><u>[New] 2024 Approved Precision in Playback A Compreenhensive Guide to Youtube Video Loops</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-comprehensive-guide-to-achieving-smooth-color-keying-for-2024/"><u>[New] A Comprehensive Guide to Achieving Smooth Color-Keying for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-fresh-take-on-frigidity-crafting-inviting-backdrops-for-2024/"><u>[New] A Fresh Take on Frigidity Crafting Inviting Backdrops for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-the-complete-guide-to-voiced-ppt-mastery/"><u>[Updated] 2024 Approved The Complete Guide to Voiced PPT Mastery</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-multitasking-made-simple-understanding-chrome-pip-integration/"><u>[Updated] In 2024, Multitasking Made Simple Understanding Chrome PIP Integration</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-capture-creativity-iosandroids-best-caption-apps/"><u>2024 Approved Capture Creativity IOS/Android’s Best Caption Apps</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/discovering-the-joy-of-low-cost-drone-flight-with-symas-s111g-model/"><u>Discovering the Joy of Low-Cost Drone Flight with Syma's S111G Model</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Lava Yuva 3 | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/unbeatable-method-for-permanent-bio-link-integration-in-tiktok/"><u>Unbeatable Method for Permanent Bio-Link Integration in TikTok</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unraveling-windows-portable-executable-format/"><u>Unraveling Windows' Portable Executable Format</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-dive-into-the-art-of-asmr-recording-a-comprehensive-overview/"><u>[New] In 2024, Dive Into the Art of ASMR Recording – A Comprehensive Overview</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-what-makes-a-viral-video-the-tiktok-twitter-link/"><u>[New] What Makes a Viral Video The TikTok-Twitter Link</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-from-screens-to-stories-vertical-video-mastery-with-fcpx/"><u>[Updated] From Screens to Stories Vertical Video Mastery with FCPX</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-innovating-everyday-life-top-10-vr-accessory-guide-for-2024/"><u>[Updated] Innovating Everyday Life Top 10 VR Accessory Guide for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-turn-youtube-clips-into-animated-gifs-step-by-step-guide/"><u>[Updated] Turn Youtube Clips Into Animated GIFs Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unlock-viral-potential-with-youtube-short-strategies/"><u>[Updated] Unlock Viral Potential with YouTube Short Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-avoiding-storage-woes-removing-youtube-media/"><u>2024 Approved Avoiding Storage Woes Removing YouTube Media</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-decoding-youtube-stats-efficiency-with-social-blades-advanced-analysis/"><u>2024 Approved Decoding YouTube Stats Efficiency with Social Blade's Advanced Analysis</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-gaming-an-in-depth-look-at-the-nintendo-switch-lite-the-portable-alternative/"><u>Budget-Friendly Gaming: An In-Depth Look at the Nintendo Switch Lite - The Portable Alternative</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-a-path-to-profit-calculating-video-view-requirements-for-2024/"><u>Charting a Path to Profit Calculating Video View Requirements for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/comprehensive-guide-resolving-missing-launchdll-error-messages/"><u>Comprehensive Guide: Resolving Missing Launch.dll Error Messages</u></a></li>
+<li><a href="https://blog-min.techidaily.com/effortless-hd-4k-and-3d-video-capture-top-tools-for-downloading-stunning-360-degree-content/"><u>Effortless HD 4K & 3D Video Capture: Top Tools for Downloading Stunning 360 Degree Content</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-asus-rog-phone-8-pro-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>In 2024, Does Asus ROG Phone 8 Pro Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-samsung-galaxy-m34-5g-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Samsung Galaxy M34 5G FRP</u></a></li>
 </ul></div>
 

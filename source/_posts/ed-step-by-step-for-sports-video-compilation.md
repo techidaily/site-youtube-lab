@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step for Sports Video Compilation\""
-date: 2024-09-13T18:01:57.710Z
-updated: 2024-09-17T19:19:04.688Z
+date: 2024-10-18T16:34:26.722Z
+updated: 2024-10-21T17:07:25.344Z
 tags:
   - ai video
   - ai youtube
@@ -86,13 +86,6 @@ To start with, just launch Filmora on your computer and add the video that you w
 
 ![Import Media File](https://images.wondershare.com/filmora/guide/import-media-file-to-filmora-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 2: Edit the Sports Video
 
 In order to create a sports highlight video, the first thing that people do is trim any unwanted part. Once the video is loaded, you can view it on the timeline of the interface. Now, go to the timeline and get the trim tool to manually select the part of the video you wish to trim. After selecting the desired fragment, you can trim the clip or just delete it by clicking on their respective icons.
@@ -100,10 +93,10 @@ In order to create a sports highlight video, the first thing that people do is t
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In the same way, you can also split your video and make other changes in it. You can also include multiple videos together and include them in your timeline as well.
@@ -112,11 +105,31 @@ If you are including multiple videos, then make sure they have the same dimensio
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Most of the game highlights that we see have different speeds for various sections. That is, some actions would be fast-forwarded while some would be in slow motion. To apply this, simply select the section in the timeline, right-click, and go to the Speed and Duration settings. This will open a dedicated interface from where you can change the speed of the sports video.
 
 Apart from manually setting the speed, you can also take the assistance of the custom speed options that are available in the timeline tools.
 
 ![Edit Sports Video](https://images.wondershare.com/filmora/article-images/edit-sports-video-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 3: Make Advanced Edits in your Sports Video
 
@@ -135,19 +148,6 @@ Lastly, make sure that you added sound or voiceover to your video. You can add a
 #### Step 4: Export your video in the desired format
 
 That’s it! Once your sports highlight video is ready, you can export it in different formats. Just go to the Export option and select the location to save the video and a preferred resolution. You can save your video in formats like MP4, WMV, AVI, FLV, MKV, and so on.
-
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Expert Tips for Creating Highlight Videos
 
@@ -173,6 +173,13 @@ I’m sure that after reading this guide, you would be able to come up with an i
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -192,5 +199,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/est-8-evidenced-tools-for-video-propagation/"><u>[New] Best 8 Evidenced Tools for Video Propagation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/icro-videos-whats-the-gist-in-2024/"><u>[New] Micro Videos What's the Gist, In 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-creative-summit-top-talent-junction/"><u>[New] The Creative Summit Top Talent Junction</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-7-star-rated-apps-for-effortless-youtube-live-broadcast-from-iphone-and-android-for-2024/"><u>[Updated] 7 Star-Rated Apps for Effortless YouTube LIVE Broadcast From iPhone and Android for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-break-free-from-linearity-mastering-jump-cut-transitions/"><u>[Updated] In 2024, Break Free From Linearity Mastering Jump Cut Transitions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-master-your-content-a-complete-list-of-essential-audio-visual-tools/"><u>[Updated] In 2024, Master Your Content A Complete List of Essential Audio-Visual Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-premier-selector-exclusive-app-selection-for-your-videos/"><u>[Updated] In 2024, Premier Selector Exclusive App Selection for Your Videos</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-professional-pcmac-screen-recorders/"><u>[Updated] Professional PC/Mac Screen Recorders</u></a></li>
+<li><a href="https://techtrends.techidaily.com/complete-walkthrough-navigating-apple-pay-features-on-the-apple-watch/"><u>Complete Walkthrough: Navigating Apple Pay Features on the Apple Watch</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/digital-decluttering-how-to-shun-surplus-backdrops-effectively-for-2024/"><u>Digital Decluttering How to Shun Surplus Backdrops Effectively for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/free-online-converter-transform-mp4-to-avi-format-with-moveavi/"><u>Free Online Converter: Transform MP4 to AVI Format with Moveavi</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/generate-giggle-worthy-graphics-for-2024/"><u>Generate Giggle-Worthy Graphics for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/how-to-successfully-solve-the-iphone-mtp-connection-problem/"><u>How To Successfully Solve The iPhone MTP Connection Problem</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-definitive-list-of-top-quality-mics-for-yt-styles/"><u>In 2024, The Definitive List of Top-Quality Mics for YT Styles</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/lg-smart-cam-2023-in-depth-analysis-and-updates/"><u>LG Smart Cam 2023 In-Depth Analysis & Updates</u></a></li>
+</ul></div>
 

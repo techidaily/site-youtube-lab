@@ -1,7 +1,7 @@
 ---
 title: "[New] Incor's Guide to Enriched Video Engagement Through Commentary and Alert Embeddings"
-date: 2024-09-14T19:51:11.975Z
-updated: 2024-09-17T16:24:36.885Z
+date: 2024-10-18T16:36:54.971Z
+updated: 2024-10-21T17:00:38.595Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -82,10 +89,24 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -125,6 +146,13 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -144,12 +172,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-woven-wisdom-expertise-in-loom-recordings/"><u>[Updated] 2024 Approved Woven Wisdom Expertise in Loom Recordings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-best-practices-the-8-truly-effective-promotion-techniques/"><u>[Updated] Best Practices The 8 Truly Effective Promotion Techniques</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-virtual-clarity-streamlining-backgrounds-for-smooth-screenshots/"><u>[Updated] In 2024, Virtual Clarity Streamlining Backgrounds for Smooth Screenshots</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-infinix-hot-40-pro-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Infinix Hot 40 Pro</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-top-10-youtube-video-editing-tips-for-beginner-editors/"><u>In 2024, Top 10 YouTube Video Editing Tips for Beginner Editors</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ring-the-art-of-personalizing-youtube-visuals/"><u>Mastering the Art of Personalizing YouTube Visuals</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/izing-your-youtube-channels-strategies-for-success/"><u>Monetizing Your YouTube Channels Strategies for Success</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-master-adobe-premiere-with-these-20-must-know-shortcuts/"><u>New In 2024, Master Adobe Premiere with These 20 Must-Know Shortcuts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/reset-password-quickly-regaining-access-post-hack-for-2024/"><u>Reset Password Quickly Regaining Access Post-Hack for 2024</u></a></li>
+</ul></div>
 

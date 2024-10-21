@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Video Excellence Started with Quality Cameras and Lenses\""
-date: 2024-10-08T16:12:04.295Z
-updated: 2024-10-15T16:43:14.662Z
+date: 2024-10-14T17:59:48.215Z
+updated: 2024-10-21T17:08:08.431Z
 tags:
   - ai video
   - ai youtube
@@ -40,10 +40,10 @@ We have explained the differences between Fixed lens and Zoom lens and advantage
 Before we get into the recommendations here is a little background information on lenses in general:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Beginner's Guide to Aperture and F-Stops
@@ -89,10 +89,10 @@ Recording videos of vast open spaces, breathtaking vistas or beautiful city view
 YouTubers who are working on demanding projects can try to solve their troubles by using a specialist lens. Soft-focus lenses can help you take better portraits while tilt-shift lenses allow you to control the perspective. However, it is hard to imagine a scenario in which you'll need a specialist lense if you are just starting out since even experienced videographers only use special lenses when they have absolutely no better way to record a scene.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Recommended Best Camera Lenses for Shooting YouTube Videos
@@ -120,6 +120,13 @@ Canon released this lens in 2014 and shortly after it has gained the reputation 
 
 ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
 
 If you are looking for an inexpensive prime lens that lets you create sharp videos with shallow depth of field, you should look no further. This model is one of three Canon's 50mm prime lenses, although the [50mm f/1.4 USM](https://www.amazon.com/Canon-Standard-Medium-Telephoto-Cameras/dp/B00009XVCZ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-3&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=11bff1019e73f0462c30a04e98d4874f&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTe) and [50mm f/1.2 'L' USM](https://www.amazon.com/Canon-50mm-Lens-Digital-Cameras/dp/B000I1YIDQ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-4&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=d77bb813550f12e8aa72c8738dfaad81&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTeAiw&slot) models are much more expensive. You can use it to record a lot of different types of YouTube videos, like product reviews or makeup tutorials. The 50 mm f/1.8 STM lens doesn't have image stabilization technology so you should try to be as still as you can possibly be when shooting handheld videos in order to avoid recording footage that has a lot of camera shakes.
@@ -133,10 +140,10 @@ Recording **moving objects** from a distance requires you to have a lens that al
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
@@ -150,19 +157,6 @@ All Sony's APS-C format E mount cameras are compatible with this multi-purpose l
 If you are using a 4k camera to shoot your YouTube video, check out [best camera lens for 4k professional production.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -185,16 +179,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-best-10-free-youtube-subtitle-extractors-and-downloaders/"><u>[New] 2024 Approved Best 10 Free YouTube Subtitle Extractors & Downloaders</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-demystifying-the-art-behind-live-video-thumbnails/"><u>[New] 2024 Approved Demystifying the Art Behind Live Video Thumbnails</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-next-gen-gamers-wealth-wave-predictions/"><u>[New] 2024 Approved Next-Gen Gamers' Wealth Wave Predictions</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-premium-viewership-the-ultimate-youtube-wealth/"><u>[New] 2024 Approved Premium Viewership The Ultimate YouTube Wealth</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-the-art-of-gathering-free-photo-display-videos/"><u>[Updated] 2024 Approved The Art of Gathering Free Photo Display Videos</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-silver-screen-streaming-apples-no1-top-8-for-iphones-filmmakers/"><u>2024 Approved Silver Screen Streaming Apple's No.1, Top 8 for iPhones Filmmakers</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-from-apple-iphone-11-proipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock from Apple iPhone 11 Pro/iPad/iPod</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-to-use-chatgpt-in-other-languages/"><u>How to Use ChatGPT in Other Languages</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-ipados-a-detailed-walkthrough-of-each-software-release/"><u>Mastering iPadOS: A Detailed Walkthrough of Each Software Release</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-youtube-to-avi-convertors-explained-for-2024/"><u>Top 8 YouTube-to-AVI Convertors Explained for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-a-comprehensive-guide-to-post-processing-colors/"><u>[New] 2024 Approved A Comprehensive Guide to Post-Processing Colors</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-beyond-the-basics-advanced-livestreaming-tools-for-2024/"><u>[New] Beyond the Basics Advanced Livestreaming Tools for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/treamline-learning-processes-with-detailed-chaptering-for-educational-youtube-videos/"><u>[New] Streamline Learning Processes with Detailed Chaptering for Educational YouTube Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unveiling-the-power-of-a-sturdy-tripod-in-video-content-production/"><u>[Updated] 2024 Approved Unveiling the Power of a Sturdy Tripod in Video Content Production</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-essential-insights-for-youtube-content-protection/"><u>[Updated] Essential Insights for YouTube Content Protection</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-10-top-editing-apps-at-no-cost-online/"><u>[Updated] In 2024, 10 Top Editing Apps at No Cost Online</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-mastering-youtube-craft-your-ultimate-music-collection/"><u>[Updated] In 2024, Mastering YouTube Craft Your Ultimate Music Collection</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-mastery-guide-swiftly-switching-facebook-profile-pictures/"><u>[Updated] Mastery Guide Swiftly Switching Facebook Profile Pictures</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-streamline-success-a-review-of-top-name-generators/"><u>2024 Approved Streamline Success A Review of Top Name Generators</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/all-you-need-to-know-about-mega-greninja-for-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Oppo K11 5G | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-highlight-the-mouse-cursor-in-windows-11-and-11/"><u>How to Highlight the Mouse Cursor in Windows 11 & 11</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-restore-hp-laptop-speakers-complete-guide-to-fixing-silent-screens/"><u>How To Restore HP Laptop Speakers: Complete Guide to Fixing Silent Screens</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Lava Blaze 2 5G? | Dr.fone</u></a></li>
 </ul></div>
 

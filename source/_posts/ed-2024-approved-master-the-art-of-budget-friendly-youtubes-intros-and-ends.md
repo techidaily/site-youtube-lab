@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Master the Art of Budget-Friendly YouTubes Intros and Ends\""
-date: 2024-10-09T16:21:26.047Z
-updated: 2024-10-16T02:16:05.738Z
+date: 2024-10-16T17:38:38.336Z
+updated: 2024-10-21T17:12:10.805Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,16 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,16 +131,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -158,18 +158,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-best-youtube-channel-name-ideas-for-aspiring-vloggers-and-film-makers-maximum-length-156-characters/"><u>[New] 2024 Approved Best Youtube Channel Name Ideas For Aspiring Vloggers & Film Makers (Maximum Length 156 Characters)</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-engaging-audience-from-anywhere-phone-based-filming-techniques/"><u>[New] 2024 Approved Engaging Audience From Anywhere Phone-Based Filming Techniques</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-pioneering-youtube-success-with-targeted-seo-practices/"><u>[New] 2024 Approved Pioneering YouTube Success with Targeted SEO Practices</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-total-capture-trio-setup/"><u>[New] 2024 Approved Total Capture Trio Setup</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-accolades-across-platforms-for-video-creators/"><u>[New] In 2024, Accolades Across Platforms for Video Creators</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-unveiling-the-best-storytelling-schools-1-8-guide-for-2024/"><u>[New] Unveiling the Best Storytelling Schools - #1-#8 Guide for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-selecting-quality-on-a-shoe-string-10-best-free-lut-picks/"><u>[Updated] Selecting Quality on a Shoe String 10 Best Free LUT Picks</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-androids-5-prime-photo-tools-ultimate-editing-companion/"><u>2024 Approved Android's 5 Prime Photo Tools Ultimate Editing Companion</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-capturing-live-discussions-iphoneandroids-screen-recording/"><u>2024 Approved Capturing Live Discussions IPhone/Android's Screen Recording</u></a></li>
-<li><a href="https://article-posts.techidaily.com/2024-approved-streamlining-your-approach-to-downloading-large-amounts-on-tiktok/"><u>2024 Approved Streamlining Your Approach to Downloading Large Amounts on TikTok</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/accurate-age-reflection-in-just-a-minute/"><u>Accurate Age Reflection in Just a Minute</u></a></li>
-<li><a href="https://article-tips.techidaily.com/long-term-stability-of-syma-x8c-for-2024/"><u>Long-Term Stability of Syma X8C for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-galore-visualize-youtubes-fascinating-facts-2017/"><u>Stats Galore! Visualize YouTube's Fascinating Facts (2017)</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-maximize-creativity-with-these-10-androidpc-video-tools/"><u>[New] 2024 Approved Maximize Creativity with These 10 Android/PC Video Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-secret-life-of-instagrams-interrogation-icon/"><u>[New] 2024 Approved The Secret Life of Instagram’s Interrogation Icon</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ree-youtube-spotlight-with-two-key-approaches-for-2024/"><u>[New] Free YouTube Spotlight with Two Key Approaches for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/onetizing-video-how-much-does-a-single-streamer-earn-for-2024/"><u>[New] Monetizing Video How Much Does a Single Streamer Earn for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-techniques-to-improve-visibility-during-youtube-playback/"><u>[Updated] 2024 Approved Techniques to Improve Visibility During YouTube Playback</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-dynamic-duo-shots-perfecting-youtube-video-splitting-for-2024/"><u>[Updated] Dynamic Duo Shots Perfecting YouTube Video Splitting for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-avoid-the-biggest-slip-ups-for-new-youtube-enthusiasts/"><u>[Updated] How to Avoid the Biggest Slip-Ups for New YouTube Enthusiasts</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-delving-into-active-presenters-record-capabilities/"><u>[Updated] In 2024, Delving Into Active Presenter's Record Capabilities</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-quick-tips-for-easy-youtube-thumbnail-acquisition-zero-price/"><u>[Updated] In 2024, Quick Tips for Easy YouTube Thumbnail Acquisition – Zero Price!</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/5-innovative-house-painting-apps-that-make-diy-interiors-a-breeze/"><u>5 Innovative House Painting Apps That Make DIY Interiors a Breeze</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-after-switching-from-nokia-c12-pro-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data After Switching From Nokia C12 Pro to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-poco-c65-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Poco C65 | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Find Friends in Fandom's Forums\""
-date: 2024-10-10T17:29:22.126Z
-updated: 2024-10-16T00:24:59.703Z
+date: 2024-10-20T16:26:12.215Z
+updated: 2024-10-21T16:01:41.915Z
 tags:
   - ai video
   - ai youtube
@@ -66,10 +66,10 @@ Although YouTube has settings to know about the first comment in a video, that i
 * **Unique Feature:** This website comes with a tutorial and you can find out the first comment of the YouTube quickly with it. However, the feature of this tool is limited.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Hadzy
@@ -86,6 +86,13 @@ It is one of the most user-friendly and ad-free random comment pickers available
 * **Unique feature 1:** By clicking the View Statistics button, you can get a track of the popular words used in the comment section and the top questions asked by your followers.
 * **Unique feature 2:** Along with the comment, details of the user, time of commenting, and many more things can be extracted from Hadzy.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Part 2:** **How to Find the First Comments You Have Posted on YouTube?**
 
 There are times when you regret what you've commented on in the past or wish to go back and look up your first message on YouTube. However, it is not always possible to recall the channel or video where you left the comment.
@@ -99,23 +106,9 @@ Everything you have to do now follows the steps below. For the following methods
 
 ![  YouTube comment  history search ](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 By these basic steps, enjoy editing or deleting your comments and replies directly on YouTube!
 
 However, you will have to scroll down a long way before you hit the end to see your first comment posted on YouTube.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Find the Latest Comments you have received on YouTube?
 
@@ -134,6 +127,13 @@ These steps are convenient both for pc as well as a mobile app. Just follow thre
 
 * Click on the bell icon at the top right corner and there you would receive notifications regarding all the comment activities. Click on the particular notification to go to that comment.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Bonus: How to Change the Comments View Order?
 
 Did you know you can also customize your comment section as per your need? On the watch page for your video, you can rearrange the order of the comments. You may sort the comments by top comments or by date added. It's just simple steps ahead.
@@ -142,6 +142,13 @@ Did you know you can also customize your comment section as per your need? On th
 * From the left bar, select Content, click a video's thumbnail, and click on Show More in video details page.
 
 ![  YouTube comment  and rating settings ](https://images.wondershare.com/filmora/article-images/set-up-comment-ratings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Under 'Comments and ratings,' select Sort by, and then choose between "Top" and "Newest."
 * Save the changes, and you are done!
@@ -155,13 +162,6 @@ The higher your video content's exposure on the internet, the more you'll be inc
 YouTube Comments Finder helps you keep track of the good and bad comments in your videos and definitely helps improve the SEO of your Channel. Thanks to YouTube's advanced tools and websites like Hadzy, YouTube comment Finder, YT Comment Finder and YouTube First Comment Finder, managing third-party interaction is a lot simpler today.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -184,20 +184,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-crucial-details-for-deciding-on-a-youtube-tv-subscription/"><u>[New] 2024 Approved Crucial Details for Deciding on a YouTube TV Subscription</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-snapshots-of-success-recording-your-switch-gaming/"><u>[New] 2024 Approved Snapshots of Success Recording Your Switch Gaming</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ominate-discussion-how-to-trend-on-social-media-platforms/"><u>[New] Dominate Discussion How to Trend on Social Media Platforms</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/uture-of-cosmetics-youtube-gurus-on-the-rise-for-2024/"><u>[New] Future of Cosmetics YouTube Gurus on the Rise for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-master-the-art-of-immutable-image-creation/"><u>[New] In 2024, Master the Art of Immutable Image Creation</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-winning-strategies-and-hashtags-for-youtubes-best-freefirers/"><u>[New] In 2024, Winning Strategies & Hashtags for YouTube's Best FreeFirers</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-taking-control-of-a-stopped-up-obs-capture-device/"><u>[Updated] Taking Control of a Stopped-Up OBS Capture Device</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-unmissable-vr-immersive-storytelling/"><u>[Updated] Unmissable VR Immersive Storytelling</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-10-leading-flv-to-youtube-video-converters/"><u>2024 Approved 10 Leading FLV to YouTube Video Converters</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-ideal-virtual-reality-systems-for-drones/"><u>2024 Approved Ideal Virtual Reality Systems for Drones</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/go-anywhere-stay-connected-decoding-the-roaming-guidelines-for-unlimited-t-mobile-metro-plans/"><u>Go Anywhere, Stay Connected: Decoding the Roaming Guidelines for Unlimited T-Mobile Metro Plans</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-dominate-instagram-with-superior-reel-content/"><u>In 2024, Dominate Instagram with Superior Reel Content</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-the-art-of-video-to-animation-stepwise-guide-for-efficient-gif-creation-for-2024/"><u>Learn The Art Of Video to Animation Stepwise Guide for Efficient Gif Creation for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/mxf/"><u>MXF ファイルの簡単なガイド - 正しい再生手順</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-list-7-favorite-note-taking-tools-on-the-go-with-ipad-and-ipad-pro/"><u>The Ultimate List: 7 Favorite Note-Taking Tools on the Go with iPad and iPad Pro</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ow-to-watch-deleted-youtube-videos-online-in-2-ways-ultimate-guide-for-2024/"><u>[New] How to Watch Deleted YouTube Videos Online in 2 Ways | Ultimate Guide for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-virtual-reality-current-state-and-future-challenges/"><u>[Updated] 2024 Approved Virtual Reality Current State and Future Challenges</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-avoid-commonplace-channel-titles-finding-uniqueness-with-filmora/"><u>[Updated] In 2024, Avoid Commonplace Channel Titles Finding Uniqueness with Filmora</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-in-2024-dive-into-hp-envy-27-monitors-usb-c-innovation/"><u>[Updated] In 2024, Dive Into HP Envy 27 Monitor's USB-C Innovation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-how-to-extract-youtube-media-directly/"><u>[Updated] In 2024, How to Extract YouTube Media Directly</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-ultimate-youtube-strategy-for-simultaneous-synchronization/"><u>[Updated] In 2024, The Ultimate Youtube Strategy for Simultaneous Synchronization</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-multi-platform-mastery-delivering-content-to-youtube-and-others-for-2024/"><u>[Updated] Multi-Platform Mastery Delivering Content to YouTube & Others for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-embracing-constructive-feedback-ignoring-the-rest/"><u>2024 Approved Embracing Constructive Feedback, Ignoring the Rest</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-jriver-media-centre-non-microsoft-media-option/"><u>2024 Approved JRiver Media Centre Non-Microsoft Media Option</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/effiziente-datensicherung-mit-kostenloser-inkrementeller-software-tipps-und-tricks/"><u>Effiziente Datensicherung Mit Kostenloser Inkrementeller Software - Tipps Und Tricks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-8-premier-online-photo-frame-creators-revealed/"><u>In 2024, 8 Premier Online Photo Frame Creators Revealed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/point-mastery-integrating-external-video-urls/"><u>PowerPoint Mastery Integrating External Video URLs</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/universal-unlock-pattern-for-samsung-galaxy-z-flip-5-by-drfone-android/"><u>Universal Unlock Pattern for Samsung Galaxy Z Flip 5</u></a></li>
+<li><a href="https://techidaily.com/use-device-manager-to-identify-missing-drivers-with-windows-device-manager-in-windows-11107-by-drivereasy-guide/"><u>Use Device Manager to identify missing drivers with Windows Device Manager in Windows 11/10/7</u></a></li>
 </ul></div>
 

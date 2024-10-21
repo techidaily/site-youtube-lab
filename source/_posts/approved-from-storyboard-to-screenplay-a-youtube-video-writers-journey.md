@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  From Storyboard to Screenplay  A YouTube Video Writer's Journey\""
-date: 2024-09-13T16:36:32.934Z
-updated: 2024-09-17T22:00:45.704Z
+date: 2024-10-16T17:24:20.827Z
+updated: 2024-10-21T16:19:02.124Z
 tags:
   - ai video
   - ai youtube
@@ -48,37 +48,37 @@ Here are some things to do before you start writing your script for YouTube:
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Set the tone
 
@@ -87,13 +87,6 @@ The tone you pick for the video will depend on your audience. It’s safe to ass
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -117,11 +110,31 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
+
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
@@ -150,5 +163,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/he-ultimate-list-of-preferred-youtube-video-formats/"><u>[New] The Ultimate List of Preferred YouTube Video Formats</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-elevate-android-streaming-secrets-from-obs-studio/"><u>[Updated] 2024 Approved Elevate Android Streaming Secrets From OBS Studio</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-seamless-youtube-experience-on-apple-gear-downloading-made-easy/"><u>[Updated] 2024 Approved Seamless Youtube Experience on Apple Gear Downloading Made Easy</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-step-by-step-obs-configuration-for-smooth-broadcasting/"><u>[Updated] 2024 Approved Step-By-Step OBS Configuration for Smooth Broadcasting</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-beyondbasics-the-futurepost-mycam-cameras/"><u>[Updated] BeyondBasics The FuturePost-MyCam Cameras</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-essential-elements-for-implementing-channel-banners-in-games/"><u>[Updated] Essential Elements for Implementing Channel Banners in Games</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-optimizing-your-snapchat-ads-for-maximum-monetization/"><u>[Updated] In 2024, Optimizing Your Snapchat Ads for Maximum Monetization</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unleash-creativity-with-customizable-animated-subscribers-on-youtube-filmora-for-2024/"><u>[Updated] Unleash Creativity with Customizable Animated Subscribers on YouTube (Filmora) for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-first-steps-launching-a-youtube-channel-for-profit/"><u>2024 Approved First Steps Launching a YouTube Channel for Profit</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-xiaomi-13-ultra-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Xiaomi 13 Ultra Location Settings | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-a-network-locked-vivo-v29-pro-phone-by-drfone-android/"><u>In 2024, How to Unlock a Network Locked Vivo V29 Pro Phone?</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-download-of-your-amd-ryzen-5-2600-graphics-drivers-made-easy/"><u>Step-by-Step Download of Your AMD Ryzen 5 2600 Graphics Drivers Made Easy!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ring-tags-a-guide-for-enhanced-online-visibility-for-2024/"><u>Tailoring Tags A Guide for Enhanced Online Visibility for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-next-level-windows-experience/"><u>The Next-Level Windows Experience</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/k-your-videographer-potential-with-youtube-studio-edition-expertise-for-2024/"><u>Unlock Your Videographer Potential with YouTube Studio Edition Expertise for 2024</u></a></li>
+</ul></div>
 

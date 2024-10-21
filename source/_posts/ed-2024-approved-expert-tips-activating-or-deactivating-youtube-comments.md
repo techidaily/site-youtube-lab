@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Expert Tips  Activating or Deactivating YouTube Comments\""
-date: 2024-09-11T16:53:14.029Z
-updated: 2024-09-17T16:07:41.765Z
+date: 2024-10-16T17:07:40.489Z
+updated: 2024-10-21T17:50:17.854Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -115,7 +122,21 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -147,6 +168,13 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -166,18 +194,22 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-leveraging-youtube-insights-for-content-growth/"><u>[New] 2024 Approved Leveraging YouTube Insights for Content Growth</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ow-to-live-without-the-temptation-of-youtube-shorts-for-2024/"><u>[New] How To Live Without the Temptation of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nstant-expertise-changing-photos-to-captivating-youtube-thumbnails-for-2024/"><u>[New] Instant Expertise Changing Photos to Captivating YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/asteful-tactics-elevating-culinary-channel-monikers-for-2024/"><u>[New] Tasteful Tactics Elevating Culinary Channel Monikers for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-accelerated-approach-eliminating-signatures-quickly/"><u>[Updated] 2024 Approved Accelerated Approach Eliminating Signatures Quickly</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-add-timestamps-youtube-video-in-2024/"><u>[Updated] How to Add Timestamps YouTube Video, In 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-unveiling-secrets-phantoms-slow-motion-techniques-for-2024/"><u>[Updated] Unveiling Secrets Phantom's Slow Motion Techniques for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-recommendations-high-end-ringtone-fabricators/"><u>2024 Approved Expert Recommendations High-End Ringtone Fabricators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-master-your-online-presence-the-ultimate-guide-to-effective-freefire-tags/"><u>2024 Approved Master Your Online Presence The Ultimate Guide to Effective FreeFire Tags</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unlocking-the-secrets-of-youtubes-shorts-revenue-sharing/"><u>2024 Approved Unlocking the Secrets of YouTube’s Shorts Revenue Sharing</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-honor-magic-6-lite-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Honor Magic 6 Lite Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ce-creativity-in-video-editing-these-7-sources-for-2024/"><u>Enhance Creativity in Video Editing - These 7 Sources for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/free-logitech-wireless-mouse-drivers-downloader-tool-for-microsoft-operating-systems/"><u>Free Logitech Wireless Mouse Drivers Downloader Tool for Microsoft Operating Systems</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/harnessing-the-power-of-photoshops-3d-lut-filters/"><u>Harnessing the Power of Photoshop's 3D LUT Filters</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-fundamentals-of-quality-streaming-how-to-do-it-right-with-wirecast-and-youtube-for-2024/"><u>The Fundamentals of Quality Streaming How to Do It Right with WireCast and Youtube for 2024</u></a></li>
+</ul></div>
 

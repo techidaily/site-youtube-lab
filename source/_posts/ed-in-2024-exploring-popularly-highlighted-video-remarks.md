@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Exploring Popularly Highlighted Video Remarks"
-date: 2024-10-14T16:57:26.652Z
-updated: 2024-10-15T16:55:49.821Z
+date: 2024-10-17T16:23:32.479Z
+updated: 2024-10-21T17:01:32.419Z
 tags:
   - ai video
   - ai youtube
@@ -59,13 +59,6 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
@@ -75,6 +68,13 @@ YouTube has been working on improving the navigation of the comment section for 
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
 
@@ -93,19 +93,19 @@ Suppose you are a viewer who is going through the comments section of a video. I
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Reply to Highlighted Comments?
@@ -117,16 +117,16 @@ If you click the notification bell icon, whenever a viewer drops a new comment o
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
 
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 6: How to Remove Highlighted Comments?
@@ -194,17 +194,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-cinema-for-all-a-comparative-look-at-vimeo-and-youtube/"><u>[New] 2024 Approved Cinema for All? A Comparative Look at Vimeo & YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-premier-video-breakdown-fifa-analysis-graphs/"><u>[New] 2024 Approved Premier Video Breakdown FIFA Analysis Graphs</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-from-good-to-great-unveiling-video-enhance-22-secrets/"><u>[New] In 2024, From Good to Great Unveiling Video Enhance 2.2 Secrets</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-revolutionizing-reach-the-next-wave-of-fb-ad-techniques-2024/"><u>[Updated] Revolutionizing Reach The Next Wave of FB Ad Techniques, 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-top-5-easy-android-image-fixes/"><u>[Updated] Top 5 Easy Android Image Fixes</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-utilizing-alternate-shots-to-elevate-film-quality/"><u>[Updated] Utilizing Alternate Shots to Elevate Film Quality</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-inventory-a-multitude-of-video-recorders/"><u>2024 Approved Inventory A Multitude of Video Recorders</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-peak-hours-for-releasing-podcasts/"><u>2024 Approved Peak Hours for Releasing Podcasts</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-blueprint-for-effortless-youtube-video-posting-on-fb/"><u>2024'S Blueprint for Effortless YouTube Video Posting on FB</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-video-performance-with-key-seo-tools-for-2024/"><u>Boost Video Performance with Key SEO Tools for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-and-install-the-latest-intel-hduhd-graphics-drivers-for-windows-10-and-11/"><u>Download and Install the Latest Intel HD/UHD Graphics Drivers for Windows 10 & 11</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-fake-gps-without-root-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Fake GPS Without Root On Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-elite-nintendo-switch-fighters-showdown-max-156/"><u>[New] In 2024, Elite Nintendo Switch Fighters Showdown (Max 156)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-definitive-guide-for-choosing-best-youtube-visual-elements/"><u>[New] In 2024, The Definitive Guide for Choosing Best YouTube Visual Elements</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-engagement-a-compendium-of-the-top-20-youtube-hacks/"><u>[New] Mastering Engagement A Compendium of the Top 20 YouTube Hacks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-the-art-of-locating-your-youtube-discussions/"><u>[New] Mastering the Art of Locating Your YouTube Discussions</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-strategic-unveiling-the-box-of-opportunity/"><u>[New] Strategic Unveiling The Box of Opportunity</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-launching-a-successful-vlog-a-guide-to-profitability/"><u>[Updated] 2024 Approved Launching a Successful Vlog A Guide to Profitability</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-turning-onoff-comments-with-ease-on-youtube-platform/"><u>[Updated] In 2024, Turning On/Off Comments with Ease on YouTube Platform</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-bite-sized-video-specialist/"><u>2024 Approved Bite-Sized Video Specialist</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-cinematic-clarity-hub-query-responses/"><u>2024 Approved Cinematic Clarity Hub Query Responses</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-xiaomi-redmi-note-12r-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Xiaomi Redmi Note 12R Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/drm-free-ebooks-steps-to-unlock-drm-protection-on-pdf-pages/"><u>DRM-Free eBooks: Steps to Unlock DRM Protection on PDF Pages</u></a></li>
+<li><a href="https://win-blog.techidaily.com/eliminate-high-latency-in-call-of-duty-warzone-essential-strategies-for-gamers-2n-v3/"><u>Eliminate High Latency in Call of Duty Warzone - Essential Strategies for Gamers (2N V3)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expertise-in-spotify-advertising-a-playbook-guide/"><u>In 2024, Expertise in Spotify Advertising A Playbook Guide</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/windows-server-20082012201nvss-writer/"><u>Windows Server 2008、2012、および201n年にVSS Writerで時間切れエラーを解決する方法</u></a></li>
 </ul></div>
 

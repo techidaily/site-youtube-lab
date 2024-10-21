@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Cutting-Edge Method  Quick Erasure of Youtube Comments for 2024\""
-date: 2024-10-09T00:00:09.006Z
-updated: 2024-10-15T17:53:39.605Z
+date: 2024-10-18T16:46:57.635Z
+updated: 2024-10-21T17:40:09.103Z
 tags:
   - ai video
   - ai youtube
@@ -62,6 +62,13 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from YouTube?
 
 Have you accidentally posted something on a YouTuber’s channel? Are you anxious because you cannot find the comment and delete it?
@@ -75,10 +82,10 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
@@ -116,10 +123,10 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -131,29 +138,22 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Final Thoughts
 
@@ -182,19 +182,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-crafting-content-for-success-how-to-start-your-own-youtube-chanel/"><u>[New] 2024 Approved Crafting Content for Success How to Start Your Own YouTube Chanel</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-foremost-video-starters-the-leading-16-youtube-openers/"><u>[New] 2024 Approved Foremost Video Starters The Leading 16 YouTube Openers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-jumpstart-your-channel-with-these-top-10-video-editing-tips/"><u>[New] 2024 Approved Jumpstart Your Channel with These Top 10 Video Editing Tips</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-mastering-video-edits-in-youtube-studios-editor/"><u>[New] 2024 Approved Mastering Video Edits in YouTube Studio's Editor</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-optimal-video-intros-selecting-the-top-16-to-increase-views/"><u>[New] 2024 Approved Optimal Video Intros Selecting the Top 16 to Increase Views</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-the-a-to-z-guide-to-recording-games-using-obs-for-2024/"><u>[Updated] The A-to-Z Guide to Recording Games Using OBS for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-the-code-of-content-top-6-youtuber-personality-tests-revealed-for-2024/"><u>Crack the Code of Content Top 6 YouTuber Personality Tests Revealed for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/customize-your-macs-folder-display-with-easy-guide-to-finder-configurations/"><u>Customize Your Mac's Folder Display with Easy Guide to Finder Configurations</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/detective-your-way-join-4-virtual-ai-crime-solving-experiences/"><u>Detective Your Way: Join 4 Virtual AI Crime-Solving Experiences</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/gopro-and-yi-clash-a-new-look-at-action-cams-best-version/"><u>GoPro & Yi Clash A New Look at Action Cams' Best Version</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-full-guide-to-unlock-apple-iphone-se-with-itunes-drfone-by-drfone-ios/"><u>In 2024, Full Guide to Unlock Apple iPhone SE with iTunes | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On Vivo T2 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-honor-70-lite-5g-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Honor 70 Lite 5G to Gmail | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/readers-guide-to-understanding-the-kobo-clara-colour-an-extensive-review-and-comparison/"><u>Readers' Guide to Understanding the Kobo Clara Colour: An Extensive Review and Comparison</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-fullscape-synergy-the-smart-mcn-picking-game/"><u>[New] In 2024, FullScape Synergy The Smart MCN Picking Game</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-easy-desktop-screen-capture-method/"><u>2024 Approved Easy Desktop Screen Capture Method</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-inspiring-lifestyle-content-for-viewers-for-2024/"><u>Building Inspiring Lifestyle Content for Viewers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ning-how-youtube-curates-its-highlighted-discussion-threads/"><u>Examining How YouTube Curates Its Highlighted Discussion Threads</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/how-to-remove-jello-effect-from-an-aerial-video-for-2024/"><u>How to Remove Jello Effect From an Aerial Video for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-catalyze-viewers-interest-tutorial-for-traffic-triumphs/"><u>In 2024, Catalyze Viewers' Interest Tutorial for Traffic Triumphs</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/premium-fb-videograbber-suite-high-quality-downloads-fast-and-secure/"><u>Premium FB Videograbber Suite High-Quality Downloads, Fast & Secure</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/m-like-a-champion-youtubes-ultimate-techniques-for-2024/"><u>Stream Like a Champion YouTube's Ultimate Techniques for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/the-roadmap-to-thriving-in-twitter-live-broadcasts-for-2024/"><u>The Roadmap to Thriving in Twitter Live Broadcasts for 2024</u></a></li>
 </ul></div>
 

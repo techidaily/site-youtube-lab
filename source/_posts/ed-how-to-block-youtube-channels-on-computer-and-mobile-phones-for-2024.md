@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Block YouTube Channels on Computer and Mobile Phones for 2024"
-date: 2024-10-12T01:32:53.317Z
-updated: 2024-10-15T21:56:49.400Z
+date: 2024-10-18T16:59:23.533Z
+updated: 2024-10-21T17:55:09.131Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,13 @@ thumbnail: https://thmb.techidaily.com/c5a40ce6dfe3d0e918e8dfb71426bd44117e8ee24
 
 ![submit and confirm](https://images.wondershare.com/filmora/article-images/submit2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Part 2: How to block YouTube channels on Mobile Phones (Android & iPhone)**
 
  One can also block YouTube channels on mobile devices in the same manner as you would do it on the desktop computer. It will do the same effect and prevent bullying users from interacting with your content.
@@ -83,22 +90,15 @@ thumbnail: https://thmb.techidaily.com/c5a40ce6dfe3d0e918e8dfb71426bd44117e8ee24
 ![confirm parent](https://images.wondershare.com/filmora/article-images/a-parent3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * 2\. Sign in with your preferred Google account.
 
 ![parent account](https://images.wondershare.com/filmora/article-images/parent-account4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * 3\. Here you’ll see a button **Send Parental Consent Emai**l, press it.
 * 4\. You’ll get an activation code on your email address.
@@ -106,18 +106,18 @@ thumbnail: https://thmb.techidaily.com/c5a40ce6dfe3d0e918e8dfb71426bd44117e8ee24
 
  Now as you’re signed in as a parent you can block channels and specific content.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **I. Block on Home screen**
 
 * 1\. On the Home screen press the dotted menu next to the video
 
 ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
@@ -125,10 +125,10 @@ thumbnail: https://thmb.techidaily.com/c5a40ce6dfe3d0e918e8dfb71426bd44117e8ee24
 ![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **II. Block from Watch Page**
@@ -136,6 +136,13 @@ thumbnail: https://thmb.techidaily.com/c5a40ce6dfe3d0e918e8dfb71426bd44117e8ee24
 * 1\. On the Watch Page tap the dotted **More** option at the top right corner of the video.
 
 ![more option](https://images.wondershare.com/filmora/article-images/more-option7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * 2\. Press the **Block** option.
 * 3\. A dialog box will appear with two options, **Block this video** for blocking only this particular video or **Block this channel** to block the entire channel associated with the video.
@@ -146,13 +153,6 @@ thumbnail: https://thmb.techidaily.com/c5a40ce6dfe3d0e918e8dfb71426bd44117e8ee24
 * 5\. Enter the numbers you calculate from the presented numbers or a custom passcode.
 
 ![get passcode again](https://images.wondershare.com/filmora/article-images/pass-code-again8.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Conclusion**
 
@@ -181,24 +181,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-free-film-and-image-repository-highlights/"><u>[New] 2024 Approved Free Film and Image Repository Highlights</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/rom-wanderlusts-to-web-presence-your-strategy-for-professional-blogging-success/"><u>[New] From Wanderlusts To Web Presence Your Strategy for Professional Blogging Success</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/uick-guide-capturing-video-and-audio-from-youtube-for-2024/"><u>[New] Quick Guide Capturing Video & Audio From YouTube for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-exclusive-guide-to-instagrams-hidden-functionality/"><u>[Updated] 2024 Approved Exclusive Guide to Instagram's Hidden Functionality</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-streamline-workflow-learn-io-screen-recording/"><u>[Updated] In 2024, Streamline Workflow Learn IO Screen Recording</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-lenovos-secrets-to-effortless-screenshots-for-2024/"><u>[Updated] Lenovo's Secrets to Effortless Screenshots for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-livestream-elite-top-equipment-for-youtube-content-creators-for-2024/"><u>[Updated] Livestream Elite Top Equipment For YouTube Content Creators for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-youth-voices-channeling-lifes-milestinasubscriber-channel-for-impactful-personal-storytelling/"><u>[Updated] Youth Voices Channeling Life's Milestinasubscriber Channel for Impactful Personal Storytelling.</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-building-a-business-from-blogs-and-video-reviews/"><u>2024 Approved Building a Business From Blogs and Video Reviews</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/erated-pathway-through-keying-fundamentals/"><u>Accelerated Pathway Through Keying Fundamentals</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-the-enhanced-features-of-wasteland-2-directors-cut-a-gripping-tbrpg-evaluation/"><u>Exploring the Enhanced Features of Wasteland 2 Director’s Cut - A Gripping TBRPG Evaluation</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Tecno Phantom V Fold | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-step-by-step-guide-transforming-viewers-into-profit/"><u>In 2024, Step-By-Step Guide Transforming Viewers Into Profit</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-password-cracking-tools-for-vivo-t2x-5g-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Vivo T2x 5G</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/pattern-locks-are-unsafe-secure-your-nokia-c300-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Nokia C300 Phone Now with These Tips</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/perfect-12-video-capture-tools-never-stop-for-2024/"><u>Perfect 12 Video Capture Tools - Never Stop for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-symphony-selecting-superior-dj-templates-for-download-for-2024/"><u>Synth Symphony Selecting Superior DJ Templates for Download for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/top-8-concerning-issues-in-using-openais-chatgpt/"><u>Top 8 Concerning Issues in Using OpenAI's ChatGPT</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-tecno-camon-20-premier-5g-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Tecno Camon 20 Premier 5G Phones</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/dentifying-and-accessing-your-music-picks-on-youtube-for-2024/"><u>[New] Identifying and Accessing Your Music Picks on Youtube for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-freeze-time-on-mi-11-with-impeccable-screen-recording-features/"><u>[New] In 2024, Freeze Time on Mi 11 with Impeccable Screen Recording Features</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-personalize-speakability-changing-your-tone-on-instagram-posts-for-2024/"><u>[New] Personalize Speakability Changing Your Tone on Instagram Posts for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/plitscreen-designer-for-2024/"><u>[New] SplitScreen Designer for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/op-10-best-flvto-alternatives-youtube-converter-you-can-try/"><u>[New] Top 10 Best Flvto Alternatives YouTube Converter You Can Try</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-click-your-way-to-fun-top-12-pc-titles-of-2021-for-2024/"><u>[Updated] Click Your Way to Fun Top 12 PC Titles of 2021 for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-elevating-your-instagram-presence-with-watermarks-for-2024/"><u>[Updated] Elevating Your Instagram Presence with Watermarks for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-essential-steps-to-apply-a-creative-commons-copyright/"><u>[Updated] Essential Steps to Apply a Creative Commons Copyright</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-key-conduct-criteria-in-the-youtube-sphere/"><u>[Updated] In 2024, Key Conduct Criteria in the YouTube Sphere</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-unveiling-figmas-bg-elimination-mastery/"><u>[Updated] In 2024, Unveiling Figma's BG Elimination Mastery</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-ios-and-android-tips-for-silent-youtube-viewing-for-2024/"><u>[Updated] IOS & Android Tips for Silent YouTube Viewing for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-screen-saviors-ranked-top-8-for-ios-filmmaking-apps/"><u>[Updated] Screen Saviors Ranked Top 8 for iOS Filmmaking Apps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/t-friendly-designs-for-youtube-content-creators-for-2024/"><u>Budget-Friendly Designs for YouTube Content Creators for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-the-ultimate-combo-of-virtual-reality-tech/"><u>In 2024, The Ultimate Combo of Virtual Reality Tech</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-xiaomi-redmi-a2-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Xiaomi Redmi A2? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/migliori-registratori-di-schermo-sicuri-e-affidabili-esplora-i-vantaggi-di-moveavi/"><u>Migliori Registratori Di Schermo Sicuri E Affidabili: Esplora I Vantaggi Di MoveAVI</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/optimizing-titles-and-tags-for-improved-youtube-visibility-for-2024/"><u>Optimizing Titles and Tags for Improved YouTube Visibility for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/v-joshis-financial-acumen-in-the-world-of-youtube-earnings/"><u>Sourav Joshi's Financial Acumen in the World of YouTube Earnings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/utting-room-floor-experts-share-tips-on-video-editing/"><u>The Cutting Room Floor Experts Share Tips on Video Editing</u></a></li>
 </ul></div>
 

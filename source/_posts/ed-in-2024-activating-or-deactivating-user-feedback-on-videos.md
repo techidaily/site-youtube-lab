@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Activating or Deactivating User Feedback on Videos"
-date: 2024-10-08T19:31:10.607Z
-updated: 2024-10-16T03:14:21.600Z
+date: 2024-10-17T17:17:05.875Z
+updated: 2024-10-21T16:56:19.371Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -116,19 +123,25 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -147,13 +160,6 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -169,10 +175,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -196,22 +202,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-resolved-shorts-display-issue-on-youtube/"><u>[New] 2024 Approved Resolved Shorts Display Issue on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-rookie-riches-economical-channels-for-monetization/"><u>[New] 2024 Approved Rookie Riches Economical Channels for Monetization</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-seo-innovation-pivotal-tech-to-elevate-your-vids/"><u>[New] 2024 Approved SEO Innovation Pivotal Tech to Elevate Your Vids</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-smooth-streaming-selective-stabilizer-guidebook/"><u>[New] 2024 Approved Smooth Streaming Selective Stabilizer Guidebook</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-tailoring-thumbnails-for-increased-video-engagement-on-youtube/"><u>[New] 2024 Approved Tailoring Thumbnails for Increased Video Engagement on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-the-streamers-crossroad-navigating-between-vimeo-youtube-dailymotion/"><u>[New] 2024 Approved The Streamer's Crossroad Navigating Between Vimeo, YouTube, Dailymotion</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-winning-the-subscriber-race-on-youtube/"><u>[New] 2024 Approved Winning the Subscriber Race on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-worldwide-web-watchers-10-top-youtube-stars/"><u>[New] 2024 Approved Worldwide Web Watchers 10 Top YouTube Stars</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-enhance-listening-experience-on-pc-get-x-recorder-software/"><u>[Updated] In 2024, Enhance Listening Experience on PC – Get X-Recorder Software</u></a></li>
-<li><a href="https://app-tips.techidaily.com/1-seamless-integration-setting-up-email-in-your-onlyoffice-environment-tips-and-tricks/"><u>1. Seamless Integration: Setting Up Email in Your ONLYOFFICE Environment - Tips & Tricks</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/comprehensive-fixes-to-the-logitech-f710-driver-errors-in-windows-os-lineup-from-7-through-11/"><u>Comprehensive Fixes to the Logitech F710 Driver Errors in Windows OS Lineup: From 7 Through 11</u></a></li>
-<li><a href="https://techtrends.techidaily.com/mastering-administrative-control-removing-restrictions-from-trustedinstaller-on-windows-10/"><u>Mastering Administrative Control: Removing Restrictions From TrustedInstaller on Windows 10</u></a></li>
-<li><a href="https://win-blog.techidaily.com/reactivate-your-webcam-for-google-meets-a-step-by-step-guide-to-restoring-connection/"><u>Reactivate Your Webcam for Google Meets: A Step-by-Step Guide to Restoring Connection</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/reviving-eroded-footage-with-digital-reconstruction/"><u>Reviving Eroded Footage with Digital Reconstruction</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/streamlined-editing-best-apps-compatible-with-macos-big-sur/"><u>Streamlined Editing Best Apps Compatible with macOS Big Sur</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ultimate-guide-restoring-your-macs-network-connections/"><u>Ultimate Guide: Restoring Your Mac's Network Connections 🌐✨</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/x-master-recorder-software-pc-edition/"><u>X-Master Recorder Software, PC Edition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-maximizing-yt-videos-for-igtv-presence/"><u>[New] 2024 Approved Maximizing YT Videos for IGTV Presence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-face-forward-influential-beauty-guides/"><u>[New] In 2024, The Face Forward Influential Beauty Guides</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/phones-audio-upgrade-discover-best-software-for-youtube-to-mp3/"><u>[New] IPhone's Audio Upgrade Discover Best Software for YouTube-to-MP3</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-effortless-youtube-income-computations-for-2024/"><u>[Updated] Effortless YouTube Income Computations for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-reach-for-the-millennium-1000-youtube-supporters/"><u>[Updated] In 2024, Reach for the Millennium 1,000 YouTube Supporters</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-the-ultimate-checklist-for-growing-youtube-subscribers/"><u>[Updated] In 2024, The Ultimate Checklist for Growing YouTube Subscribers</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-unveiling-the-power-of-consistency-in-your-tiktok-clone-journey-for-2024/"><u>[Updated] Unveiling the Power of Consistency in Your TikTok Clone Journey for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/windows101112/"><u>「Windows」で始める！10・11対応のベストフリー音声編集ソフトウェア12選をご紹介 - 検索最適化されたタイトル</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-xiaomi-redmi-note-12r-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Xiaomi Redmi Note 12R</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-boost-engagement-the-art-of-adding-borders-on-insta/"><u>2024 Approved Boost Engagement The Art of Adding Borders on Insta</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-efficient-tagging-techniques-to-boost-your-youtube-traffic/"><u>2024 Approved Efficient Tagging Techniques to Boost Your Youtube Traffic</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-nubia-red-magic-9-pro-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Nubia Red Magic 9 Pro</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/vating-commitment-gentle-subscription-strategies/"><u>Cultivating Commitment Gentle Subscription Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ngs-breakdown-youtubes-adsense-payments-by-thousands-of-views-for-2024/"><u>Earnings Breakdown Youtube's AdSense Payments by Thousands of Views for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/te-your-online-presence-secrets-of-youtube-live-with-wirecast/"><u>Elevate Your Online Presence Secrets of Youtube Live with WireCast</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-rise-of-the-channels-crafting-your-digital-empire/"><u>In 2024, Rise of the Channels Crafting Your Digital Empire</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlocking-iphone-6s-passcode-without-a-computer-drfone-by-drfone-ios/"><u>In 2024, Unlocking iPhone 6s Passcode without a Computer | Dr.fone</u></a></li>
 </ul></div>
 

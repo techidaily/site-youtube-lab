@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Adding Value  Instructional Design of YouTube Alerts & Annotations\""
-date: 2024-10-14T21:44:31.494Z
-updated: 2024-10-15T19:06:27.691Z
+date: 2024-10-20T16:36:38.200Z
+updated: 2024-10-21T17:33:56.634Z
 tags:
   - ai video
   - ai youtube
@@ -73,10 +73,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -90,16 +90,16 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
@@ -108,10 +108,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -153,10 +153,10 @@ No matter what kind of annotations you are using, you should never use more than
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -180,24 +180,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-xs-100-i-the-action-camera-that-transforms-moments-into-memories/"><u>[New] 2024 Approved XS 100 I The Action Camera That Transforms Moments Into Memories</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-fiscal-landmarks-understanding-mr-beasts-financial-growth/"><u>[New] In 2024, Fiscal Landmarks Understanding Mr. Beast’s Financial Growth</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-vloggers-ultimate-gear-list-17-100/"><u>[New] In 2024, Vloggers' Ultimate Gear List #17-100</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-unraveling-drone-use-in-the-now-and-next-frontier-for-2024/"><u>[New] Unraveling Drone Use in the Now & Next Frontier for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-capture-crop-and-color-correct-with-this-lists-top-5-android-apps/"><u>[Updated] Capture, Crop, and Color-Correct with This List's Top 5 Android Apps</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-celebrating-beauty-innovators-youtubes-elite-list-for-2024/"><u>[Updated] Celebrating Beauty Innovators YouTube's Elite List for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-craft-memes-for-comedy-using-adobe/"><u>[Updated] Craft Memes for Comedy Using Adobe</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-dive-into-the-art-of-asmr-recording-a-comprehensive-overview-for-2024/"><u>[Updated] Dive Into the Art of ASMR Recording – A Comprehensive Overview for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-audiovisual-power-evaluating-mirrorless-vs-dslr-cameras/"><u>[Updated] In 2024, Audiovisual Power Evaluating Mirrorless vs DSLR Cameras</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-boost-your-channels-traffic-and-value-with-innovative-hashtags/"><u>[Updated] In 2024, Boost Your Channels' Traffic & Value with Innovative Hashtags</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-harnessing-youtubes-power-for-personal-image-amplification/"><u>[Updated] In 2024, Harnessing YouTube's Power for Personal Image Amplification</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-freefire-the-30-best-tag-strategies-to-increase-views/"><u>[Updated] In 2024, Mastering FreeFire The 30 Best Tag Strategies to Increase Views</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-youtube-success-mastering-the-art-of-shorts-thumbnails/"><u>[Updated] Unlocking YouTube Success Mastering the Art of Shorts Thumbnails</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-youtube-cpm-rates-how-much-do-youtubers-make-for-2024/"><u>[Updated] YouTube CPM Rates How Much Do YouTubers Make for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-vivo-v27e-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Vivo V27e For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-advanced-techniques-for-educators-lecture-capture-on-mac/"><u>In 2024, Advanced Techniques for Educator's Lecture Capture on Mac</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-screen-recording-google-meets-on-mobile-devices/"><u>In 2024, Screen Recording Google Meets on Mobile Devices</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/industry-leaders-top-notch-free-presentation-resources/"><u>Industry Leaders Top-Notch, Free Presentation Resources</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/updated-2024-approved-what-is-ai-influencer-wondershare-virbo-glossary/"><u>Updated 2024 Approved What Is AI Influencer? | Wondershare Virbo Glossary</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-tricks-and-tips-to-bypass-hidden-video-barriers-for-2024/"><u>[New] Tricks and Tips to Bypass Hidden Video Barriers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-enhancing-follows-into-genuine-subscriptions-for-2024/"><u>[Updated] Enhancing Follows Into Genuine Subscriptions for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-viral-beats-cutting-edge-music-for-youtube-short-videos-for-2024/"><u>[Updated] Viral Beats Cutting-Edge Music for YouTube Short Videos for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-selecting-superior-capture-cards-switch-style/"><u>2024 Approved Selecting Superior Capture Cards, Switch Style</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unlocking-youtube-mastery-of-video-segmentation/"><u>2024 Approved Unlocking YouTube Mastery of Video Segmentation</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-elevate-your-sims-gaming-with-recording-expertise/"><u>In 2024, Elevate Your Sims Gaming with Recording Expertise</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-filmopedia-answer-to-inquiries/"><u>In 2024, FilmoPedia Answer to Inquiries</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-youtubes-exclusive-club-festivities-after-vidcon/"><u>In 2024, Youtube's Exclusive Club Festivities After VidCon</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-future-of-smartphones-rumored-specs-and-release-info-for-the-google-pixel-9/"><u>The Future of Smartphones: Rumored Specs and Release Info for the Google Pixel 9</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-impact-of-weather-on-syma-x8c-performance/"><u>The Impact of Weather on Syma X8C Performance</u></a></li>
 </ul></div>
 

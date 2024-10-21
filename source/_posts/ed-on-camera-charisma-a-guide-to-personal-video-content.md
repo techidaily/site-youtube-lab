@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] On-Camera Charisma  A Guide to Personal Video Content\""
-date: 2024-10-09T16:28:36.851Z
-updated: 2024-10-15T23:14:51.237Z
+date: 2024-10-19T16:44:24.158Z
+updated: 2024-10-21T17:01:09.532Z
 tags:
   - ai video
   - ai youtube
@@ -42,21 +42,7 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -72,6 +58,13 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -85,6 +78,13 @@ At the 39 second mark of the above video, electronic music producer deadmau5 is 
 You can see from how even the background and couch looks across the entire camera frame that there is no distortion or enhanced perspective.
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
 
@@ -111,10 +111,10 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tips for Making a Talking Head Video Better
@@ -124,10 +124,10 @@ To make a talking-head video more interesting, you can add some background music
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -153,20 +153,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube/"><u>[New] 2024 Approved Ryan Kaji’s Net Worth 11-Year-Old Boy Gets Highest-Paid From YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-seamless-navigation-to-your-individual-playlist-library-on-youtube/"><u>[New] 2024 Approved Seamless Navigation to Your Individual Playlist Library on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-guide-to-dynamic-youtube-openers-in-imovie/"><u>[New] 2024 Approved The Ultimate Guide to Dynamic YouTube Openers in iMovie</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-unleash-your-youtube-potential-steps-to-finding-and-managing-video-collab-partners/"><u>[New] 2024 Approved Unleash Your YouTube Potential Steps to Finding & Managing Video Collab Partners</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-unveiling-subscriber-lists-a-youtube-guide/"><u>[New] 2024 Approved Unveiling Subscriber Lists A YouTube Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-visionblend-editor/"><u>[New] 2024 Approved VisionBlend Editor</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-outros-that-grow-your-channel-faster/"><u>[New] 2024 Approved YouTube Outros that Grow Your Channel Faster</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-recording-skype-best-practices-for-pcs-and-macs/"><u>[Updated] Recording Skype Best Practices for PCs & Macs</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-achieve-peak-performance-prime-methods-for-zoom-conversion-mastery/"><u>2024 Approved Achieve Peak Performance Prime Methods for Zoom Conversion Mastery</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-enable-usb-debugging-on-a-locked-vivo-y02t-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Vivo Y02T Phone</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-itel-p40plus-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Itel P40+ phone? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-nokia-c210-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Nokia C210 Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-bypass-apple-iphone-14-passcode-easily-video-inside-drfone-by-drfone-ios/"><u>In 2024, How to Bypass Apple iPhone 14 Passcode Easily Video Inside | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-top-ranked-animation-set-for-typography/"><u>In 2024, Top-Ranked Animation Set for Typography</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-your-motorola-moto-e13-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Motorola Moto E13 Auto Does Not Work | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-craftsmanship-hub-top-after-effects-template-deals/"><u>[New] 2024 Approved Craftsmanship Hub Top After Effects Template Deals</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-closing-your-vlog-right-top-6-free-youtube-outro-tools/"><u>[New] Closing Your Vlog Right Top 6 Free YouTube Outro Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rafting-compact-cities-for-a-sustainable-future/"><u>[New] Crafting Compact Cities for a Sustainable Future</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/npacking-the-best-youtube-music-reactions-2023/"><u>[New] Unpacking the Best YouTube Music Reactions, 2023</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-exploring-youtubes-premier-news-channels-for-subscribers-for-2024/"><u>[Updated] Exploring YouTube's Premier News Channels for Subscribers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-securely-sharing-video-on-youtube-with-settings/"><u>[Updated] Securely Sharing Video on YouTube with Settings</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-4-essential-methods-for-file-delivery-to-pc/"><u>2024 Approved 4 Essential Methods for File Delivery to PC</u></a></li>
+<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-poco-f5-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/vating-your-audience-youtube-intro-excellence-with-imovie/"><u>Captivating Your Audience YouTube Intro Excellence with iMovie</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/creative-communication-techniques-unlocking-meaningful-child-interactions/"><u>Creative Communication Techniques: Unlocking Meaningful Child Interactions</u></a></li>
+<li><a href="https://review-topics.techidaily.com/play-mov-movies-on-motorola-is-it-possible-by-aiseesoft-video-converter-play-mov-on-android/"><u>Play MOV movies on Motorola , is it possible?</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/replace-sony-vegas-with-these-powerful-windows-video-editing-tools-for-2024/"><u>Replace Sony Vegas with These Powerful Windows Video Editing Tools for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/streamlining-video-submissions-from-imovie-to-vimeo/"><u>Streamlining Video Submissions From iMovie to Vimeo</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Final Fixes: Eliminate FIFA 20'S DirectX Problems Efficiently!"
-date: 2024-10-12T16:15:16.280Z
-updated: 2024-10-15T21:44:20.177Z
+date: 2024-10-16T17:12:01.179Z
+updated: 2024-10-21T16:22:31.402Z
 tags:
   - win11
   - win10
@@ -33,10 +33,10 @@ thumbnail: https://thmb.techidaily.com/8fe3e4daa8d42d226ab99d6ad95d4825a0edf9f54
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100526/7443" target="_top" id="2100526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 1: Check if you have the latest DirectX on your computer
@@ -46,13 +46,6 @@ thumbnail: https://thmb.techidaily.com/8fe3e4daa8d42d226ab99d6ad95d4825a0edf9f54
  The DirectDraw error could be caused by the**old,** **corrupt or missing DirectX** on your computer. You can follow[my previous guide](https://tools.techidaily.com/drivereasy/download/) to check if you have the latest DirectX on your computer and update it if available.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 2: Update your video card driver
 
@@ -69,18 +62,32 @@ thumbnail: https://thmb.techidaily.com/8fe3e4daa8d42d226ab99d6ad95d4825a0edf9f54
 
 ![](https://images.drivereasy.com/wp-content/uploads/2023/03/Driver-Easy-download-needed.jpg)
 3. Click**Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system. (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  which comes with full support and a**30-day money back guarantee** . You’ll be prompted to upgrade when you click Update All.  
+
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:**  You can also do it for free if you like, but it’s partly manual.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/de-update-all-rtx-3080.jpg)
 
----
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+---
 
 ### Method 3: Adjust the compatibility settings of your program
 
@@ -94,10 +101,10 @@ To do so:
 3. Once you do, run your game to see if it goes well.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ---
@@ -122,24 +129,21 @@ To do so:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-smooth-cinematography-best-stabilizers-listed/"><u>[New] 2024 Approved Smooth Cinematography Best Stabilizers Listed</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-standard-youtube-vs-creative-commons-liberty-clauses/"><u>[New] 2024 Approved Standard YouTube Vs. Creative Commons Liberty Clauses</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-streamline-your-vlogs-sound-with-effective-tips/"><u>[New] 2024 Approved Streamline Your Vlog's Sound with Effective Tips</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-top-food-youtubers-you-should-follow/"><u>[New] 2024 Approved Top Food YouTubers You Should Follow</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-transform-ideas-into-engaging-movies-using-youtube-editor/"><u>[New] 2024 Approved Transform Ideas Into Engaging Movies Using YouTube Editor</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-unboxing-the-secrets-to-stunning-shorts-thumbnails/"><u>[New] 2024 Approved Unboxing the Secrets to Stunning Shorts Thumbnails</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-visibility-restored-for-youtube-shorts-post-update/"><u>[New] 2024 Approved Visibility Restored for YouTube Shorts Post-Update</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-film-craft-mastering-thumbnail-creation-on-mobiles/"><u>[New] 2024 Approved YouTube Film Craft Mastering Thumbnail Creation on Mobiles</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-masterclass-creating-captivating-splitscreen-content/"><u>[New] 2024 Approved YouTube Masterclass Creating Captivating Splitscreen Content</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-soft-onset-showcasing/"><u>[New] In 2024, Soft Onset Showcasing</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-the-essence-of-mixed-reality-explored-for-2024/"><u>[New] The Essence of Mixed Reality Explored for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-no-frills-affordable-camera-selections/"><u>[Updated] 2024 Approved No-Frills, Affordable Camera Selections</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-unparalleled-narratives-yt-channels-worth-watching-in-23/"><u>[Updated] Unparalleled Narratives YT Channels Worth Watching in '23</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-hidden-echoes-to-silence-audacitys-technique-guide/"><u>2024 Approved Hidden Echoes to Silence Audacity's Technique Guide</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/ai-and-self-awareneress-understanding-why-chatgpt-cant-recognize-its-own-writings/"><u>AI and Self-Awareneress: Understanding Why ChatGPT Can't Recognize Its Own Writings</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Oppo Find X6? | Dr.fone</u></a></li>
-<li><a href="https://solve-help.techidaily.com/la-selection-des-top-4-gratuites-ripper-de-dvd-pour-macos-monterey-systemes-64bit-et-32bit/"><u>La Sélection Des Top 4 Gratuites Ripper De DVD Pour macOS Monterey (Systèmes 64Bit Et 32Bit)</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Motorola Edge 40 | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unveiling-the-most-shared-stock-photos-and-backstories-for-2024/"><u>Unveiling the Most Shared Stock Photos & Backstories for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-zoom-mastery-for-podcasters-a-complete-guide-to-exceptional-audio-capture/"><u>[New] Zoom Mastery for Podcasters A Complete Guide to Exceptional Audio Capture</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-create-captivating-yt-thumbnails-fast/"><u>[Updated] 2024 Approved Create Captivating YT Thumbnails Fast!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-step-by-step-backdrop-blurring-techniques-on-youtube-videos/"><u>[Updated] 2024 Approved Step-by-Step Backdrop Blurring Techniques on YouTube Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-10-best-desktop-and-online-gif-tools-ranked/"><u>[Updated] In 2024, 10 Best Desktop & Online GIF Tools Ranked</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-valorant-portraits-professional-thumbnails-made-in-a-flash/"><u>[Updated] Valorant Portraits - Professional Thumbnails Made in a Flash!</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-9-fitness-trends-to-captivate-your-online-audience-with-action/"><u>2024 Approved 9 Fitness Trends to Captivate Your Online Audience with Action</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-elevate-your-farming-game-to-immortal-status-with-these-7-14-mods/"><u>2024 Approved Elevate Your Farming Game to Immortal Status with These #7-14 Mods</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-navigating-through-channels-aesthetics-with-these-tools/"><u>2024 Approved Navigating Through Channels' Aesthetics with These Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/track-to-short-video-treasure-troves-free-access-for-2024/"><u>Fast Track to Short Video Treasure Troves (Free Access) for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-revolutionizing-videography-with-the-impressive-nikon-j5/"><u>In 2024, Revolutionizing Videography with the Impressive Nikon J5</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-vivo-v30-pro-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Vivo V30 Pro for Streaming | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-unraveling-video-platform-distinctions-a-youtube-vs-dailymention-analysis/"><u>In 2024, Unraveling Video Platform Distinctions A YouTube Vs. DailyMention Analysis</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/a-mark-with-your-first-cool-mac-video-post-on-youtube-for-2024/"><u>Make a Mark with Your First Cool Mac Video Post on YouTube for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/multi-user-android-calls-the-top-8-tools-for-2024/"><u>Multi-User Android Calls The Top 8 Tools for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/navigating-the-world-of-haul-videography-tips-and-tricks/"><u>Navigating the World of Haul Videography Tips and Tricks</u></a></li>
+<li><a href="https://windows11.techidaily.com/real-time-resource-management-tracking-cpu-memory-and-graphics/"><u>Real-Time Resource Management: Tracking CPU, Memory & Graphics</u></a></li>
 </ul></div>
 
