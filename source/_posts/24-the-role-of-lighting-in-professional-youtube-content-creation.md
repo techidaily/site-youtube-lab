@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Role of Lighting in Professional YouTube Content Creation"
-date: 2024-10-14T17:21:45.671Z
-updated: 2024-10-21T17:23:09.787Z
+date: 2024-10-20T19:52:52.134Z
+updated: 2024-10-27T08:41:52.386Z
 tags:
   - ai video
   - ai youtube
@@ -61,10 +61,10 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
@@ -74,22 +74,15 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1. Light Control
 
@@ -100,13 +93,6 @@ The first thing you’ll want to do to set up studio lighting in your home is to
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657386/16446" target="_top" id="1657386">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657386" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657386/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -122,6 +108,19 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Touch Up YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
@@ -129,6 +128,19 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -151,20 +163,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-prime-racing-game-selection-top-five/"><u>[New] 2024 Approved Prime Racing Game Selection Top Five</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/mplify-your-contents-reach-with-optimal-publishing-days/"><u>[New] Amplify Your Content's Reach with Optimal Publishing Days</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/iscovering-how-youtube-runs-its-creator-workshop/"><u>[New] Discovering How YouTube Runs Its Creator Workshop</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-oneclickfreeze-easy-screen-recording-quit/"><u>[New] In 2024, OneClickFreeze Easy Screen Recording Quit</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-preserving-your-google-voice-history-a-step-by-step-guide/"><u>[New] In 2024, Preserving Your Google Voice History A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/onetization-assessment-creators-income-gauge-for-2024/"><u>[New] Monetization Assessment Creators’ Income Gauge for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-understanding-instagrams-privacy-features-for-anonymous-livestreams/"><u>[New] Understanding Instagram's Privacy Features for Anonymous Livestreams</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-ultimate-ranking-of-top-internet-recording-tools-2023/"><u>[Updated] Ultimate Ranking of Top Internet Recording Tools 2023</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-converting-spotify-playlist-content-for-youtube-music-compatibility/"><u>2024 Approved Converting Spotify Playlist Content for YouTube Music Compatibility</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/arashi-netflix-documentary-and/"><u>ARASHI Netflix Documentary ダウンロード&レコーディング手順: ストリーミング終了後に見られるようにする</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ard-playmanship-a-guide-to-reversed-youtube-videos-for-2024/"><u>Backward Playmanship A Guide to Reversed YouTube Videos for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-install-the-latest-ios-beta-version-on-iphone-6s-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Install the Latest iOS Beta Version on iPhone 6s Plus? | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-unlocking-the-potentials-of-streamlabs-obs/"><u>In 2024, Unlocking the Potentials of Streamlabs OBS</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/professional-review-the-top-contenders-in-vertical-gaming-mice-2hemes/"><u>Professional Review: The Top Contenders in Vertical Gaming Mice - 2Hemes</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/hot-verbalizer/"><u>Snapshot Verbalizer</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-turn-on-or-off-comments-on-youtube/"><u>[New] In 2024, How to Turn on or Off Comments on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-invigorating-channel-content-best-video-concepts-to-inspire-viewers/"><u>[New] In 2024, Invigorating Channel Content Best Video Concepts to Inspire Viewers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/oshis-success-youtube-earnings-strategy-for-2024/"><u>[New] Joshi's Success YouTube Earnings Strategy for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-art-of-curating-credible-outro-vibes/"><u>[New] The Art of Curating Credible Outro Vibes</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-vimeo-tribute-spotlight-for-2024/"><u>[New] Vimeo Tribute Spotlight for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-macs-leading-10-screen-capture-and-recorder-software/"><u>[Updated] 2024 Approved Mac's Leading 10 Screen Capture & Recorder Software</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-honor-70-lite-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Honor 70 Lite 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-a-how-to-guide-on-bypassing-apple-iphone-xs-max-icloud-activation-lock-by-drfone-ios/"><u>In 2024, A How-To Guide on Bypassing Apple iPhone XS Max iCloud Activation Lock</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-realme-c67-5g-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Realme C67 5G to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/stellar-assistance-reviving-apple-quicktime-files/"><u>Stellar Assistance: Reviving Apple QuickTime Files</u></a></li>
 </ul></div>
 

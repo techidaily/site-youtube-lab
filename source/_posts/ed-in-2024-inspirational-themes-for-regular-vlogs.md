@@ -1,0 +1,187 @@
+---
+title: "[Updated] In 2024, Inspirational Themes for Regular Vlogs"
+date: 2024-10-25T03:20:02.785Z
+updated: 2024-10-26T22:35:34.314Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes [Updated] In 2024, Inspirational Themes for Regular Vlogs"
+excerpt: "This Article Describes [Updated] In 2024, Inspirational Themes for Regular Vlogs"
+keywords: "Inspire Vlog Topics,Daily Motivation Vlogs,Creative Vlog Ideas,Uplifting Vlog Content,Engaging Vlog Themes,Positive Vlog Subjects,Regular Vlog Inspiration"
+thumbnail: https://thmb.techidaily.com/6ef16648595e97873cff52eb597372e60de93b0601596509e90390a2a00c63c2.jpg
+---
+
+## Inspirational Themes for Regular Vlogs
+
+# Daily Vlogging Ideas: What to Talk about While Vlogging?
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Every genre on YouTube has its own unique challenges, but **daily vlogging** is probably the hardest thing you could take on. Firstly because it means you have to do all the work of shooting and editing every day and secondly because it means you need to have something to talk about every single day. Even vlogging once or twice a week is tough.
+
+How do you know [what you should talk about in your vlog](https://tools.techidaily.com/wondershare/filmora/download/)? Some people are so comfortable in front of the camera they can just turn it on and start talking about whatever’s on their mind, but they’re in the minority.
+
+Before starting your daily vlogging, you have to figure out one important thing ahead of time.
+
+>  Disclaimer: This post includes affiliate links
+>
+>  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
+>
+
+## Do you have a niche?
+
+  You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
+
+The other reason it’s good to have a niche is that you’ll be able to use keywords related to that niche in your video titles and tags. It’s hard to make it with a vlogging channel because nobody is searching for your content unless you are covering a specific topic like the technology they want to hear about.
+
+* [What are you watching/reading?](#watching)
+* [Snapshots of Your Day](#snapshots)
+* [Whatever You Need to Get Out](#get-out)
+* [What did you learn today?](#learn)
+
+Here are 4 things to talk about in your daily vlog:
+
+## What are you watching/reading?
+
+ If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
+
+By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
+
+## Snapshots of Your Day
+
+ Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
+
+Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
+
+## Whatever You Need to Get Out
+
+_Flula is frequently puzzled by English expressions, like 'Party Pooper', and needs to get his confusion off his chest at odd hours of the day._
+
+ Ranting about people you know can get messy when people from your offline life see it, so maybe avoid that. However, if you’re angry about something in general – or really happy about something – then whatever it is you’re feeling strongly about is probably the thing you should be vlogging about.
+
+It does not matter what it is that is making you have this strong reaction (unless, again, it’s an actual person who might see your video and cause problems for you). If you’re mad about a real injustice in the world then that’s a great thing to talk about – you might even raise some awareness for the issue – but you can also rant about your favorite flavor of yogurt being cut and that’ll be engaging to viewers too.
+
+Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
+
+## What did you learn today?
+
+ _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
+
+ You learn something new every day, right? Why not share that factoid with your viewers. Here a few facts to get you started:
+
+ Whales evolved from a land-based animal called a pakicetus.
+
+The hagfish hunt by swimming into the mouth of a larger fish and eating it from the inside.
+
+Crows live in family units, visit their aging parents, and have funerals for dead crows.
+
+The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, starve, and end up as fertilizer).
+
+Sea monkeys can survive in space.
+
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## EVERYTHING
+
+You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
+
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+## Customize Your Vlog Stories with Powerful Video Editor
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+**We’ve got a new eBook out!**
+
+It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ssential-gif-creation-best-tools-reviewed-and-compared/"><u>[New] Essential GIF Creation Best Tools Reviewed & Compared</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-sourav-joshis-predictions-on-youtube-profits-in-the-new-year/"><u>[New] In 2024, Sourav Joshi's Predictions on YouTube Profits in the New Year</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-top-10-channels-to-watch-on-igtv-daily/"><u>[New] In 2024, Top 10 Channels to Watch on IGTV Daily</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-mac-users-guide-the-5-most-acclaimed-sniping-apps-for-2024/"><u>[New] Mac Users' Guide The 5 Most Acclaimed Sniping Apps for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/p3-to-video-stream-mp3-to-youtube-in-3-easy-steps-for-2024/"><u>[New] MP3 to Video Stream MP3 to YouTube in 3 Easy Steps for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unlocking-the-power-of-zoom-with-your-chrome-os-device/"><u>[New] Unlocking the Power of Zoom with Your Chrome OS Device</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-behind-the-scenes-of-online-content-monetization/"><u>[Updated] In 2024, Behind the Scenes of Online Content Monetization</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-digital-storyboard-studio/"><u>2024 Approved Digital Storyboard Studio</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-investing-in-gaming-best-value-keyboards-and-mice-under-100/"><u>2024 Approved Investing in Gaming Best Value Keyboards and Mice Under $100</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discover-the-top-8-digital-safety-measures-for-parents/"><u>Discover the Top 8 Digital Safety Measures for Parents</u></a></li>
+<li><a href="https://games-able.techidaily.com/explore-the-boundless-possibilities-of-game-control-on-your-phonetablet/"><u>Explore the Boundless Possibilities of Game Control on Your Phone/Tablet</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-iphone-passcode-again-unlock-apple-iphone-8-plus-without-passcode-now-drfone-by-drfone-ios/"><u>Forgot iPhone Passcode Again? Unlock Apple iPhone 8 Plus Without Passcode Now | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/isolating-your-instagram-profile-from-facebook-services/"><u>Isolating Your Instagram Profile From Facebook Services</u></a></li>
+<li><a href="https://win-answers.techidaily.com/step-by-step-solution-stop-risk-of-rain-2-from-crashing-on-your-pc-or-console/"><u>Step-by-Step Solution: Stop Risk of Rain 2 From Crashing on Your PC or Console</u></a></li>
+</ul></div>
+

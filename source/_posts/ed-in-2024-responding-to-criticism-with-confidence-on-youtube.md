@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Responding to Criticism with Confidence on YouTube"
-date: 2024-09-11T14:45:36.951Z
-updated: 2024-09-12T14:45:36.951Z
+date: 2024-10-24T11:49:49.950Z
+updated: 2024-10-27T02:04:32.267Z
 tags:
   - ai video
   - ai youtube
@@ -25,19 +25,6 @@ thumbnail: https://thmb.techidaily.com/ac6fcc85e0fde61250c72c7455cdeba283035fd7f
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
-
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -67,13 +54,6 @@ thumbnail: https://thmb.techidaily.com/ac6fcc85e0fde61250c72c7455cdeba283035fd7f
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -93,5 +73,31 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-5-simple-steps-to-record-your-youtube-streams/"><u>[New] In 2024, 5 Simple Steps to Record Your YouTube Streams</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-stabilize-your-camera-without-buying-a-tripod/"><u>[New] In 2024, How to Stabilize Your Camera without Buying a Tripod?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-unlock-50-exclusive-youtube-banner-free-gifts/"><u>[New] In 2024, Unlock 50 Exclusive YouTube Banner Free Gifts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tart-streaming-sports-creating-your-own-mac-based-channel-for-2024/"><u>[New] Start Streaming Sports Creating Your Own Mac-Based Channel for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ailored-insights-setting-up-your-personalbusiness-yt-channel-mobilely-for-2024/"><u>[New] Tailored Insights Setting Up Your Personal/Business YT Channel Mobilely for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-the-ultimate-guide-to-manipulating-image-shapes/"><u>[Updated] 2024 Approved The Ultimate Guide to Manipulating Image Shapes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-an-experts-blueprint-for-calculating-your-videos-impact-and-income-for-2024/"><u>[Updated] An Expert's Blueprint for Calculating Your Video's Impact & Income for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-get-the-facts-about-youtube-keyword-research/"><u>[Updated] Get the Facts About YouTube Keyword Research</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-effortless-sound-sourcing-the-top-15-freebie-audiosites/"><u>[Updated] In 2024, Effortless Sound Sourcing The Top 15 Freebie Audiosites</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-innovative-youtube-channel-titles-the-key-to-successful-blogging-and-filmmaking-no-more-than-156-characters/"><u>[Updated] Innovative YouTube Channel Titles The Key to Successful Blogging & Filmmaking (No More than 156 Characters)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-stealthy-search-strategies-for-elusive-youtube-videos/"><u>[Updated] Stealthy Search Strategies for Elusive YouTube Videos</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/2024-approved-what-is-color-finale/"><u>2024 Approved What Is Color Finale</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-overcome-latency-problems-with-the-keyboard-on-a-windows-10-system/"><u>How to Overcome Latency Problems with the Keyboard on a Windows 10 System</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Oppo Reno 11F 5G? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-harmonic-hits-how-to-choose-the-perfect-song-for-ig-videos/"><u>In 2024, Harmonic Hits How to Choose the Perfect Song for IG Videos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-revamp-your-resonance-the-7-premier-voice-recorder-change-android-apps/"><u>In 2024, Revamp Your Resonance The 7 Premier Voice Recorder Change Android Apps</u></a></li>
+<li><a href="https://os-tips.techidaily.com/top-rated-small-form-factor-pc-cases-the-ultimate-list-for-2eetuy-2024/"><u>Top-Rated Small Form Factor PC Cases - The Ultimate List for 2Eetuy 2024</u></a></li>
+</ul></div>
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

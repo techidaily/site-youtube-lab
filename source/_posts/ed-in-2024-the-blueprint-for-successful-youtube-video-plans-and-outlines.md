@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Blueprint for Successful YouTube Video Plans and Outlines"
-date: 2024-10-15T17:26:06.003Z
-updated: 2024-10-21T18:12:56.378Z
+date: 2024-10-26T01:56:55.088Z
+updated: 2024-10-27T10:57:10.319Z
 tags:
   - ai video
   - ai youtube
@@ -56,37 +56,37 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 
 Now that you're ready to sit down and write, here's what you do:
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
@@ -111,13 +111,6 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
@@ -131,6 +124,19 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -153,15 +159,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/op-15-must-use-gaming-tags-for-skyrocketing-views-on-youtube-for-2024/"><u>[New] Top 15 Must-Use Gaming Tags for Skyrocketing Views on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-add-timestamps-to-youtube-video-to-increase-views/"><u>[Updated] 2024 Approved How to Add Timestamps to YouTube Video to Increase Views</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-cadence-captors-embrace-free-online-tempo-apps/"><u>[Updated] Cadence Captors – Embrace Free Online Tempo Apps</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-enhancing-social-reach-youtube-videos-on-facebook-sites/"><u>[Updated] Enhancing Social Reach YouTube Videos on Facebook Sites</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-unleash-the-power-of-subtitling-an-online-tool-compendium/"><u>[Updated] Unleash the Power of Subtitling An Online Tool Compendium</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-streamline-tiktok-usage-efficiently-change-user-numbers/"><u>2024 Approved Streamline TikTok Usage Efficiently Change User Numbers</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/7-ways-to-unlock-a-locked-xiaomi-14-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Xiaomi 14 Phone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-step-backward-in-time-reversing-youtube-media/"><u>In 2024, Step Backward in Time Reversing YouTube Media</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/los-maximos-recomendados-por-expertos-descubre-los-12-mejores-grabadores-de-pantalla-4k-perfecto-para-cualquier-telefono-o-computadora/"><u>Los Máximos Recomendados Por Expertos: ¡Descubre Los 12 Mejores Grabadores De Pantalla 4K Perfecto Para Cualquier Teléfono O Computadora!</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/ultimate-android-screen-recorder-options-list-for-2024/"><u>Ultimate Android Screen Recorder Options List for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nhancing-viewer-experience-with-immersive-360-video-content-for-youtube/"><u>[New] Enhancing Viewer Experience with Immersive 360 Video Content for YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hree-secure-approaches-for-youtube-to-mp3-file-conversion/"><u>[New] Three Secure Approaches for YouTube-to-MP3 File Conversion</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/our-journey-to-stylish-vlogging-a-beginners-guide-mac-edition-for-2024/"><u>[New] Your Journey to Stylish Vlogging A Beginner's Guide, Mac Edition for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-from-fresh-to-famous-a-roadmap-to-boosting-like-counts-in-tiktoks/"><u>[Updated] 2024 Approved From Fresh to Famous A Roadmap to Boosting Like Counts in TikToks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-advanced-strategies-for-youtube-audio-editing-mastery/"><u>[Updated] Advanced Strategies for YouTube Audio Editing Mastery</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-branding-in-videos-incorporating-logoswatermarks-for-youtube-content-for-2024/"><u>[Updated] Branding in Videos Incorporating Logos/Watermarks for YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unlocking-youtubes-inner-workings-your-path-to-success/"><u>[Updated] Unlocking YouTube's Inner Workings Your Path to Success</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/amelioration-efficace-de-la-fonctionnalite-pst-pour-les-utilisateurs-doutlook-sous-windows-11-trois-techniques-essentielles/"><u>Amélioration Efficace De La Fonctionnalité PST Pour Les Utilisateurs D'Outlook Sous Windows 11 - Trois Techniques Essentielles</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/easy-steps-for-seamless-compression-of-quicktime-video-files/"><u>Easy Steps for Seamless Compression of QuickTime Video Files</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-crafting-unique-360-degree-videos-on-an-iphone/"><u>In 2024, Crafting Unique 360-Degree Videos on an iPhone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-the-ultimate-guide-to-indoor-android-games-no-internet-required/"><u>In 2024, The Ultimate Guide to Indoor Android Games (No Internet Required)</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-vsdc-capture-expert-analysis-and-top-replacements/"><u>In 2024, VSDC Capture Expert Analysis & Top Replacements</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-oneplus-nord-ce-3-lite-5g-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your OnePlus Nord CE 3 Lite 5G Auto Does Not Work | Dr.fone</u></a></li>
 </ul></div>
 

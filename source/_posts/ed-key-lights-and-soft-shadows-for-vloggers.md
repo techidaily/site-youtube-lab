@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Key Lights and Soft Shadows for Vloggers"
-date: 2024-10-15T16:35:32.193Z
-updated: 2024-10-21T16:34:28.460Z
+date: 2024-10-21T13:16:20.243Z
+updated: 2024-10-26T20:39:23.061Z
 tags:
   - ai video
   - ai youtube
@@ -49,20 +49,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -92,10 +85,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -104,6 +97,13 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
@@ -111,10 +111,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,18 +138,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-conquering-green-hue-fixing-it-on-mac-for-video-editors/"><u>[New] In 2024, Conquering Green Hue Fixing It On Mac For Video Editors</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-master-the-visuals-top-tips-for-dynamic-and-appealing-live-videos/"><u>[New] In 2024, Master the Visuals Top Tips for Dynamic and Appealing Live Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-boost-your-visibility-with-a-cutting-edge-set-of-banners/"><u>[Updated] 2024 Approved Boost Your Visibility with a Cutting-Edge Set of Banners!</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-how-to-reverse-video-on-instagram/"><u>[Updated] 2024 Approved How to Reverse Video on Instagram</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-best-practices-for-youtube-card-implementation/"><u>[Updated] Best Practices for YouTube Card Implementation</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-premium-pcandroid-mkv-player/"><u>[Updated] Premium PC/Android MKV Player</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-lightning-fast-windows-evaluation-path/"><u>2024 Approved Lightning-Fast Windows Evaluation Path</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ing-income-via-youtube-ads-and-analytics-across-platforms-for-2024/"><u>Boosting Income via YouTube Ads & Analytics Across Platforms for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-xr21-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on XR21</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-smartphone-youtube-experience-apple-vs-android-review/"><u>In 2024, Smartphone YouTube Experience Apple vs Android Review</u></a></li>
-<li><a href="https://common-error.techidaily.com/overcoming-device-connection-errors-in-windows-10-complete-fix/"><u>Overcoming Device Connection Errors in Windows 10 [Complete Fix]</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/er-up-strategies-optimal-selection-for-youtube-teams/"><u>Partner Up Strategies Optimal Selection for YouTube Teams</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-realme-12plus-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Realme 12+ 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-flavorful-frontier-groundbrenant-title-strategies-for-food-networks/"><u>[New] In 2024, Flavorful Frontier Groundbrenant Title Strategies for Food Networks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-pushing-boundaries-in-video-production-acquire-free-green-screen-expertise-from-4-youtube-gurus/"><u>[New] In 2024, Pushing Boundaries in Video Production Acquire Free Green Screen Expertise From 4 YouTube Gurus</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-top-6-facebook-lite-video-downloaders-for-2024/"><u>[New] Top 6 Facebook Lite Video Downloaders for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-10-unique-video-reaction-strategies-for-online-enthusiasts/"><u>[Updated] 2024 Approved 10 Unique Video Reaction Strategies for Online Enthusiasts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-blogging-basics-for-business-beginnings/"><u>[Updated] 2024 Approved Blogging Basics for Business Beginnings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-mastering-visual-identity-top-6-sources-for-youtube-icons-and-logos/"><u>[Updated] 2024 Approved Mastering Visual Identity Top 6 Sources for YouTube Icons & Logos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-dive-deep-into-duality-mastering-multi-video-watching-on-youtube/"><u>[Updated] Dive Deep Into Duality Mastering Multi-Video Watching on YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-dissecting-the-live-stream-realm-twitch-versus-youtube/"><u>[Updated] In 2024, Dissecting the Live-Stream Realm Twitch Versus YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-storyline-secret-to-youtube-triumph/"><u>2024 Approved The Storyline Secret to YouTube Triumph</u></a></li>
+<li><a href="https://driver-install.techidaily.com/configure-canon-mx870-driver-installation-for-win-11-and-older-versions/"><u>Configure Canon MX870 Driver Installation for WIN 11 & Older Versions</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-htc-u23-pro-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on HTC U23 Pro Devices</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-itel-p55-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Itel P55 5G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/mastering-financial-kyc-protocols-through-advanced-ai-and-machine-learning-strategies-ebook/"><u>Mastering Financial KYC Protocols Through Advanced AI and Machine Learning Strategies | eBook</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-success-how-to-resolve-twitch-error-code-4000/"><u>Troubleshooting Success: How to Resolve Twitch Error Code 4000</u></a></li>
 </ul></div>
 

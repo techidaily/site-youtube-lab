@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Mystery of YouTube's Viewer Count Puzzle\""
-date: 2024-10-19T16:14:03.748Z
-updated: 2024-10-21T17:49:27.588Z
+date: 2024-10-21T09:34:41.346Z
+updated: 2024-10-26T18:25:37.241Z
 tags:
   - ai video
   - ai youtube
@@ -54,10 +54,16 @@ YouTube doesn’t provide a clear definition of what counts as a view, but we kn
 ![how YouTube counts view](https://images.wondershare.com/filmora/article-images/how-youtube-count-view.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. How Does YouTube Count Views?
@@ -88,10 +94,16 @@ We are adding ‘likely’ here because, despite this 30-second rule which has b
 Try to watch the same video numerous times in a single day. You will find that the count will add up at first, but after some time it will stop. YouTube knows that a lot of times people replay some videos over and over when they really enjoy them, and so they want to factor replays into their algorithm because they suggest quality. However, to avoid spam views, the counter will stop after a certain point.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Account Tracking Factors - Some Viewers Don't Count
@@ -105,6 +117,13 @@ Any bot-like action will result in an account’s views do not be added to your 
 ## 5\. The Skip & Skim
 
 It’s not uncommon for viewers to watch a video for say five seconds, skip forwards a bit and watch for another ten seconds as they look for a specific part. It is hard to say whether skipping through a video, but watching a scattered 30 seconds, would count as a view or not.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Frozen YouTube View Counts
 
@@ -120,13 +139,6 @@ This is why view counts are often frozen at 301\. The employees at YouTube then 
 
 During the period when the view count is frozen every legitimate view is still counted, just not added immediately. Once the YouTube team is sure that your videos are not getting fake traffic, your view count will be updated to include views that were registered during the frozen phase. However, [YouTube says](https://www.theverge.com/2015/8/5/9100759/youtube-301-view-count-freeze-going-away) it won't flag videos at 301 views anymore.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 In short, we know YouTube expects a viewer to watch a video for around 30 seconds before it counts a view, that views from suspicious accounts are not counted, and that YouTube can decide to freeze your view count while they review your views. They are protecting the site from becoming saturated with videos that only look popular because of bots. Ultimately, ‘how does YouTube count views’ isn’t a question anyone but YouTube can answer for sure, but we do know it isn’t as simple as ‘a view is someone clicking on your video’.
@@ -136,10 +148,16 @@ If you want to engage your audience with cool effects and Filmora is the best ch
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -165,22 +183,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-from-dull-to-delightful-text-that-tumbles-and-twirls/"><u>[New] 2024 Approved From Dull to Delightful Text that Tumbles and Twirls</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nhancing-youtube-videos-proper-lighting-methods-for-2024/"><u>[New] Enhancing YouTube Videos Proper Lighting Methods for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ow-to-embed-a-youtube-playlist-on-a-website-for-2024/"><u>[New] How to Embed A YouTube Playlist On a Website for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-lullaby-videos-a-study-on-sleep-inducing-stories-for-2024/"><u>[New] Lullaby Videos A Study on Sleep-Inducing Stories for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-easy-to-navigate-top-10-youtube-downloader-tools-for-2024/"><u>[Updated] Easy-to-Navigate Top 10 YouTube Downloader Tools for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-elevate-your-video-game-top-10-keyword-strategy-resources/"><u>[Updated] Elevate Your Video Game Top 10 Keyword Strategy Resources</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-enhancing-memories-date-insertion-techniques-for-photos-for-2024/"><u>[Updated] Enhancing Memories Date Insertion Techniques for Photos for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-primary-footage-document-critique-with-asides-for-2024/"><u>[Updated] Primary Footage Document Critique with Asides for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-how-to-produce-high-impact-low-cost-youtube-ads/"><u>2024 Approved How to Produce High-Impact, Low-Cost YouTube Ads?</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-srt-breakdown-core-concepts-and-applications/"><u>2024 Approved SRT Breakdown Core Concepts and Applications</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-thriving-on-youtube-the-guide-to-affiliates/"><u>2024 Approved Thriving on YouTube The Guide to Affiliates</u></a></li>
-<li><a href="https://discover-best.techidaily.com/efficient-strategies-mastering-the-art-of-shrinking-mts-videos/"><u>Efficient Strategies: Mastering the Art of Shrinking MTS Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/vision-to-value-an-all-inclusive-guide-on-analyzing-views-clicks-and-monetization/"><u>From Vision to Value An All-Inclusive Guide on Analyzing Views, Clicks, & Monetization</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-realme-gt-5-pro-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Realme GT 5 Pro</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-pioneering-methods-to-develop-a-memorable-youtube-introduction/"><u>In 2024, Pioneering Methods to Develop a Memorable YouTube Introduction</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/premium-movavi-editing-tool-suite-for-seamless-video-creation-buy-now/"><u>Premium Movavi Editing Tool Suite for Seamless Video Creation – Buy Now</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-art-of-audio-visual-storytelling-with-iphone/"><u>The Art of Audio-Visual Storytelling with iPhone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/uilding-a-solid-foundation-youtube-video-script-basics/"><u>[New] Building a Solid Foundation YouTube Video Script Basics</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-catching-every-frame-leading-windows-10-capture-tools/"><u>[New] Catching Every Frame Leading Windows 10 Capture Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-critical-platforms-offering-twitter-like-interaction/"><u>[New] Critical Platforms Offering Twitter-Like Interaction</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ediameld-mixer-for-2024/"><u>[New] MediaMeld Mixer for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/irrorless-challenge-to-dslr-who-wins-in-video/"><u>[New] Mirrorless Challenge to DSLR Who Wins in Video?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-reduce-share-and-enjoy-top-5-shortened-urls-for-youtube/"><u>[New] Reduce, Share and Enjoy Top 5 Shortened URLs for YouTube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-refined-approaches-from-obs-studio-to-facebook-screenshots-for-2024/"><u>[New] Refined Approaches From OBS Studio to Facebook Screenshots for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-selfie-to-world-stage-mastering-the-art-of-instagram-captions-for-2024/"><u>[New] Selfie to World Stage Mastering the Art of Instagram Captions for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-business-beginnings-easier-than-ever-top-10-youtube-channel-ideas/"><u>[Updated] 2024 Approved Business Beginnings Easier Than Ever Top 10 YouTube Channel Ideas</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-enhance-yt-experience-the-most-outstanding-reaction-ideas/"><u>2024 Approved Enhance YT Experience The Most Outstanding Reaction Ideas</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/finding-and-installing-the-right-printer-driver-for-your-windows-pc-guide/"><u>Finding and Installing the Right Printer Driver for Your Windows PC [GUIDE]</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-proven-ways-in-how-to-hide-location-on-life360-for-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Proven Ways in How To Hide Location on Life360 For Samsung Galaxy F14 5G | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/reboot-old-games-playing-classics-on-your-phone/"><u>Reboot Old Games: Playing Classics on Your Phone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-instability-issues-in-warframe-tips-for-smoother-gameplay/"><u>Resolving Instability Issues in Warframe: Tips for Smoother Gameplay</u></a></li>
 </ul></div>
 

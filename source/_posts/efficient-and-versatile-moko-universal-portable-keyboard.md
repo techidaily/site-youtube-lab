@@ -1,7 +1,7 @@
 ---
 title: Efficient and Versatile MoKo Universal Portable Keyboard
-date: 2024-10-14T17:49:54.824Z
-updated: 2024-10-21T17:35:42.574Z
+date: 2024-10-24T18:23:58.394Z
+updated: 2024-10-27T06:27:14.571Z
 categories:
   - BestProducts
 description: This Article Describes Efficient and Versatile MoKo Universal Portable Keyboard
@@ -48,10 +48,10 @@ Lifewire / Nick Jaynes
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
@@ -75,6 +75,13 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -88,10 +95,10 @@ Lifewire / Nick Jaynes
  Lifewire / Nick Jaynes
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Performance: Fast charging for demanding devices**
@@ -105,10 +112,10 @@ Lifewire / Nick Jaynes
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Price: Middle of the pack**
@@ -130,13 +137,6 @@ Lifewire / Nick Jaynes
  **The Anker PowerDrive 2 is the workhorse of the in-car USB charger market.**
 
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -164,18 +164,18 @@ Lifewire / Nick Jaynes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-essential-tablets-for-enhancing-photos-move-past-filmora/"><u>[New] Essential Tablets for Enhancing Photos Move Past Filmora</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-titans-clash-discovering-the-ultimate-7-grand-wars/"><u>[Updated] 2024 Approved Titans Clash Discovering the Ultimate 7 Grand Wars</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unlocking-youtubes-inner-workings-your-path-to-success/"><u>[Updated] 2024 Approved Unlocking YouTube's Inner Workings Your Path to Success</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-12-free-youtube-thumbnail-makers-to-make-your-own-video-thumbnail/"><u>2024 Approved 12 FREE YouTube Thumbnail Makers to Make Your Own Video Thumbnail</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-ace-your-edits-youtube-studios-time-saving-secrets-revealed/"><u>2024 Approved Ace Your Edits YouTube Studio's Time-Saving Secrets Revealed</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-best-of-breed-premium-4k-camera-mounts-for-pros/"><u>2024 Approved Best of Breed Premium 4K Camera Mounts for Pros</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-youtube-live-broadcasting-demystified/"><u>2024 Approved YouTube Live Broadcasting Demystified</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>3 Ways to Change Location on Facebook Marketplace for Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-infinix-smart-8-hd-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Infinix Smart 8 HD.</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On OnePlus Ace 2 | Dr.fone</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/in-2024-the-most-popular-online-video-editors-for-chromebook-users/"><u>In 2024, The Most Popular Online Video Editors for Chromebook Users</u></a></li>
-<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-realme-c33-2023-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on Realme C33 2023</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/risolvi-il-problema-del-disco-rigido-ottieni-i-tuoi-dati-persi-senza-costi-con-queste-quattro-strategie-fisse/"><u>Risolvi Il Problema Del Disco Rigido: Ottieni I Tuoi Dati Persi Senza Costi Con Queste Quattro Strategie Fisse</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/anishing-dark-pixels-from-youtube-views/"><u>[New] Banishing Dark Pixels From YouTube Views</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-crafting-content-step-by-step-guide-to-youtube-video-editing/"><u>[New] In 2024, Crafting Content Step by Step Guide to YouTube Video Editing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-discover-dynamic-channels-advanced-youtube-naming-guides/"><u>[New] In 2024, Discover Dynamic Channels Advanced YouTube Naming Guides</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-step-by-step-building-a-youtube-empire-from-scratch/"><u>[New] In 2024, Step by Step Building a YouTube Empire From Scratch</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-swift-systems-for-securing-presentations/"><u>[New] Swift Systems for Securing Presentations</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-unleashing-potential-in-virtual-collaboration-platforms/"><u>[Updated] 2024 Approved Unleashing Potential in Virtual Collaboration Platforms</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-breathe-and-stretch-with-these-expert-yogis-online-for-2024/"><u>[Updated] Breathe and Stretch with These Expert Yogis Online for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-improve-your-virtual-engagement-mastering-snap-photography/"><u>[Updated] In 2024, Improve Your Virtual Engagement Mastering Snap Photography</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-unlocking-data-in-twitter-archives/"><u>[Updated] In 2024, Unlocking Data in Twitter Archives</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/batch-converting-documents-into-ebooks-using-flipbuilder-a-step-by-step-guide/"><u>Batch Converting Documents Into eBooks Using FlipBuilder - A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/discover-iconic-cinema-essential-youtube-channels/"><u>Discover Iconic Cinema Essential YouTube Channels</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-free-music-a-producers-handbook-for-2024/"><u>Finding Free Music A Producer's Handbook for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-can-i-play-mov-files-on-galaxy-s24-by-aiseesoft-video-converter-play-mov-on-android/"><u>How can I play .mov files on Galaxy S24 ?</u></a></li>
 </ul></div>
 

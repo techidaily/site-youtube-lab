@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Cultivating Patience with YouTube Disapproval"
-date: 2024-09-11T14:44:38.992Z
-updated: 2024-09-12T14:44:38.992Z
+date: 2024-10-21T01:38:18.957Z
+updated: 2024-10-27T04:26:31.359Z
 tags:
   - ai video
   - ai youtube
@@ -25,13 +25,6 @@ thumbnail: https://thmb.techidaily.com/b57bdcbb41c7763c82190be25c28d361f666df503
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -61,13 +54,6 @@ thumbnail: https://thmb.techidaily.com/b57bdcbb41c7763c82190be25c28d361f666df503
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -87,5 +73,28 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-exploring-the-world-of-aspect-ratios-in-youtube-content/"><u>[New] 2024 Approved Exploring the World of ASPECT RATIOS in YOUTUBE Content</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-beginning-your-first-community-support-blitz-on-facebook/"><u>[New] Beginning Your First Community Support Blitz on Facebook</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-crafting-engaging-narratives-a-compreehensive-guide-to-adding-emojis-to-instagram-stories-for-2024/"><u>[New] Crafting Engaging Narratives A Compreehensive Guide to Adding Emojis to Instagram Stories for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-iphone-and-android-compared-top-youtube-app-analysis/"><u>[New] In 2024, IPhone & Android Compared Top YouTube App Analysis</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-essential-methods-for-device-capturing-applications-for-2024/"><u>[Updated] Essential Methods for Device Capturing Applications for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-navigating-the-business-of-home-produced-videos/"><u>[Updated] Navigating the Business of Home-Produced Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-professional-video-recorder-for-windows-pcs-for-2024/"><u>[Updated] Professional Video Recorder for Windows PCs for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-editors-compendium-top-devices-transforming-media-projects/"><u>2024 Approved Editor's Compendium Top Devices Transforming Media Projects</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-from-content-creator-to-earnings-expert-on-youtube/"><u>2024 Approved From Content Creator to Earnings Expert on YouTube</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/another-computer-is-using-the-printer-solved/"><u>Another Computer Is Using the Printer [Solved]</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/akers-choice-for-steady-videos-for-2024/"><u>Filmmaker's Choice for Steady Videos for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-enable-and-fix-roku-closed-captions-not-working-issue/"><u>How to Enable and Fix Roku Closed Captions Not Working Issue</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/jumpstart-your-fitness-journey-essential-exercise-tunes/"><u>Jumpstart Your Fitness Journey Essential Exercise Tunes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/egic-hashing-techniques-for-success-in-youtube-game-vids/"><u>Strategic Hashing Techniques for Success in YouTube Game Vids</u></a></li>
+</ul></div>
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

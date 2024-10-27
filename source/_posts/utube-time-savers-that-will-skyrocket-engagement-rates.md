@@ -1,7 +1,7 @@
 ---
 title: "20 YouTube Time Savers That Will Skyrocket Engagement Rates"
-date: 2024-10-14T17:05:38.223Z
-updated: 2024-10-21T18:08:50.829Z
+date: 2024-10-24T08:04:59.145Z
+updated: 2024-10-26T16:28:26.485Z
 tags:
   - ai video
   - ai youtube
@@ -65,13 +65,6 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -80,6 +73,13 @@ This category contains information on increasing or decreasing the playback spee
 | ---------------------- | ----------------------- |
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
 
@@ -94,16 +94,10 @@ This category talks about managing the video captions using the shortcut keys:
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
 <!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 5: Managing the Audio Video
@@ -117,10 +111,10 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↓'               | Decrease volume by 5% |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
@@ -149,6 +143,13 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -171,13 +172,6 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -199,19 +193,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ssential-steps-to-implement-video-card-anchors-on-youtube-for-2024/"><u>[New] Essential Steps to Implement Video Card Anchors on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-step-by-step-guide-to-creating-popular-youtube-openings/"><u>[New] In 2024, Step-by-Step Guide to Creating Popular YouTube Openings</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-satirical-graphics-memes-made-easy-by-kapwing/"><u>[New] Satirical Graphics Memes Made Easy by Kapwing</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/outube-cpm-rates-how-much-do-youtubers-make-for-2024/"><u>[New] YouTube CPM Rates How Much Do YouTubers Make for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-rapid-video-capture-software-w-audible-commentaries/"><u>[Updated] 2024 Approved Rapid Video Capture Software W/ Audible Commentaries</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-innovating-in-the-digital-age-making-stellar-fb-reels-on-youtube/"><u>[Updated] In 2024, Innovating in the Digital Age Making Stellar FB Reels on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-video-text-synthesizer/"><u>[Updated] In 2024, Video Text Synthesizer</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-picture-in-progressive-screen-mastery-for-chrome-users-across-platforms/"><u>[Updated] Picture in Progressive Screen Mastery for Chrome Users Across Platforms</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-expert-advice-at-your-screen-the-finest-15-stock-channels/"><u>2024 Approved Expert Advice at Your Screen The Finest 15 Stock Channels</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-leveraging-youtube-luck-a-no-ad-earnings-blueprint-for-content-masters/"><u>2024 Approved Leveraging YouTube Luck A No-Ad Earnings Blueprint for Content Masters</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Lava Blaze 2? | Dr.fone</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/outlining-a-strategy-for-integrating-multimedia-elements-such-as-images-or-videos-to-enhance-user-engagement-and-dwell-time-on-your-guide/"><u>Outlining a Strategy for Integrating Multimedia Elements Such as Images or Videos to Enhance User Engagement and Dwell Time on Your Guide.</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-realme-gt-5-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Realme GT 5 to Other Android Devices | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/windows-10s-inbuilt-troubleshooting-tools-for-effortless-automatic-repairs/"><u>Windows 10'S Inbuilt Troubleshooting Tools for Effortless Automatic Repairs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-explore-the-top-7-innovative-apps-for-effortless-youtube-live-broadcasts-on-iphone-and-android/"><u>[New] In 2024, Explore the Top 7 Innovative Apps for Effortless YouTube LIVE Broadcasts on iPhone and Android</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-pick-the-best-days-to-post-on-youtube/"><u>[New] In 2024, Pick the Best Days to Post on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-perfect-pixels-in-a-minute-quick-fixes-with-studio-editor/"><u>[Updated] In 2024, Perfect Pixels in a Minute Quick Fixes with Studio Editor</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-expand-your-reach-top-tactics-to-amplify-fb-clout/"><u>2024 Approved Expand Your Reach Top Tactics to Amplify FB Clout</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-unfortunately-settings-has-stopped-on-oppo-a1x-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Unfortunately Settings Has Stopped on Oppo A1x 5G Quickly | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-vivo-y200-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Vivo Y200 to Roku | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/in-2024-hackers-defeat-reclaiming-account-pages/"><u>In 2024, Hacker's Defeat Reclaiming Account Pages</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-leapfrogging-into-digital-marketing-establishing-a-yt-channel-on-mobile/"><u>In 2024, Leapfrogging Into Digital Marketing Establishing a YT Channel on Mobile</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/top-8-essential-steam-deck-gadgets-and-peripherals-you-must-have/"><u>Top 8 Essential Steam Deck Gadgets and Peripherals You Must Have</u></a></li>
 </ul></div>
 

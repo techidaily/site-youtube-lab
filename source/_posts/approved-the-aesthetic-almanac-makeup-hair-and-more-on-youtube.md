@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Aesthetic Almanac  Makeup, Hair & More on YouTube\""
-date: 2024-10-16T16:59:35.155Z
-updated: 2024-10-21T16:42:20.546Z
+date: 2024-10-24T03:15:44.358Z
+updated: 2024-10-27T13:32:05.884Z
 tags:
   - ai video
   - ai youtube
@@ -100,13 +100,6 @@ Here are some common types of beauty and lifestyle videos:
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -129,10 +122,10 @@ Make sure to link to your channel so they can verify what you say (do not hide y
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Simple Camera Setup for Beauty Vloggers**
@@ -160,13 +153,6 @@ You might want to experiment with sitting at different distances to see how the 
 
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
 
 **_Step 4:_** Adjust your camera’s focus so your picture is clear. You may need to set up a lamp, chair, or stuffed animal as a stand-in for yourself while you stand behind the camera adjusting the focus.
@@ -179,6 +165,13 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
@@ -188,10 +181,10 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Lighting for Beauty**
@@ -230,6 +223,13 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -240,13 +240,6 @@ One cool feature of the Neewer Ring Light is that you can choose between dayligh
 
 ![Neewer Ring Light ](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
 
 #### 2\. [**Prismatic Halo Ring Light**](https://www.amazon.com/Prismatic-Halo-Ring-Light-Stand/dp/B015NJ2YHY/ref=sr%5F1%5F3?s=electronics&ie=UTF8&qid=1530135663&sr=1-3&keywords=prismatic+18%22+halo+ring+light) **\- $260**
@@ -254,6 +247,13 @@ This light is dimmable and can be adjusted to the angle that suits your shot. Th
 This lightweight ring light is easy to transport, set up, and mount your phone or camera to. It’s a fluorescent ‘daylight’ (5400K) light, so the colors in your videos will look natural.
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Build Your Own Diva Ring Light**
 
@@ -318,10 +318,10 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -345,17 +345,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-turbocharge-your-instagram-videos-online-tactics/"><u>[New] 2024 Approved Turbocharge Your Instagram Videos Online Tactics</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-8-superb-tablet-titans-to-take-your-photo-editing-skills-further-for-2024/"><u>[New] 8 Superb Tablet Titans to Take Your Photo Editing Skills Further for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-deciphering-how-to-spot-your-video-enthusiasts/"><u>[New] In 2024, Deciphering How to Spot Your Video Enthusiasts</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/tarting-a-channel-with-confidence-your-essential-kit/"><u>[New] Starting a Channel with Confidence – Your Essential Kit</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-tune-into-the-beats-with-these-free-online-scanners/"><u>[New] Tune Into the Beats with These Free Online Scanners</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-command-the-stage-of-youtube-with-studio-skills/"><u>[Updated] Command the Stage of YouTube with Studio Skills</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-how-to-block-youtube-ads-on-chromefirefoxandroidiphone-for-2024/"><u>[Updated] How to Block YouTube Ads on Chrome/Firefox/Android/iPhone for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-jake-paul-from-dabbing-to-dominance-youtube-triumph-for-2024/"><u>[Updated] Jake Paul From Dabbing to Dominance - YouTube Triumph for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-dissecting-insta-video-selfie-validation-necessary-or-not/"><u>2024 Approved Dissecting Insta Video Selfie Validation – Necessary or Not?</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fix-obs-studio-no-longer-capturing-video-feed/"><u>Fix: OBS Studio No Longer Capturing Video Feed</u></a></li>
-<li><a href="https://win-forum.techidaily.com/the-quintessential-quartet-understanding-facebook-twitter-instagram-and-youtubes-impact/"><u>The Quintessential Quartet: Understanding Facebook, Twitter, Instagram & YouTube's Impact</u></a></li>
-<li><a href="https://fox-making.techidaily.com/unraveling-the-truth-about-https-does-it-always-guarantee-website-security/"><u>Unraveling the Truth About HTTPS - Does It Always Guarantee Website Security?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-future-of-techno-gaming-revenue/"><u>[New] 2024 Approved Future of Techno-Gaming Revenue</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-see-your-subscribers-on-youtube/"><u>[New] 2024 Approved How to See Your Subscribers on YouTube</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-macos-2023-update-from-youtube-to-high-quality-mp3s/"><u>[New] 2024 Approved MacOS 2023 Update From YouTube to High-Quality MP3s</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-a-beginners-guide-to-elevating-auditory-experiences-on-youtube/"><u>[New] In 2024, A Beginner's Guide to Elevating Auditory Experiences on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-online-income-from-youtubes-adsense-to-direct-payments-for-2024/"><u>[New] Mastering Online Income From YouTube's AdSense to Direct Payments for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/aximizing-your-monetary-gains-from-mobile-youtube-channels-2024-guide/"><u>[New] Maximizing Your Monetary Gains From Mobile YouTube Channels - 2024 Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-perfectly-positioned-cards-youtube-embedding-techniques/"><u>2024 Approved Perfectly Positioned Cards YouTube Embedding Techniques</u></a></li>
+<li><a href="https://win11.techidaily.com/conquering-recurring-crash-code-9999-in-windows-and-audacity/"><u>Conquering Recurring Crash Code 9999 in Windows and Audacity</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-magic-5-pro-phone-without-pin-by-drfone-android/"><u>How to Unlock Honor Magic 5 Pro Phone without PIN</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-wont-back-up-to-icloud-9-fixes-to-try/"><u>IPhone Won't Back Up to iCloud? 9 Fixes to Try</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/tales-of-timeless-togetherness-this-seasons-top-10/"><u>Tales of Timeless Togetherness This Season's Top 10</u></a></li>
+<li><a href="https://network-issues.techidaily.com/tighten-monitor-border-clarity/"><u>Tighten Monitor Border Clarity</u></a></li>
+<li><a href="https://techtrends.techidaily.com/twitter-chat-101-learn-the-essentials-for-active-engagement/"><u>Twitter Chat 101: Learn the Essentials for Active Engagement</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-unlock-your-chromebook-how-to-run-linux/"><u>Updated Unlock Your Chromebook How to Run Linux</u></a></li>
 </ul></div>
 

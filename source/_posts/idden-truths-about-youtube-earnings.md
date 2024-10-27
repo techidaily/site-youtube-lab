@@ -1,7 +1,7 @@
 ---
 title: "The Hidden Truths About YouTube Earnings"
-date: 2024-10-19T17:24:00.300Z
-updated: 2024-10-21T17:46:34.168Z
+date: 2024-10-20T22:19:57.289Z
+updated: 2024-10-27T07:31:23.120Z
 tags:
   - ai video
   - ai youtube
@@ -53,10 +53,16 @@ In order to qualify for YouTube monetization, you must meet these milestones.
  _Trying to get monetization on YouTube can feel like this._
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Why YouTube Changed the Monetization Rules
@@ -64,10 +70,10 @@ In order to qualify for YouTube monetization, you must meet these milestones.
 YouTube’s reasoning for these changes is essentially the same as they gave for the 10,000 views milestone: having higher standards will help them prevent inappropriate or stolen content from being monetized. They also point out that the majority of channels affected will not have been making any significant money anyways (less than $2.50 per month, in most cases).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Do the Changes Affect Small YouTube Channels
@@ -77,6 +83,13 @@ However, even if the immediate financial impact won’t be that financially sign
   That will be a question facing a lot of smaller YouTubers, especially those who have already reached 1,000 subscribers and are now in a situation where they have to maintain those 4,000 hours of watch time. You won't be cut off from monetization automatically if you fall from 4,000 hours to 3,500 hours one month (after already having monetized your channel), but YouTube may review your channel and remove monetization if time passes and you still haven't gotten back up to 4,000 hours.
 
 These new rules could also put niche channels at a disadvantage. Niche channels may have devoted followers who keep their watch time up, but getting to 1,000 subscribers could be harder for them purely because their potential audience is already smaller.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Join The Conversation
 
@@ -102,13 +115,6 @@ Cough. Logan Paul. Cough.
 
 [How to Edit a YouTube Video and Get More Subscribers](https://www.filmora.io/community-blog/how-to-edit-a-youtube-video-and-get-more-subscribers-281.html)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Don't Give Up
 
 I risk sounding cheesy here, but I hope nobody gives up on their dreams as creators over something like this. Wanting to be paid for doing what you love is only natural, and you can still get there (YouTube monetization isn't even the only way). There may even be better opportunities to generate revenue when you do. In the long run, this could be a good thing for YouTube. Nobody can really know yet.
@@ -118,10 +124,10 @@ How do you get subscribers, or increase your watch time? If you have any tips, s
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -145,20 +151,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-foreground-emphasis-tips-for-logitech-video-recordings-for-2024/"><u>[New] Foreground Emphasis Tips for Logitech Video Recordings for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/rom-shots-to-screens-the-importance-of-camera-lenses-in-vlogs/"><u>[New] From Shots to Screens The Importance of Camera Lenses in Vlogs</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/avigating-through-youtubes-revenue-flow-after-monetization-for-2024/"><u>[New] Navigating Through YouTube's Revenue Flow After Monetization for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-tips-for-higher-youtube-traction-with-persistent-creative-commons-usage/"><u>[Updated] 2024 Approved Tips for Higher YouTube Traction with Persistent Creative Commons Usage</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-quick-vid-overview-top-tips-and-facts-now/"><u>[Updated] In 2024, Quick Vid Overview Top Tips & Facts Now!</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-ultimate-hitchhikers-guide-to-youtube-playlists/"><u>[Updated] In 2024, The Ultimate Hitchhiker's Guide to YouTube Playlists</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-an-in-depth-review-of-dji-drone-model-3s-performance/"><u>2024 Approved An In-Depth Review of DJI Drone Model 3'S Performance</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-how-hdr-shifts-the-paradigm-of-video-quality-standards/"><u>2024 Approved How HDR Shifts the Paradigm of Video Quality Standards</u></a></li>
-<li><a href="https://program-issues.techidaily.com/crusader-kings-ii-wont-start-troubleshooting-steps-to-fix-the-issue/"><u>Crusader Kings II Won't Start? Troubleshooting Steps to Fix the Issue</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/tless-earnings-channel-size-no-longer-a-challenge/"><u>Effortless Earnings Channel Size No Longer a Challenge</u></a></li>
-<li><a href="https://discover-cheats.techidaily.com/file-recovery-mastery-effective-strategies-to-resurrect-data-on-various-windows-versions/"><u>File Recovery Mastery: Effective Strategies to Resurrect Data on Various Windows Versions</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-detailed-review-of-doctorsim-unlock-service-for-apple-iphone-15-plus-drfone-by-drfone-ios/"><u>In 2024, Detailed Review of doctorSIM Unlock Service For Apple iPhone 15 Plus | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-discovering-how-youtube-runs-its-creator-workshop/"><u>In 2024, Discovering How YouTube Runs Its Creator Workshop</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-music-from-p60-by-fonelab-android-recover-music/"><u>Undelete lost music from P60</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ommon-issues-with-youtube-shorts-thumbnails-for-2024/"><u>[New] Common Issues with YouTube Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xpress-individuality-with-youtube-backgrounds/"><u>[New] Express Individuality with YouTube Backgrounds</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unlock-joy-behind-the-walls-20-funniest-fb-detainment-scenarios/"><u>[New] In 2024, Unlock Joy Behind the Walls 20 Funniest Fb Detainment Scenarios</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/remier-screen-capture-device-essential-for-video-sharers-for-2024/"><u>[New] Premier Screen Capture Device Essential for Video Sharers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-elevate-your-channels-popularity-with-12-key-growth-techniques/"><u>[Updated] In 2024, Elevate Your Channel's Popularity with 12 Key Growth Techniques</u></a></li>
+<li><a href="https://win-unique.techidaily.com/1-quick-guide-seamlessly-moving-4k-footage-from-iphone-to-laptop/"><u>1. Quick Guide: Seamlessly Moving 4K Footage From iPhone to Laptop</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-how-to-authenticate-your-yt-account-a-hint-list/"><u>2024 Approved How to Authenticate Your YT Account? A Hint List</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/enhancing-learning-through-educational-videos/"><u>Enhancing Learning Through Educational Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-motorola-razr-40-ultra-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Motorola Razr 40 Ultra</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-combat-black-screen-disruptions-in-gaming-feeds/"><u>In 2024, Combat Black Screen Disruptions in Gaming Feeds</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-xiaomi-redmi-13c-5g-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Xiaomi Redmi 13C 5G</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-14-apples-new-iphone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 14, Apples New iPhone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Infinix Note 30 Pro? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/unlock-android-phone-if-you-don-t-have-infinix-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you don't have Infinix fingerprint</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ling-the-best-mobile-tools-to-pull-videos-from-youtube/"><u>Unveiling the Best Mobile Tools to Pull Videos From YouTube</u></a></li>
 </ul></div>
 

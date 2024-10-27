@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Visual Identity  Top 6 Sources for YouTube Icons & Logos\""
-date: 2024-10-18T16:59:08.645Z
-updated: 2024-10-21T17:35:16.552Z
+date: 2024-10-21T10:01:40.459Z
+updated: 2024-10-27T01:12:35.619Z
 tags:
   - ai video
   - ai youtube
@@ -79,13 +79,6 @@ Flaticon has a great selection, it’s free, and they make it really easy to edi
 
 Flaticon asks that you include an “Icon made by \[author link\] from <www.flaticon.com> ” somewhere (i.e. video description, channel ‘about’ section) when you use their icons for free.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. [Freepik.com](https://www.freepik.com/)
 
 **Key Points:**
@@ -119,7 +112,27 @@ I searched for YouTube – you never know when you might need the YouTube logo.
 
 ![ YouTube Logo Icon on Seeklogo](https://images.wondershare.com/filmora/article-images/youtube-icons-logos-on-seeklogo.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Although the site does not advertise PNG in the list of formats on their front page, downloads do include PNG versions (which is useful if you need transparency and don’t have a program which can edit vector files, like .eps).
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. [IconArchive.com](http://www.iconarchive.com/)
 
@@ -133,10 +146,10 @@ IconArchive has a huge selection of icons with somewhat of an office/business sl
 ![ YouTube Logo Icon on IconArchive](https://images.wondershare.com/filmora/article-images/icons-logos-on-iconarchive.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _Could be cool for a lifestyle video about school or work?_
@@ -146,10 +159,10 @@ My favorite thing about IconArchive is its search features. It allows you to fil
 ![ YouTube Logo Icon on IconArchive Editing](https://images.wondershare.com/filmora/article-images/edit-icons-logos-on-iconarchive.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Color is under ‘Display’, meaning that it won’t filter out results that have different colors it’ll just list the color you select first.
@@ -161,16 +174,16 @@ Downloads are available in different sizes and formats including PNG. PNG is alw
 Note that all of your different download buttons will be located underneath your image. They favor those ads that look like ‘download’ or ‘start now’ buttons, and the ads sit right next to the images on the right, so it’s easy to get confused and click on the ad.
 
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. [Logaster.com](https://www.logaster.com/)
@@ -191,23 +204,9 @@ In Step 1 it’ll ask for your company name and an activity type. You just need 
 
 ![ YouTube Logo Icon on Logaster Start Window](https://images.wondershare.com/filmora/article-images/branding-icons-logos-on-logaster.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 My heart burns with the secret desire to be YouTube’s Neil Degrasse Tyson (it doesn’t really, but he is super cool) so I tried ‘Katie Does Science’ and ‘Science, Studies, Education’. Here’s what it came up with:
 
 ![ YouTube Logo Icon on Logaster](https://images.wondershare.com/filmora/article-images/branding-icons-logos-suggestions-on-logaster.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _There are 10 pages of suggestions!_
 
@@ -216,13 +215,6 @@ You can see how, unless you have a short channel name, you’re probably not goi
 After you click ‘save’ in the last step you’ll be prompted to provide an email address and password. Once you sign in, you’ll be able to download a small logo for free, or purchase the higher resolution image.
 
 I personally wouldn’t recommend buying an image from here unless your channel is for your small business and you need things like branded business cards and letterhead. This site might be better for gathering inspiration than actually downloading a logo from.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. [Icons8.com](https://icons8.com/)
 
@@ -239,6 +231,19 @@ You will also need to link to Icons8 if you use their icons for free (i.e. in th
 To get started on Icons8, type something into the search bar on the home page that you think might work as an icon or as part of whatever graphics you have planned. I typed in ‘game’ for this one, since gaming is the biggest genre on YouTube. Here are a few of the results that came up:
 
 ![ Gaming Logo Icon on Icons8](https://images.wondershare.com/filmora/article-images/gaming-icons-logos-on-icons8.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _Lower down in the results there were different kinds of sports balls, hand-held gaming systems, playing cards, joy sticks, baseball caps and more._
 
@@ -272,6 +277,13 @@ After downloading the icons or logos, it is time to add them to your YouTube vid
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -293,24 +305,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/ind-friends-in-fandoms-forums-for-2024/"><u>[New] Find Friends in Fandom's Forums for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-crafting-compact-cities-for-a-sustainable-future/"><u>[New] In 2024, Crafting Compact Cities for a Sustainable Future</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-from-zero-to-hero-youtube-tech-required/"><u>[New] In 2024, From Zero to Hero YouTube Tech Required</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-three-legal-and-safe-methods-of-downloading-youtube-tunes/"><u>[New] In 2024, Three Legal & Safe Methods of Downloading YouTube Tunes</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/asterclass-in-eliminating-youtube-content/"><u>[New] Masterclass in Eliminating YouTube Content</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-path-to-longer-instagram-vids-a-comprehensible-approach-for-2024/"><u>[New] The Path to Longer Instagram Vids A Comprehensible Approach for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-choosing-the-right-format-boosting-your-youtube-videos-performance/"><u>[Updated] In 2024, Choosing the Right Format – Boosting Your YouTube Videos’ Performance</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-how-to-record-powerpoint-presentation-with-webcam/"><u>[Updated] In 2024, How to Record PowerPoint Presentation with Webcam</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-your-life-your-legacy-youtube-videos-that-matter-for-2024/"><u>[Updated] Your Life, Your Legacy YouTube Videos That Matter. For 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/1-resolved-troubleshooting-unplayable-mkv-files-on-windows-media-player/"><u>1. Resolved: Troubleshooting Unplayable MKV Files on Windows Media Player</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-the-most-exciting-gaming-consoles-dominating-2024/"><u>Discover the Most Exciting Gaming Consoles Dominating 2024</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/effortlessly-restore-unintentionally-lost-voicemails-top-techniques-explored/"><u>Effortlessly Restore Unintentionally Lost Voicemails: Top Techniques Explored</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-a-comprehensive-guide-to-apple-iphone-7-plus-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to Apple iPhone 7 Plus Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-smartphone-viewing-at-its-peak-top-10-free-video-streamers/"><u>In 2024, Smartphone Viewing at Its Peak Top 10 Free Video Streamers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-unveiling-income-insights-a-triple-step-technique-for-tracking-youtube-revenue/"><u>In 2024, Unveiling Income Insights A Triple Step Technique for Tracking YouTube Revenue</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/in-depth-review-of-twelve-souths-bookarc-flex-nearly-ideal-support-for-your-macbook/"><u>In-Depth Review of Twelve South's BookArc Flex - Nearly Ideal Support for Your MacBook</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/by-step-guide-transforming-viewers-into-profit/"><u>Step-By-Step Guide Transforming Viewers Into Profit</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/the-best-text-voice-generators-for-all-platforms/"><u>The Best Text Voice Generators for All Platforms</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/king-the-vault-the-wealth-of-mr-beast/"><u>Unlocking the Vault The Wealth of Mr. Beast</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-exceptional-7-cameras-elevating-online-educational-vlogs/"><u>[New] In 2024, Exceptional 7 Cameras Elevating Online Educational Vlogs</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-newcomers-elite-entryway-list-for-zooids/"><u>[New] In 2024, Newcomers’ Elite Entryway List for Zooids</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-achieving-professional-level-youtube-streams-using-wirecast-for-2024/"><u>[Updated] Achieving Professional-Level Youtube Streams Using WireCast for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-boost-your-chances-strategic-keywords-for-youtubers-for-2024/"><u>[Updated] Boost Your Chances Strategic Keywords for YouTubers for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-the-art-of-edible-entertainment-7-steps-to-perfect-plating-on-camera/"><u>[Updated] The Art of Edible Entertainment 7 Steps to Perfect Plating on Camera</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/st-watch-historical-channels-for-students/"><u>10 Must-Watch Historical Channels for Students</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-from-end-to-start-annoying-yourself-with-yt-playlist-upside-down/"><u>2024 Approved From End to Start Annoying Yourself with YT Playlist Upside-Down</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-master-your-youtube-banner-essential-guide-for-creators/"><u>2024 Approved Master Your YouTube Banner Essential Guide for Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-art-of-tweaking-soundtracks-in-youtube-videos/"><u>2024 Approved The Art of Tweaking Soundtracks in YouTube Videos</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-vivo-x100-pro-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Vivo X100 Pro | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-realme-c33-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/discover-powerful-tagging-tactics-a-guide-to-amplifying-freegame-content/"><u>Discover Powerful Tagging Tactics A Guide to Amplifying FreeGame Content</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/engage-and-enthrall-viewers-gaming-via-obs-studio-for-2024/"><u>Engage and Enthrall Viewers Gaming via OBS Studio for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-10-password-cracking-tools-for-poco-x5-by-drfone-android/"><u>Top 10 Password Cracking Tools For Poco X5</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-ranked-gaming-desktops-and-pcs-a-comprehensive-guide/"><u>Top-Ranked Gaming Desktops & PCs : A Comprehensive Guide</u></a></li>
 </ul></div>
 

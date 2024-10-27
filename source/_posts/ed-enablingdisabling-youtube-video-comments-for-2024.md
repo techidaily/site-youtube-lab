@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Enabling/Disabling YouTube Video Comments for 2024"
-date: 2024-10-18T17:17:14.141Z
-updated: 2024-10-21T16:00:51.164Z
+date: 2024-10-26T13:31:15.193Z
+updated: 2024-10-27T01:09:28.715Z
 tags:
   - ai video
   - ai youtube
@@ -116,19 +116,19 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -148,10 +148,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -169,10 +169,16 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -196,22 +202,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-enhance-your-media-with-top-free-android-editing-tools/"><u>[New] 2024 Approved Enhance Your Media with Top Free Android Editing Tools</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-youtube-to-webm-the-10-best-youtube-to-webm-converters/"><u>[New] In 2024, YouTube to WebM The 10 Best YouTube to WebM Converters</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-safeguarding-photos-best-software-guide-uncovered/"><u>[Updated] 2024 Approved Safeguarding Photos Best Software Guide Uncovered</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-channel-your-creativity-convert-youtube-clips-into-dynamic-gifs-for-2024/"><u>[Updated] Channel Your Creativity Convert YouTube Clips Into Dynamic Gifs for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-decoding-the-mysteries-of-effective-youtube-keywords/"><u>[Updated] Decoding the Mysteries of Effective YouTube Keywords</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-how-to-convert-youtube-tracks-to-mp3-safely-the-3-best-ways/"><u>[Updated] In 2024, How To Convert YouTube Tracks to MP3 Safely - The 3 Best Ways</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-top-creators-revolutionizing-virtual-environments-for-2024/"><u>[Updated] Top Creators Revolutionizing Virtual Environments for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1726029907918-mp4-6/"><u>有料なしで安心のMP4変換ソフトをご紹介 - 6つのおすすめ選考</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/p-dive-into-the-fundamentals-of-youtube-shorts-for-2024/"><u>A Deep Dive Into The Fundamentals of YouTube Shorts for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/choosing-between-bandicam-and-camtasia-for-2024/"><u>Choosing Between Bandicam & Camtasia for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/sive-free-mcb-visual-tools/"><u>Exclusive Free MCB Visual Tools</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-innovative-mc-shelter-design-tips/"><u>In 2024, Innovative MC Shelter Design Tips</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-masterclass-in-glamour-beauty-tutorials-for-all/"><u>In 2024, Masterclass in Glamour Beauty Tutorials for All</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-precise-codex-of-conduct-in-the-digital-realm/"><u>In 2024, Precise Codex of Conduct in the Digital Realm</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/isomp43/"><u>ISOファイルをスムーズにMP4に変換する方法トップ3！📹✨ベストツール・詳細な作業手順</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-most-effective-ways-to-bypass-apple-iphone-13-mini-activation-lock-by-drfone-ios/"><u>The Most Effective Ways to Bypass Apple iPhone 13 mini Activation Lock</u></a></li>
-<li><a href="https://windows11.techidaily.com/your-guide-to-selecting-a-new-window-home-or-premium-edition/"><u>Your Guide to Selecting a New Window : Home or Premium Edition</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-economic-escalade-of-ajey-and-carryminati-on-youtube/"><u>[New] 2024 Approved The Economic Escalade of Ajey and CarryMinati on YouTube</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-free-licensed-soundtracks-for-gamers-a-complete-list/"><u>[New] Free, Licensed Soundtracks for Gamers - A Complete List</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-crafting-compelling-short-videos-for-youtube-a-top-10-list/"><u>[Updated] 2024 Approved Crafting Compelling Short Videos for YouTube - A Top 10 List</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-aurora-vs-standard-hd-is-the-premium-worth-it-in-2024/"><u>[Updated] Aurora vs Standard HD Is the Premium Worth It, In 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-high-definition-aesthetics-exclusive-top-15-lut-selection-for-gopro/"><u>2024 Approved High-Definition Aesthetics Exclusive Top 15 LUT Selection for GOPRO</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-ios-meets-android-an-in-depth-look-at-facial-tech/"><u>2024 Approved IOS Meets Android An In-Depth Look at Facial Tech</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-17-techniques-to-log-digital-broadcasts/"><u>2024 Approved Mastering 17 Techniques to Log Digital Broadcasts</u></a></li>
+<li><a href="https://win-dash.techidaily.com/hassle-free-corsair-void-pro-driver-install-on-windows-beginners-guide/"><u>Hassle-Free Corsair Void Pro Driver Install on Windows - Beginner's Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-bridging-platforms-loop-ready-setups-for-youtube-and-tv/"><u>In 2024, Bridging Platforms Loop-Ready Setups for YouTube and TV</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-no-money-just-screen-time-how-to-record-youtube/"><u>In 2024, No Money, Just Screen Time How To Record YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-complete-guide-to-earnings-via-video-ads-on-youtube/"><u>In 2024, The Complete Guide to Earnings via Video Ads on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ring-youtube-autoplay-on-mobile-devices-for-2024/"><u>Mastering YouTube Autoplay on Mobile Devices for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/overcoming-common-keyboard-problems-a-comprehensive-guide-to-fixing-unresponsive-keys/"><u>Overcoming Common Keyboard Problems: A Comprehensive Guide to Fixing Unresponsive Keys</u></a></li>
+<li><a href="https://win-dash.techidaily.com/quick-and-simple-guide-download-the-right-keyboard-driver-for-your-windows-7-pc/"><u>Quick and Simple Guide: Download the Right Keyboard Driver for Your Windows 7 PC</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/m-spotlight-15-hilarious-channels-for-relaxation-for-2024/"><u>Sitcom Spotlight 15 Hilarious Channels for Relaxation for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/reators-lab-building-an-unstoppable-channel/"><u>The Creator's Lab Building an Unstoppable Channel</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1726030229566-youtube/"><u>スマートフォン、パソコンにてYouTube動画の優れた録画テクニック</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Creating Captivating Visuals with DIY Filming Methods"
-date: 2024-10-20T16:28:03.017Z
-updated: 2024-10-21T17:04:24.461Z
+date: 2024-10-21T04:21:52.002Z
+updated: 2024-10-27T06:59:34.783Z
 tags:
   - ai video
   - ai youtube
@@ -42,14 +42,14 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -65,6 +65,13 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -78,13 +85,6 @@ At the 39 second mark of the above video, electronic music producer deadmau5 is 
 You can see from how even the background and couch looks across the entire camera frame that there is no distortion or enhanced perspective.
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
 
@@ -111,16 +111,10 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
 <!-- affiliate ads begin -->
-<span id="1495277">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tips for Making a Talking Head Video Better
@@ -129,14 +123,14 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -159,19 +153,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-ahead-of-tomorrow-key-youtube-gatherings-post-vidcon/"><u>[New] 2024 Approved Ahead of Tomorrow Key Youtube Gatherings (Post-VidCon)</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/oosting-your-channels-viewer-count-12-must-try-approaches/"><u>[New] Boosting Your Channel's Viewer Count - 12 Must-Try Approaches</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-unseen-youtube-videos-the-meaning-of-unlisted-status/"><u>[New] In 2024, Unseen YouTube Videos The Meaning of 'Unlisted' Status</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-create-and-build-a-youtube-channel-today/"><u>[Updated] 2024 Approved How to Create and Build A YouTube Channel Today</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-professional-insights-expert-level-youtube-video-tweaks/"><u>[Updated] In 2024, Professional Insights Expert-Level Youtube Video Tweaks</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-zoom-and-gmail-collaboration-methods/"><u>[Updated] The Ultimate Zoom and Gmail Collaboration Methods</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-digital-artisans-exclusive-summit/"><u>2024 Approved Digital Artisans' Exclusive Summit</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-editors-assistant-top-5-portable-devices-for-vfx-artists/"><u>2024 Approved Editor's Assistant Top 5 Portable Devices for VFX Artists</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-quick-cash-on-reddit-here-are-13-ways-for-new-users/"><u>2024 Approved Quick Cash on Reddit? Here Are 13 Ways for New Users</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/tless-entrepreneurship-top-10-easy-to-create-biz-channels-on-youtotube/"><u>Effortless Entrepreneurship Top 10 Easy-to-Create Biz Channels on YouToTube</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/free-download-complete-guide-and-amd-gpio-device-driver/"><u>Free Download: Complete Guide & AMD GPIO Device Driver</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-innovation-at-the-heart-the-evolution-of-magix-music-maker/"><u>In 2024, Innovation at the Heart The Evolution of Magix Music Maker</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-quick-cash-on-reddit-here-are-13-ways-for-new-users/"><u>In 2024, Quick Cash on Reddit? Here Are 13 Ways for New Users</u></a></li>
-<li><a href="https://games-able.techidaily.com/newest-tech-gadgets-at-ifa-expo/"><u>Newest Tech Gadgets at IFA Expo</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ecoding-the-modern-content-creators-dilemma/"><u>[New] Decoding the Modern Content Creator's Dilemma</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-step-into-vr-wonderland-youtubes-finest-vr-content-list/"><u>[New] In 2024, Step Into VR Wonderland YouTube's Finest VR Content List</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-streamline-video-capture-macbook-webcam-tips-for-2024/"><u>[New] Streamline Video Capture MacBook Webcam Tips for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ransform-concepts-to-successful-youtube-titles/"><u>[New] Transform Concepts to Successful YouTube Titles</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-selecting-the-best-free-melodies-for-your-youtube-video/"><u>[Updated] 2024 Approved Selecting the Best Free Melodies for Your YouTube Video</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-making-every-penny-count-in-youtube-webinars/"><u>[Updated] Making Every Penny Count in Youtube Webinars</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/21543537-updated-streaming-made-simple-free-downloader-to-mp3s-now/"><u>[Updated] Streaming Made Simple Free Downloader to MP3s Now!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-tailor-your-space-the-best-apps-to-create-engaging-youtube-themes-for-2024/"><u>[Updated] Tailor Your Space The Best Apps to Create Engaging YouTube Themes for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-taping-permissibility-concerns/"><u>[Updated] YouTube Taping Permissibility Concerns</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/cond-guide-to-fast-fortnite-graphics-for-2024/"><u>30-Second Guide to Fast Fortnite Graphics for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/guide-adjusting-nintendo-switch-regional-settings/"><u>Guide: Adjusting Nintendo Switch Regional Settings</u></a></li>
+<li><a href="https://extra-information.techidaily.com/guiding-steps-for-obtaining-professional-grade-images/"><u>Guiding Steps for Obtaining Professional-Grade Images</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-lava-blaze-curve-5g-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Lava Blaze Curve 5G If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/how-to-troubleshoot-a-printer-connection-in-windows/"><u>How to Troubleshoot a Printer Connection in Windows</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/quick-start-utilizing-zoom-in-windows-10-environment-for-2024/"><u>Quick Start Utilizing Zoom in Windows 10 Environment for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/sony-vegas-continuous-crashes-heres-what-you-can-do-to-stabilize-your-editing-experience/"><u>Sony Vegas Continuous Crashes? Here's What You Can Do to Stabilize Your Editing Experience</u></a></li>
+<li><a href="https://blog-min.techidaily.com/troubleshooting-guide-fixing-itunes-error-code-7-and-system-messages-127-193-in-windows-os/"><u>Troubleshooting Guide: Fixing iTunes Error Code 7 & System Messages 127, 193 in Windows OS</u></a></li>
 </ul></div>
 

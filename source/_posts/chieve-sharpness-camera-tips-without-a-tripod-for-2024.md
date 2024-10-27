@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Achieve Sharpness  Camera Tips Without a Tripod for 2024\""
-date: 2024-10-19T16:33:53.946Z
-updated: 2024-10-21T17:27:51.893Z
+date: 2024-10-19T17:34:43.584Z
+updated: 2024-10-26T22:01:39.314Z
 tags:
   - ai video
   - ai youtube
@@ -42,16 +42,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -68,16 +62,16 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
@@ -101,10 +95,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -138,10 +132,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -165,17 +159,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/55000419-new-how-to-view-youtube-statistics/"><u>[New] How to View YouTube Statistics?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-online-streaming-capture-a-comprehensive-guide/"><u>[New] In 2024, Online Streaming Capture A Comprehensive Guide</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-perfect-your-skills-in-designing-engaging-videotutorials/"><u>[New] Perfect Your Skills in Designing Engaging Videotutorials</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-a-step-by-step-tutorial-to-monetize-product-videography/"><u>[Updated] 2024 Approved A Step-by-Step Tutorial to Monetize Product Videography</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-leave-a-lasting-impression-with-your-video-ending/"><u>[Updated] 2024 Approved How to Leave a Lasting Impression with Your Video Ending</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/windows111087ssd/"><u>専用Windows(11/10/8/7)用最適なフリーSSDバックアップソフトウェア</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/enhancing-audio-performance-on-windows-10-for-optimal-sound-levels/"><u>Enhancing Audio Performance on Windows 10 for Optimal Sound Levels</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-best-free-youtube-comment-finder-you-should-try/"><u>In 2024, Best Free YouTube Comment Finder You Should Try</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-the-affordable-art-of-youtube-introsends/"><u>In 2024, The Affordable Art of YouTube Intros/Ends</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/remove-device-supervision-from-your-iphone-12-drfone-by-drfone-ios/"><u>Remove Device Supervision From your iPhone 12 | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Honor Magic V2 | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solution-guide-overcoming-expired-semaphore-timeouts-code-0x80070079/"><u>Solution Guide: Overcoming Expired Semaphore Timeouts (Code 0X80070079)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/est-8-youtube-editing-software-for-linux-for-2024/"><u>[New] Best 8 YouTube Editing Software for Linux for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-the-frame-fixer-query-solutions/"><u>[Updated] 2024 Approved The Frame Fixer Query Solutions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-youtubes-shorts-a-deep-dive-into-content-creation-and-revenue/"><u>[Updated] 2024 Approved YouTube's Shorts A Deep Dive Into Content Creation and Revenue</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-maintaining-morale-amidst-online-adversity/"><u>2024 Approved Maintaining Morale Amidst Online Adversity</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unmasking-the-secrets-of-samsungs-image-manipulation-tech/"><u>2024 Approved Unmasking the Secrets of Samsung's Image Manipulation Tech</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/y-transform-youtube-music-into-mp3-for-mac-os/"><u>Easily Transform YouTube Music Into MP3 for Mac OS</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-on-iphone-13-mini-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock on iPhone 13 mini</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-comprehensive-slomo-app-evaluation-future-prospects/"><u>In 2024, Comprehensive SloMo App Evaluation - Future Prospects</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ey-to-greatness-top-10-travel-youtubers-for-2024/"><u>Journey to Greatness Top 10 Travel Youtubers for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723208954635-lost-sd-card-discovery-reveal-and-repair-paths/"><u>Lost SD Card Discovery? Reveal and Repair Paths</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/mastering-animation-in-instagram-stories-a-step-by-step-guide-for-2024/"><u>Mastering Animation in Instagram Stories A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/treaming-setup-leading-livestream-hardware-and-software/"><u>Pro Streaming Setup Leading Livestream Hardware and Software</u></a></li>
+<li><a href="https://games-able.techidaily.com/unleashing-the-razer-blackshark-v2-pro-the-ultimate-sound-arsenal-for-gamers-zdnet/"><u>Unleashing the Razer Blackshark V2 Pro: The Ultimate Sound Arsenal for Gamers | ZDNet</u></a></li>
 </ul></div>
 
