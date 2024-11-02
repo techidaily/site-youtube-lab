@@ -1,7 +1,7 @@
 ---
 title: "\"Crafting a YouTube Video  Essential Writing Guide\""
-date: 2024-10-22T11:07:32.732Z
-updated: 2024-10-27T07:37:29.059Z
+date: 2024-10-30T01:31:32.672Z
+updated: 2024-11-02T08:01:28.548Z
 tags:
   - ai video
   - ai youtube
@@ -44,31 +44,37 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
 
@@ -78,16 +84,16 @@ The first step in writing a script is to develop an outline for the story. You m
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -111,18 +117,18 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
@@ -153,18 +159,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-elite-tech-list-screen-recorders-with-zero-latency-for-2024/"><u>[New] Elite Tech List Screen Recorders with Zero Latency for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nhance-your-content-creation-with-these-top-12-cameras/"><u>[New] Enhance Your Content Creation with These Top 12 Cameras</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-master-clearer-photos-unveiling-the-top-10-web-edits/"><u>[New] In 2024, Master Clearer Photos Unveiling the Top 10 Web Edits</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/he-ultimate-compilation-budget-friendly-editing-tools-for-2024/"><u>[New] The Ultimate Compilation Budget-Friendly Editing Tools for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-unlocking-youtube-wealth-strategies-for-a-non-ad-earnings-model/"><u>[Updated] Unlocking YouTube Wealth Strategies for a Non-Ad Earnings Model</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/diy-methods-to-get-the-web-in-your-living-room-theater-system/"><u>DIY Methods to Get the Web in Your Living Room Theater System</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-itel-p40plus-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Itel P40+</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-masterful-approach-to-creating-attractive-yt-summaries/"><u>In 2024, Masterful Approach to Creating Attractive YT Summaries</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-turn-your-image-brightness-upside-down-a-tutorial/"><u>In 2024, Turn Your Image Brightness Upside Down A Tutorial</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/switching-protonvpn-login-details-a-step-by-step-guide/"><u>Switching ProtonVPN Login Details: A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ling-the-top-7-android-apps-to-banish-ads-for-2024/"><u>Unveiling The Top 7 Android Apps to Banish Ads for 2024</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/updated-expertly-curated-list-of-premier-audio-trimming-software-websites-for-2024/"><u>Updated Expertly Curated List of Premier Audio Trimming Software Websites for 2024</u></a></li>
-<li><a href="https://techidaily.com/why-can-t-i-play-mp4-files-on-my-14-pro-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Why can’t I play MP4 files on my 14 Pro?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ngineering-engaging-media-excerpts/"><u>[New] Engineering Engaging Media Excerpts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-ultimate-ad-free-high-quality-video-experience-awaits-you/"><u>[New] In 2024, The Ultimate Ad-Free, High Quality Video Experience Awaits You</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-boosting-viewer-interest-with-optimal-video-thumbnail-sizes/"><u>[Updated] In 2024, Boosting Viewer Interest with Optimal Video Thumbnail Sizes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-spectacular-screen-collaborations-selecting-an-mcn/"><u>[Updated] Spectacular Screen Collaborations Selecting an MCN</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-shining-up-your-videos-on-android/"><u>2024 Approved Shining Up Your Videos on Android</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/ditch-thumbnail-peek-turn-off-video-preview-yt/"><u>Ditch Thumbnail Peek Turn Off Video Preview YT</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/1719362383486-enhance-full-screen-screenshot-success-in-windows-snip-and-sketch-tool/"><u>Enhance Full-Screen Screenshot Success in Windows' Snip & Sketch Tool.</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/60716028-expedite-channel-growth-surpass-the-10k-view-threshold-now/"><u>Expedite Channel Growth Surpass the 10K View Threshold Now!</u></a></li>
+<li><a href="https://driver-install.techidaily.com/fixing-the-drivers-not-found-issue-on-windows-10-8-and-7-a-step-by-step-guide/"><u>Fixing the 'Drivers Not Found' Issue on Windows 10, 8 & 7: A Step-by-Step Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For Poco M6 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-oppo-find-x7-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Oppo Find X7</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/re-establish-audible-vids-on-social-sound/"><u>Re-Establish Audible Vids on Social Sound</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/sh-your-creativity-cutting-edge-pc-techniques-for-youtube-success/"><u>Unleash Your Creativity Cutting-Edge PC Techniques for YouTube Success</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/44ov44oz44oa44ov44kp44od44kv44k557ep5zci5oof5acx44od44o844k44or44gl44kj5zwg5zob44ks6lo85ywl44gv5y2x6zm644gq44ge44gn44gz44gl77yf/"><u>ワンダフォックス総合情報ポータルから商品を購入は危険ないですか？</u></a></li>
 </ul></div>
 

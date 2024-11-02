@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Achieving Excellence in Work and Online Content for 2024"
-date: 2024-10-23T12:13:39.669Z
-updated: 2024-10-27T09:26:32.052Z
+date: 2024-10-28T08:01:13.457Z
+updated: 2024-11-02T07:40:19.229Z
 tags:
   - ai video
   - ai youtube
@@ -55,27 +55,27 @@ I know what you’re thinking - “What?! That’s insane.” The first piece of
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
 
@@ -92,25 +92,19 @@ Just try it and create your own YouTube video!
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -134,17 +128,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-make-an-impression-with-youtube-clips-step-by-step-into-the-world-of-gif-making/"><u>[New] 2024 Approved Make an Impression With YouTube Clips Step-by-Step Into the World of Gif Making</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-combat-common-youtube-short-obstacles/"><u>[New] In 2024, Combat Common YouTube Short Obstacles</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-perfect-sound-placement-adding-music-seamlessly-to-youtube-videos/"><u>[Updated] 2024 Approved Perfect Sound Placement Adding Music Seamlessly to YouTube Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-key-steps-to-find-your-youtube-content-creation-hub/"><u>[Updated] Key Steps to Find Your YouTube Content Creation Hub</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-vr-dreamscapes-explore-the-best-on-youtube/"><u>[Updated] VR Dreamscapes Explore the Best on Youtube</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-guide-to-optimal-vr-headset-selection-freedom-or-connection/"><u>2024 Approved Guide to Optimal VR Headset Selection Freedom or Connection?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/budding-builders-simple-stylish-mc-habitats-for-2024/"><u>Budding Builders Simple, Stylish MC Habitats for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-realme-gt-5-frp-by-drfone-android/"><u>Full Guide to Bypass Realme GT 5 FRP</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-accelerated-attention-on-instagram-the-like-video-method/"><u>In 2024, Accelerated Attention on Instagram - The Like-Video Method</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unleash-your-full-potential-top-ideas-for-productive-podcast-sessions/"><u>In 2024, Unleash Your Full Potential Top Ideas for Productive Podcast Sessions</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/unlocking-the-power-of-visuals-zooms-filter-guide/"><u>Unlocking the Power of Visuals Zoom's Filter Guide</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/watchnetflix-screenshare-master-screenrecording-on-macos-for-2024/"><u>WatchNetflix, Screenshare Master ScreenRecording on MacOS for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ound-savings-guide-youtubers-selection-of-affordable-mics/"><u>[New] Sound Savings Guide Youtuber's Selection of Affordable Mics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-essential-strategies-for-effective-content-management-in-creator-studio/"><u>[Updated] 2024 Approved Essential Strategies for Effective Content Management in Creator Studio</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-create-animated-bouncing-text/"><u>[Updated] How to Create Animated Bouncing Text</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-guide-to-streamline-yt-playlist-integration-in-htmlcss/"><u>[Updated] In 2024, Guide to Streamline YT Playlist Integration in HTML/CSS</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-scaling-youtube-earnings-device-independent-studio-tactics/"><u>[Updated] In 2024, Scaling YouTube Earnings Device-Independent Studio Tactics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-definitive-guide-for-effective-and-smooth-youtube-video-uploads/"><u>[Updated] In 2024, The Definitive Guide for Effective and Smooth YouTube Video Uploads</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-skyrocket-viewer-count-the-most-proven-ways-to-enhance-views/"><u>[Updated] Skyrocket Viewer Count The Most Proven Ways to Enhance Views</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-sony-a6400-fixing-the-invisible-video-playback/"><u>[Updated] Sony A6400 Fixing the Invisible Video Playback</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-step-by-step-screen-shotting-for-xbox-enthusiasts/"><u>[Updated] Step-by-Step Screen Shotting for Xbox Enthusiasts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-essentials-everyone-needs-to-know-about-youtube-tv-services-for-2024/"><u>[Updated] The Essentials Everyone Needs to Know About YouTube TV Services for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/elevate-screen-clarity-with-windows-update-tips/"><u>Elevate Screen Clarity with Windows Update Tips</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gratuit-online-convertereen-van-m4v-naar-3gp-movavi/"><u>Gratuit Online Convertereen Van M4V Naar 3GP - Movavi</u></a></li>
+<li><a href="https://driver-error.techidaily.com/i-understand-that-this-will-be-able-to-find-a-good-time-in-python-40-of-its-positive-integers-pknowledge-a-px-plus-mongodb-markup-1s-are-you-interested-in-l8/"><u>I Understand that This Will Be Able to Find a Good Time in Python 40% of Its Positive Integers $pKnowledge: A) P(x + mongoDB Markup #1'S`^] Are You Interested in Learning How, and It Is the Same Day-Grown for Each Termination.</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-crafting-inspiring-interview-experiences/"><u>In 2024, Crafting Inspiring Interview Experiences</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-cooldown-chart-on-realme-12-5g-drfone-by-drfone-virtual-android/"><u>Pokémon Go Cooldown Chart On Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-up-the-search-listings-key-tips-for-optimizing-your-videos-for-2024/"><u>Surging Up the Search Listings Key Tips for Optimizing Your Videos for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Dissecting YouTubes' User Commentary\""
-date: 2024-10-25T16:14:48.310Z
-updated: 2024-10-26T22:47:20.738Z
+date: 2024-10-29T06:14:57.375Z
+updated: 2024-11-02T09:02:04.494Z
 tags:
   - ai video
   - ai youtube
@@ -66,13 +66,6 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -84,6 +77,13 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -112,16 +112,10 @@ This mode allows you to enter special commands to carry out an advanced search. 
 3. ‘:creator’ to get comments made by the creator
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
@@ -140,13 +134,26 @@ You can see all the comments you have posted in the Comment History in a few qui
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -172,19 +179,6 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -206,17 +200,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-launching-a-youtube-channel-key-pieces-of-equipment/"><u>[New] 2024 Approved Launching a YouTube Channel Key Pieces of Equipment</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-action-spectacle-evaluating-hero5b-vs-hero5-session-performance/"><u>[New] Action Spectacle Evaluating Hero5B vs Hero5 Session Performance</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-free-to-learn-4-youtube-channels-unlocking-the-secrets-of-background-substitution/"><u>[New] Free-to-Learn 4 YouTube Channels Unlocking the Secrets of Background Substitution</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-avoiding-files-enjoying-animated-gifs-youtube-video-mastery/"><u>[New] In 2024, Avoiding Files, Enjoying Animated GIFs YouTube Video Mastery</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/aking-a-mark-with-effective-youtube-channel-graphics-for-2024/"><u>[New] Making a Mark with Effective YouTube Channel Graphics for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-streamline-slack-collaboration-with-best-10-free-tools-for-2024/"><u>[New] Streamline Slack Collaboration with Best 10 Free Tools for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-editing-elegance-into-news-summations/"><u>[Updated] Editing Elegance Into News Summations</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-ultimate-guide-to-the-top-youtube-video-editors/"><u>[Updated] In 2024, Ultimate Guide to the Top YouTube Video Editors</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-new-best-facebook-story-savers-for-free-extensiononlinemobile-apps/"><u>[Updated] NEW Best Facebook Story Savers for FREE [Extension/Online/Mobile Apps]</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-synthesizing-best-canon-temporal-media/"><u>[Updated] Synthesizing Best Canon Temporal Media</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/data-retrieval-tool-restore-lost-data-from-v30-lite-5g-by-fonelab-android-recover-data/"><u>Data Retrieval tool – restore lost data from V30 Lite 5G</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-updated-usb-camera-drivers-for-seamless-video-capture-experience/"><u>Download Updated USB Camera Drivers for Seamless Video Capture Experience</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-comprehensive-directory-extracting-youtube-intros/"><u>[New] 2024 Approved Comprehensive Directory Extracting Youtube Intros</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-direct-youtube-video-capture-guide/"><u>[New] 2024 Approved Direct YouTube Video Capture Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-learn-youtube-editing-tricks-for-flawless-shortening/"><u>[New] 2024 Approved Learn YouTube Editing Tricks for Flawless Shortening</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tweeting-visual-stories-from-vids-to-interactive-gifs/"><u>[New] Tweeting Visual Stories From Vids to Interactive GIFs</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-sow-seeds-of-smile-inducing-images/"><u>[Updated] Sow Seeds of Smile-Inducing Images</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-in-depth-viewer-tool-for-chilled-pleasures/"><u>2024 Approved In-Depth Viewer Tool for Chilled Pleasures</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-optimal-strategy-for-broadcasting-via-obs-on-fb-live/"><u>2024 Approved Optimal Strategy for Broadcasting via OBS on FB Live</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-pictures-from-y100-by-fonelab-android-recover-pictures/"><u>Possible solutions to restore deleted pictures from Y100.</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/0-fixes-for-vanishing-youtube-shorts-thumbnails/"><u>Top 10 Fixes for Vanishing YouTube Shorts Thumbnails</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-15-no-cost-anti-virus-software-options-for-your-system/"><u>Top 15 No-Cost Anti-Virus Software Options for Your System</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/top-family-vehicle-entertainment-adventures/"><u>Top Family Vehicle Entertainment Adventures</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-list-of-superior-smartwatch-programs-for-your-android-device/"><u>Ultimate List of Superior Smartwatch Programs for Your Android Device</u></a></li>
 </ul></div>
 

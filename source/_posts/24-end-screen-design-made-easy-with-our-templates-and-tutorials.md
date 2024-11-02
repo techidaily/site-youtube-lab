@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, End-Screen Design Made Easy with Our Templates & Tutorials\""
-date: 2024-10-23T18:07:31.992Z
-updated: 2024-10-27T05:56:11.153Z
+date: 2024-10-25T18:01:10.107Z
+updated: 2024-11-01T18:08:51.530Z
 tags:
   - ai video
   - ai youtube
@@ -91,10 +91,10 @@ Here’s one for the Minecraft fans:
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
@@ -102,13 +102,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
@@ -120,9 +113,23 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047411/19272" target="_top" id="2047411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
@@ -132,29 +139,22 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -177,16 +177,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-visual-monologue-engineer/"><u>[New] 2024 Approved Visual Monologue Engineer</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-quick-vimeo-transformation-tips-easy-to-create-gifs/"><u>[New] Quick Vimeo Transformation Tips Easy-to-Create GIFs</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/updated-earning-stream-start-small-see-big-on-youtube/"><u>[Updated] Earning Stream Start Small, See Big on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-youtube-image-techniques-for-engaging-views-for-2024/"><u>[Updated] YouTube Image Techniques for Engaging Views for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/1-ultimate-guide-converting-m4a-audio-files-into-compatible-wma-format/"><u>1. Ultimate Guide: Converting M4A Audio Files Into Compatible WMA Format</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-audiovisual-synchronization-your-path-to-perfect-fb-videos/"><u>2024 Approved Audiovisual Synchronization Your Path to Perfect FB Videos</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-your-system-updated-nvidia-driver-download-for-modern-windows-systems/"><u>Get Your System Updated: NVIDIA Driver Download for Modern Windows Systems</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nizing-youtube-production-with-a-9-to-5-routine-for-2024/"><u>Harmonizing YouTube Production with a 9-to-5 Routine for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-mp3-broadcasting-toolkit-convert-upload-and-stream-youtube/"><u>In 2024, MP3 Broadcasting Toolkit Convert, Upload & Stream YouTube</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-tecno-spark-20-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Tecno Spark 20 Bricked Devices | Dr.fone</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-new-to-cartoon-making-start-with-these-10-top-tools/"><u>Updated 2024 Approved New to Cartoon Making? Start with These 10 Top Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/0-best-youtube-keyword-tools-to-get-more-views-for-2024/"><u>[New] 10 Best YouTube Keyword Tools to Get More Views for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-becoming-a-video-virtuoso-essential-tips-for-upside-down-youtube-livestreams/"><u>[New] 2024 Approved Becoming a Video Virtuoso Essential Tips for Upside-Down Youtube Livestreams</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-elevating-viewers-to-patrons-a-vloggers-guide-to-income/"><u>[New] 2024 Approved Elevating Viewers to Patrons A Vlogger's Guide to Income</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-exploring-differences-between-igtv-and-youtube-for-effective-posts/"><u>[New] 2024 Approved Exploring Differences Between IGTV and YouTube for Effective Posts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-fixing-popular-youtube-short-snafus/"><u>[New] 2024 Approved Fixing Popular YouTube Short Snafus</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-navigating-employment-and-video-content-creation/"><u>[New] 2024 Approved Navigating Employment and Video Content Creation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-purity-in-browsing-top-7-selective-android-adblocking-tools/"><u>[New] 2024 Approved Purity in Browsing Top 7 Selective Android AdBlocking Tools</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-skyrocket-views-with-these-proven-youtube-optimization-strategies/"><u>[New] 2024 Approved Skyrocket Views with These Proven YouTube Optimization Strategies</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-streamlining-audacity-for-superior-audio-capture/"><u>[New] 2024 Approved Streamlining Audacity for Superior Audio Capture</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-how-to-craft-nfts-with-minimal-exertion/"><u>[New] How to Craft NFTs with Minimal Exertion</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-step-by-step-how-to-upscalled-vids-on-instagram/"><u>[Updated] Step-by-Step How to Upscalled Vids on Instagram</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/creating-a-unified-multimedia-experience-on-iphone/"><u>Creating a Unified Multimedia Experience on iPhone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/evaluating-amazon-echo-products-a-look-at-echo-pop-vs-echo-dot-disparities/"><u>Evaluating Amazon Echo Products: A Look at Echo Pop vs Echo Dot Disparities</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/master-level-solutions-keeping-your-risk-of-rain-2-game-running-smoothly/"><u>Master Level Solutions: Keeping Your Risk of Rain 2 Game Running Smoothly</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/restoring-accidentally-deleted-items-on-your-pc-a-guide-for-windows-11-10-8-and-surveillance/"><u>Restoring Accidentally Deleted Items on Your PC - A Guide for Windows 11, 10, 8 & Surveillance.</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/0-female-gamers-on-youtube-2024-updated/"><u>Top 10 Female Gamers on YouTube | 2024 Updated</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/troubleshooting-steps-for-resolving-hypervisor-error-bsod-in-windows-11/"><u>Troubleshooting Steps for Resolving Hypervisor Error BSOD in Windows 11</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-are-my-youtube-comments-desktopiosandroid-strategies/"><u>Where Are My YouTube Comments? Desktop/iOS/Android Strategies</u></a></li>
 </ul></div>
 

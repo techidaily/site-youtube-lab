@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Personal Vlogs That Resonate Deeply With Viewers"
-date: 2024-10-24T01:18:34.032Z
-updated: 2024-10-27T13:38:55.070Z
+date: 2024-10-31T06:34:56.177Z
+updated: 2024-11-02T02:48:27.991Z
 tags:
   - ai video
   - ai youtube
@@ -55,28 +55,15 @@ YouTuber Shameless Maya does an excellent job of this. She created a visually ap
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1972693/19272" target="_top" id="1972693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\.  Snapchat/Instagram Stories Q&A
 
@@ -95,10 +82,16 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\.  Narrated Autobiopic
@@ -109,6 +102,13 @@ Narrated Autobiopic videos are a great way to share your story or advice in a ci
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10\.  YouTube Live/Webinar
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
@@ -117,14 +117,14 @@ YouTube live videos are probably the best ways to interact and share your story 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -147,24 +147,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-shorts-ultimate-guide/"><u>[New] 2024 Approved YouTube Shorts Ultimate Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/randing-excellence-integrating-watermarks-and-logos-into-video-media-for-2024/"><u>[New] Branding Excellence Integrating Watermarks and Logos Into Video Media for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-evaluating-the-transition-from-magix-studio-max-to-2024/"><u>[New] Evaluating the Transition From Magix Studio Max to 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-from-live-streaming-to-lively-gifs-harnessing-vimeo-content/"><u>[New] From Live Streaming to Lively Gifs Harnessing Vimeo Content</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-masterful-methods-for-keeping-track-of-messenger-communications/"><u>[New] In 2024, Masterful Methods for Keeping Track of Messenger Communications</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/emoving-advertisements-from-youtube-videos-on-chromefirefox/"><u>[New] Removing Advertisements From YouTube Videos on Chrome/Firefox</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ransforming-ideas-into-engaging-youtube-video-plans/"><u>[New] Transforming Ideas Into Engaging YouTube Video Plans</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-photo-pace-crafting-time-lapse-videos-on-your-galaxy-phone/"><u>[Updated] In 2024, Photo Pace Crafting Time-Lapse Videos on Your Galaxy Phone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-master-the-art-of-customizing-youtube-thumbnails-and-improving-visibility/"><u>[Updated] Master the Art of Customizing YouTube Thumbnails and Improving Visibility</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-snagging-youtube-vanished-videos-your-2-path-guide/"><u>[Updated] Snagging YouTube Vanished Videos Your 2-Path Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-transform-your-imagery-with-these-mobile-montage-leaders/"><u>2024 Approved Transform Your Imagery with These Mobile Montage Leaders</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/o-optimize-video-engagement-through-resizing-thumbnails-on-youtube/"><u>How to Optimize Video Engagement Through Resizing Thumbnails on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-masterchefs-visual-guide-filming-kitchen-escapades/"><u>In 2024, MasterChef's Visual Guide Filming Kitchen Escapades</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/meet-the-speedy-bed-slinger-bambu-labs-revolutionary-3d-printer-launching-december-14th/"><u>Meet the Speedy 'Bed Slinger': Bambu Lab's Revolutionary 3D Printer Launching December 14Th</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ist-on-a-page-embedding-yt-videos-online/"><u>Playlist on a Page Embedding YT Videos Online</u></a></li>
-<li><a href="https://fox-that.techidaily.com/renal-function-plays-a-crucial-role-in-the-excretion-of-beta-blockers-requiring-dose-adjustments-in-patients-with-impaired-kidney-function/"><u>Renal Function Plays a Crucial Role in the Excretion of Beta Blockers, Requiring Dose Adjustments in Patients with Impaired Kidney Function.</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-samsung-galaxy-s24-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Samsung Galaxy S24</u></a></li>
-<li><a href="https://some-skills.techidaily.com/top-creative-apps-roundup-choose-from-the-best-8-photo-edits-for-smartphones-for-2024/"><u>Top Creative Apps Roundup Choose From the Best 8 Photo Edits for Smartphones for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Lava Blaze Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-saving-youtube-videos-a-legal-overview/"><u>[New] 2024 Approved Saving YouTube Videos A Legal Overview</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-step-into-wealthy-creator-land-via-youtube-shorts-revenue/"><u>[New] 2024 Approved Step Into Wealthy Creator Land via YouTube Shorts Revenue</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-taking-control-your-comprehensive-yt-studio-manual/"><u>[New] 2024 Approved Taking Control Your Comprehensive YT Studio Manual</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-glossary-of-youtube-shorts-terms/"><u>[New] 2024 Approved The Ultimate Glossary of YouTube Shorts Terms</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-snap-and-save-professional-screen-recording-11-version-for-2024/"><u>[New] Snap & Save Professional Screen Recording 11-Version for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-exploring-the-depth-of-editing-with-gopro-studios-capabilities/"><u>[Updated] Exploring the Depth of Editing with GoPro Studio's Capabilities</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-top-5-avant-garde-creators-in-digital-media/"><u>[Updated] In 2024, Top 5 Avant-Garde Creators in Digital Media</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-ideal-techniques-stream-and-store-major-sports-events-online/"><u>2024 Approved Ideal Techniques Stream & Store Major Sports Events Online</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-securely-download-and-install-nvidias-3d-vision-drivers-for-windows-without-spending-a-penny/"><u>How to Securely Download and Install Nvidia's 3D Vision Drivers for Windows - Without Spending a Penny</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-fast-fixed-ways-to-scramble-youtube-watchlist-content/"><u>In 2024, Fast Fixed Ways to Scramble YouTube Watchlist Content</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-access-your-apple-iphone-se-2022-when-you-forget-the-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Access Your Apple iPhone SE (2022) When You Forget the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211475872--redistribution-of-wealth-in-america-and-beyond-the-new-civil-war/"><u>Redistribution Of Wealth In America And Beyond - The New Civil War | Free Book</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-sony-xperia-5-v-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Sony Xperia 5 V Unresponsive Screen | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Novel Talk Points for Daily Videos"
-date: 2024-09-11T14:40:24.060Z
-updated: 2024-09-12T14:40:24.060Z
+date: 2024-10-26T08:39:15.509Z
+updated: 2024-11-02T01:52:22.754Z
 tags:
   - ai video
   - ai youtube
@@ -45,25 +45,11 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Snapshots of Your Day
 
@@ -72,10 +58,10 @@ By commenting on what you’re watching/reading you have a better chance of capi
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Whatever You Need to Get Out
@@ -89,10 +75,10 @@ It does not matter what it is that is making you have this strong reaction (unle
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## What did you learn today?
@@ -115,22 +101,15 @@ Sea monkeys can survive in space.
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
@@ -138,6 +117,13 @@ You could also just flick the camera on and tell the full story of your day like
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -158,5 +144,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/onvert-with-ease-the-top-10-best-tools-for-flv-to-youtubes-for-2024/"><u>[New] Convert With Ease The Top 10 Best Tools for Flv to YouTubes for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-mastering-the-art-of-adding-linktree-to-your-tiktok-info/"><u>[New] Mastering the Art of Adding Linktree to Your TikTok Info</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-practical-routines-for-streamlining-gotomeeting-session-logging/"><u>[New] Practical Routines for Streamlining GoToMeeting Session Logging</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ailoring-the-perfect-youtube-conclusion-for-engagement/"><u>[New] Tailoring the Perfect YouTube Conclusion for Engagement</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-best-free-no-money-tools-for-digital-video-cutting/"><u>[New] The Best Free, No-Money Tools for Digital Video Cutting</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtubes-secret-to-flawless-video-spin-guide-and-tips-for-2024/"><u>[Updated] YouTube's Secret to Flawless Video Spin (Guide & Tips) for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-stellar-spectrum-10-sites-cutting-edge-of-hd-astronomy/"><u>2024 Approved Stellar Spectrum 10 Sites Cutting-Edge of HD Astronomy</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-windows-11-how-to-switch-on-its-built-in-hdr-capability/"><u>2024 Approved Windows 11 How to Switch On Its Built-In HDR Capability</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-the-right-platform-a-look-at-vimeo-youtube-and-dailymotion/"><u>Choosing the Right Platform A Look at Vimeo, YouTube & DailyMotion</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/vering-featured-social-media-exchange-for-2024/"><u>Discovering Featured Social Media Exchange for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/re-online-communities-with-youtube-monetization-opportunities/"><u>Explore Online Communities with YouTube Monetization Opportunities</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-tecno-spark-20-pro-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Tecno Spark 20 Pro to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-discover-creative-ways-to-enhance-your-fb-video-ads/"><u>In 2024, Discover Creative Ways to Enhance Your FB Video Ads</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ize-your-watch-activate-av1-on-youtube-platform/"><u>Optimize Your Watch Activate AV1 on YouTube Platform</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/updated-rev-up-your-videos-10-best-free-speed-changing-apps-for-ios-and-android-for-2024/"><u>Updated Rev Up Your Videos 10 Best Free Speed Changing Apps for iOS and Android for 2024</u></a></li>
+</ul></div>
 

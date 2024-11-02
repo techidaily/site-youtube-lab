@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Add YouTube Annotations and Cards?\""
-date: 2024-10-23T00:12:31.866Z
-updated: 2024-10-26T21:43:36.326Z
+date: 2024-10-30T03:02:07.441Z
+updated: 2024-11-01T22:01:28.171Z
 tags:
   - ai video
   - ai youtube
@@ -73,10 +73,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -90,10 +90,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
@@ -102,10 +102,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -147,10 +147,10 @@ No matter what kind of annotations you are using, you should never use more than
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -174,20 +174,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-channel-cross-promotion-the-art-of-collaborative-co-stars/"><u>[New] 2024 Approved Channel Cross-Promotion The Art of Collaborative Co-Stars</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-converting-youtube-journeys-into-animated-expressions-a-comprehensive-guide-for-mobiledesktop-users/"><u>[New] 2024 Approved Converting YouTube Journeys Into Animated Expressions A Comprehensive Guide for Mobile/Desktop Users</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-crafting-a-successful-mukbang-video-journey/"><u>[New] 2024 Approved Crafting a Successful Mukbang Video Journey</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-creative-camerawork-innovative-techniques-for-video-savvy-youtubers/"><u>[New] 2024 Approved Creative Camerawork Innovative Techniques for Video-Savvy YouTubers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-decoding-unlisted-videos-a-deep-dive-into-youtube-secrecy/"><u>[New] 2024 Approved Decoding Unlisted Videos A Deep Dive Into YouTube Secrecy</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-dissecting-the-financial-strategy-of-t-series-in-video-platforms/"><u>[New] 2024 Approved Dissecting the Financial Strategy of T-Series in Video Platforms</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-discovering-the-best-in-screen-recording/"><u>[New] Discovering the Best in Screen Recording</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/avigating-the-world-of-time-stamps-in-youtube-links-desktopmobile/"><u>[New] Navigating the World of Time Stamps in YouTube Links (Desktop/Mobile)</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-leveraging-likes-and-comments-enhancing-engagement-on-instagram-stories/"><u>[Updated] 2024 Approved Leveraging Likes and Comments Enhancing Engagement on Instagram Stories</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-boost-bandw-vibrancy-ps-grading-hacks/"><u>2024 Approved Boost B&W Vibrancy PS Grading Hacks</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-visual-transcript-maker/"><u>Audio Visual Transcript Maker</u></a></li>
-<li><a href="https://video-capture.techidaily.com/exclusive-review-of-showmore-authoritative-screen-capture-software-for-2024/"><u>Exclusive Review of ShowMore’ Authoritative Screen Capture Software for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-get-high-end-editing-power-for-free/"><u>In 2024, How to Get High-End Editing Power for Free?</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6-official-method-to-unlock-your-iphone-6-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 6 Official Method to Unlock Your iPhone 6</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/innovative-data-protection-stellars-simplified-backup-solution/"><u>Innovative Data Protection: Stellar's Simplified Backup Solution</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-completing-the-process-of-disabling-your-linkedin-profile/"><u>[New] Completing the Process of Disabling Your LinkedIn Profile</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-guide-youtube-to-mp4-ensuring-data-security/"><u>[New] In 2024, Guide YouTube to MP4 - Ensuring Data Security</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-innovation-in-action-youtube-split-screen-techniques-for-2024/"><u>[Updated] Innovation in Action YouTube Split-Screen Techniques for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-step-by-step-establishing-a-signature-persona-on-youtube-for-2024/"><u>[Updated] Step-by-Step Establishing a Signature Persona on YouTube for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-instantly-ultimate-usb-webcam-drivers-get-set-up-fast/"><u>Download Instantly: Ultimate USB Webcam Drivers - Get Set Up Fast</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/experience-superior-site-personalization-and-tracking-all-backed-by-cookiebots-expertise/"><u>Experience Superior Site Personalization and Tracking, All Backed by Cookiebot's Expertise</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/y-hitlist-the-leading-youtube-videos-by-watch-time-for-2024/"><u>Hourly Hitlist The Leading YouTube Videos by Watch Time for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Oppo A59 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-uncover-the-top-7-android-alternatives-for-ad-free-browsing/"><u>In 2024, Uncover the Top 7 Android Alternatives for Ad-Free Browsing</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-itel-p40-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Itel P40 | Dr.fone</u></a></li>
 </ul></div>
 

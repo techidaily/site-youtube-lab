@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Mastering YT  Techniques for Fading Out Unwanted Backgrounds\""
-date: 2024-10-21T12:25:50.767Z
-updated: 2024-10-27T10:58:04.664Z
+date: 2024-10-26T02:38:00.374Z
+updated: 2024-11-02T07:37:24.977Z
 tags:
   - ai video
   - ai youtube
@@ -72,10 +72,10 @@ If you need to blur the video background after shooting, you can use some video 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Add Bokeh Filter to Video in Filmora
@@ -86,14 +86,14 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
-Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
 
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
 
@@ -104,10 +104,10 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
@@ -121,10 +121,10 @@ You see, the video background is blurred, and the people are highlighted. Now it
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -148,19 +148,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-economical-entrance-to-youtube-ecosystem-affiliate-assistance-for-small-sets/"><u>[New] 2024 Approved Economical Entrance to YouTube Ecosystem Affiliate Assistance for Small Sets</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-guide-to-quick-eradication-of-online-youtube-discussions/"><u>[New] 2024 Approved Guide to Quick Eradication of Online YouTube Discussions</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-mastering-zero-cost-online-seminars-youtube-edition/"><u>[New] 2024 Approved Mastering Zero-Cost Online Seminars YouTube Edition</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-narrating-numbers-making-millions-from-your-micro-vlogs/"><u>[New] 2024 Approved Narrating Numbers Making Millions From Your Micro-Vlogs</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-av1-decoded-a-novices-introduction-for-2024/"><u>[New] AV1 Decoded A Novice's Introduction for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-linking-up-tweeted-movies-and-music-on-fb-platform/"><u>[Updated] In 2024, Linking Up Tweeted Movies and Music on FB Platform</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-top-ranked-animation-set-for-typography/"><u>[Updated] In 2024, Top-Ranked Animation Set for Typography</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1-top-5-benefits-of-switching-from-wired-to-wireless-earphones/"><u>1. Top 5 Benefits of Switching From Wired to Wireless Earphones</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-no-budget-no-problem-the-finest-free-voice-alterer-for-valorant-players/"><u>2024 Approved No Budget? No Problem! The Finest Free Voice Alterer for Valorant Players</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-free-virtual-face-maker-websites/"><u>New 2024 Approved Free Virtual Face Maker Websites</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-2024-approved-navigating-through-the-excellent-windowed-and-mac-compatible-daws-top-10-selection/"><u>New 2024 Approved Navigating Through the Excellent Windowed & Mac Compatible DAWs - Top 10 Selection</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-recording-option-elevate-your-youtube-channel/"><u>Prime Recording Option Elevate Your YouTube Channel</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-legal-and-safe-methods-of-downloading-youtube-tunes-for-2024/"><u>Three Legal & Safe Methods of Downloading YouTube Tunes for 2024</u></a></li>
-<li><a href="https://win-docs.techidaily.com/windows-10-installation-von-hdd-zu-ssd-migrationen-keine-os-neuinstallation-erforderlich/"><u>Windows 10 Installation Von HDD Zu SSD Migrationen - Keine OS-Neuinstallation Erforderlich</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/oosting-engagement-perfect-time-stamping-techniques-for-videos/"><u>[New] Boosting Engagement Perfect Time-Stamping Techniques for Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xpert-guide-to-instantaneous-deletion-of-youtube-posts-for-2024/"><u>[New] Expert Guide to Instantaneous Deletion of Youtube Posts for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xploring-popularly-highlighted-video-remarks/"><u>[New] Exploring Popularly Highlighted Video Remarks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-explore-best-asmr-apps-both-sides-of-the-os/"><u>[New] In 2024, Explore Best ASMR Apps, Both Sides of the OS</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-simplified-techniques-for-capturing-vimeo-content-for-2024/"><u>[New] Simplified Techniques for Capturing Vimeo Content for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-building-a-powerful-community-of-insta-followers/"><u>[Updated] In 2024, Building a Powerful Community of Insta-Followers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-earnings-on-youtube-a-monthly-perspective/"><u>[Updated] In 2024, Earnings on YouTube A Monthly Perspective?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-profitable-videos-on-demand-leveraging-analytics-and-ad-revenue-everywhere-for-2024/"><u>[Updated] Profitable Videos on Demand Leveraging Analytics & Ad Revenue Everywhere for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-select-blur-apps-for-softened-backdrops/"><u>2024 Approved Select Blur Apps for Softened Backdrops</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-resources-to-explore-for-personalized-text-enhancements-online/"><u>Best Resources to Explore for Personalized Text Enhancements Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-youtube-channel-trailers-the-ultimate-guide-to-profitability/"><u>Crafting YouTube Channel Trailers The Ultimate Guide to Profitability</u></a></li>
+<li><a href="https://common-error.techidaily.com/diagnosis-and-solutions-for-when-your-dell-laptops-keyboard-wont-work/"><u>Diagnosis & Solutions for When Your Dell Laptop's Keyboard Won't Work</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-frp-on-realme-gt-neo-5-se-by-drfone-android/"><u>How to Bypass FRP on Realme GT Neo 5 SE?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-create-a-channel-that-dominates-the-business-world-for-2024/"><u>How to Create a Channel that Dominates the Business World for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/how-to-restore-functionality-to-unresponsive-amazon-prime-closed-captions/"><u>How To Restore Functionality to Unresponsive Amazon Prime Closed Captions</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Infinix GT 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-xiaomi-redmi-note-13-proplus-5g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Xiaomi Redmi Note 13 Pro+ 5G to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-elevate-your-content-selecting-top-thumbnail-fonts/"><u>In 2024, Elevate Your Content Selecting Top Thumbnail Fonts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/no-glue-methods-for-spotless-video-creations-on-tiktok-for-2024/"><u>No-Glue Methods for Spotless Video Creations on TikTok for 2024</u></a></li>
 </ul></div>
 

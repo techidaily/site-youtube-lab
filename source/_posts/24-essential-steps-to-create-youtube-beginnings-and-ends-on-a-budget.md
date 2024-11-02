@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Essential Steps to Create YouTube Beginnings & Ends on a Budget"
-date: 2024-10-26T01:33:44.813Z
-updated: 2024-10-27T10:33:15.036Z
+date: 2024-10-30T23:17:56.268Z
+updated: 2024-11-02T09:04:17.634Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,16 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,16 +131,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -158,17 +158,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-design-wizards-perfect-templates-for-gaming-channel-logos/"><u>[New] 2024 Approved Design Wizards Perfect Templates for Gaming Channel Logos</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-streamlining-meetings-with-snap-camera-on-teams/"><u>[New] In 2024, Streamlining Meetings with Snap Camera on Teams</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-incredible-virtual-room-encounters-for-2024/"><u>[New] Incredible Virtual Room Encounters for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-reimagining-ppts-with-todays-webcam-capabilities-for-2024/"><u>[New] Reimagining PPTs with Today's Webcam Capabilities for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/treamlining-video-updates-on-youtube-for-2024/"><u>[New] Streamlining Video Updates on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-subscribers-count-in-real-time/"><u>[Updated] Subscribers Count in Real-Time</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-conceptualists-engineering-marvel-online-worlds/"><u>2024 Approved Conceptualists Engineering Marvel Online Worlds</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/el-name-genius-brainstorming-like-a-pro-for-2024/"><u>Channel Name Genius Brainstorming Like a Pro for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/experts-rate-the-budget-king-of-indoor-amplified-hd-tv-antennas-for-your-home/"><u>Experts Rate: The Budget King of Indoor Amplified HD TV Antennas for Your Home</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-understanding-why-your-camera-stops-in-the-mid-action/"><u>In 2024, Understanding Why Your Camera Stops in the Mid-Action</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/install-updated-epson-wf-3620-drivers-for-seamless-printing-on-windows-1187-computers/"><u>Install Updated Epson WF-3620 Drivers for Seamless Printing on Windows 11/8/7 Computers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/sierra-users-meet-the-future-of-video-editing-tools/"><u>Sierra Users, Meet the Future of Video Editing Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-charting-your-way-to-frequent-payments-from-youtube/"><u>[New] 2024 Approved Charting Your Way to Frequent Payments From YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-chuckle-chronicles-top-10-humoristic-youtube-video-plans/"><u>[New] 2024 Approved Chuckle Chronicles Top 10 Humoristic YouTube Video Plans</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-evaluating-rapid-subscriptions-impact-on-video-engagement/"><u>[New] 2024 Approved Evaluating Rapid Subscription's Impact on Video Engagement</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-expand-your-horizon-the-top-15-youtube-science-hubs-2-written-by-user/"><u>[New] 2024 Approved Expand Your Horizon The Top 15 YouTube Science Hubs (2 Written By User</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-free-to-mp3-journey-top-10-online-converters/"><u>[New] 2024 Approved Free-to-Mp3 Journey Top 10 Online Converters</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-no-more-youtube-shorts-a-detailed-breakdown/"><u>[New] 2024 Approved No More YouTube Shorts A Detailed Breakdown</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-tailoring-teammate-backgrounds-on-teams-chat/"><u>[New] 2024 Approved Tailoring Teammate Backgrounds on Teams Chat</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-3-premium-phones-excelling-in-quality-video-capture/"><u>[Updated] Top 3 Premium Phones Excelling in Quality Video Capture</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-nokia-g22-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Nokia G22</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-the-ultimate-guide-to-refining-your-youtube-videos-after-publishing/"><u>2024 Approved The Ultimate Guide to Refining Your YouTube Videos After Publishing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-visibility-with-customized-channel-names-for-2024/"><u>Boost Visibility with Customized Channel Names for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-your-projects-quality-rankings-of-the-best-free-editing-apps-top-9-for-2024/"><u>Boost Your Projects' Quality Rankings of the Best Free Editing Apps (Top 9) for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/guide-to-fetch-and-improve-driver-performance-on-your-xp-pen-graphics-tool/"><u>Guide to Fetch & Improve Driver Performance on Your XP-Pen Graphics Tool</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-oppo-find-n3-flip-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Oppo Find N3 Flip to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-pvr-uno-customizable-media-solution/"><u>In 2024, PVR Uno Customizable Media Solution</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-gear-picks-for-beginning-creators-for-2024/"><u>Prime Gear Picks for Beginning Creators for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/reviving-your-corsair-hs60-mic-solutions-for-when-it-stops-working/"><u>Reviving Your Corsair HS60 Mic - Solutions for When It Stops Working</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-honor-90-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Honor 90 | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/why-isnt-alan-wake-part-two-out-yet-tips-for-launch-issues-resolution/"><u>Why Isn't Alan Wake Part Two Out Yet? Tips for Launch Issues Resolution</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Cut to Perfection  Editing Video Duration on YouTube\""
-date: 2024-09-11T14:41:06.355Z
-updated: 2024-09-12T14:41:06.355Z
+date: 2024-10-25T17:39:18.763Z
+updated: 2024-11-02T07:13:18.551Z
 tags:
   - ai video
   - ai youtube
@@ -36,19 +36,6 @@ For instance, the application is offering non-linear ripple video editing. This 
 
 ---
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Edit YouTube Video Length Using the built-in Video Editor
 
 The YouTube video editor is easy to use, and you can easily learn how to do all sorts of changes to your video. Let's see the things that you need to go through in order to edit the length.
@@ -59,13 +46,6 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
 #### Step 2 Import Your Video
@@ -74,25 +54,11 @@ Once you've done all of the above, you would have to drag your video in order to
 
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 3 Edit the Length
 
 This is the part where you actually get to edit the length of your video. In order to do so effectively, you have to drag the bar at either end of your clip towards the other end in order to shorten the clip conveniently.
 
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
 
@@ -101,13 +67,6 @@ What is more, if you want to increase the length, you have to drag the bar to th
 Of course, you would have to save the clip in order for the changes to reflect. Even though this might seem like a particularly obvious thing to do, you would be surprise to find out that a lot of people get everything done and then discard the changes by forgetting to save them and their effort goes to waste.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -128,5 +87,27 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-dive-into-design-get-a-complimentary-set-of-50-banner-pieces/"><u>[New] In 2024, Dive Into Design Get a Complimentary Set of 50 Banner Pieces</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-art-of-engaging-with-the-online-gaming-community-for-2024/"><u>[New] The Art of Engaging with the Online Gaming Community for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-best-picks-essential-websites-for-free-text-enhancements-for-2024/"><u>[Updated] Best Picks Essential Websites for Free Text Enhancements for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-managing-a-day-job-and-your-thriving-youtube-channel/"><u>[Updated] Managing a Day Job and Your Thriving YouTube Channel</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-easy-guide-turning-your-favorite-youtube-videos-into-animated-gifs/"><u>2024 Approved Easy Guide Turning Your Favorite YouTube Videos Into Animated GIFs</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-locate-the-best-bargains-on-gopro-cameras/"><u>2024 Approved Locate the Best Bargains on GoPro Cameras</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-masterful-mixing-video-and-melody-combinations-on-win11/"><u>2024 Approved Masterful Mixing Video & Melody Combinations on Win11</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-essential-guide-to-crafting-dynamic-snaps/"><u>2024 Approved The Essential Guide to Crafting Dynamic Snaps</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-to-bypass-motorola-moto-g-stylus-5g-2023-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Motorola Moto G Stylus 5G (2023) FRP In 3 Different Ways</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/preserving-confidential-communications-how-to-securely-integrate-chatgpt-into-your-work-operations/"><u>Preserving Confidential Communications: How to Securely Integrate ChatGPT Into Your Work Operations</u></a></li>
+<li><a href="https://games-able.techidaily.com/ps5s-secret-life-unearthing-its-hidden-browser/"><u>Ps5's Secret Life: Unearthing Its Hidden Browser</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-8-ai-applications-enhancing-content-creation-for-writers/"><u>Top 8 AI Applications Enhancing Content Creation for Writers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/king-youtubes-covert-video-collections/"><u>Unmasking YouTube’s Covert Video Collections</u></a></li>
+</ul></div>
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

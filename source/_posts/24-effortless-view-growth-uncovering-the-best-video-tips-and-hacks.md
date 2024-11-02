@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Effortless View Growth  Uncovering the Best Video Tips and Hacks\""
-date: 2024-10-24T18:15:05.175Z
-updated: 2024-10-27T08:12:32.022Z
+date: 2024-10-26T07:01:18.067Z
+updated: 2024-11-02T04:02:15.254Z
 tags:
   - ai video
   - ai youtube
@@ -37,13 +37,6 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -52,6 +45,13 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -73,10 +73,10 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 3: Manage Playback Speed
@@ -87,13 +87,6 @@ This category contains information on increasing or decreasing the playback spee
 | ---------------------- | ----------------------- |
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
 
@@ -106,6 +99,13 @@ This category talks about managing the video captions using the shortcut keys:
 | 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 5: Managing the Audio Video
 
@@ -144,16 +144,10 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
 <!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
@@ -199,22 +193,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-effortless-media-transition-from-mp3-to-youtube-video-posting/"><u>[New] 2024 Approved Effortless Media Transition From MP3 to YouTube Video Posting</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-step-by-step-process-to-revamp-your-youtube-audio-tracks/"><u>[New] 2024 Approved Step-by-Step Process to Revamp Your YouTube Audio Tracks</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-full-review-for-gopro-hero4-sliver/"><u>[New] Full Review for GoPro Hero4 Sliver</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-cloud-storage-cost-breakdown-2024-edition/"><u>[New] The Ultimate Cloud Storage Cost Breakdown, 2024 Edition</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ransforming-your-videos-for-igtv-excellence-3-methods-for-2024/"><u>[New] Transforming Your Videos for IGTV Excellence (3 Methods) for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-leading-free-tech-to-share-pc-screens-seamlessly/"><u>[Updated] 2024 Approved Leading Free Tech to Share PC Screens Seamlessly</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-seamlessly-transferring-youtube-videos-to-your-instagram-account/"><u>[Updated] 2024 Approved Seamlessly Transferring YouTube Videos to Your Instagram Account</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-youngest-entrepreneur-in-media-lands-fortune-peak/"><u>[Updated] 2024 Approved Youngest Entrepreneur in Media Lands Fortune Peak</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-fast-track-channel-growth-to-partner-status-aim-for-10000-views-in-2024/"><u>[Updated] Fast-Track Channel Growth to Partner Status – Aim for 10,000 Views, In 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unveiling-8-honest-video-promotion-services/"><u>[Updated] In 2024, Unveiling 8 Honest Video Promotion Services</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-virtual-voyeurism-worlds-most-watched-youtubers/"><u>[Updated] In 2024, Virtual Voyeurism World's Most Watched YouTubers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-what-to-do-when-youtube-shorts-thumbnails-fail-to-appear/"><u>[Updated] In 2024, What to Do When YouTube Shorts Thumbnails Fail to Appear?</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-outshine-the-ordinary-30-innovative-ideas-for-standout-tiktok-photos-for-2024/"><u>[Updated] Outshine the Ordinary 30 Innovative Ideas for Standout TikTok Photos for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/creating-collaborative-spaces-via-facebook-networks/"><u>Creating Collaborative Spaces via Facebook Networks</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-vivo-x100-pro-is-unlocked-by-drfone-android/"><u>How To Check if Your Vivo X100 Pro Is Unlocked</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/is-my-financial-security-at-risk-can-ai-like-chatgpt-be-used-by-hackers/"><u>Is My Financial Security at Risk: Can AI Like ChatGPT Be Used by Hackers?</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/resolved-how-to-fix-persistent-buffering-problems-on-kodi/"><u>Resolved: How to Fix Persistent Buffering Problems on Kodi</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-effortless-tiktok-integration-on-your-macbook-wonderland-for-2024/"><u>[New] Effortless TikTok Integration on Your MacBook Wonderland for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-finding-the-perfect-recorders-outside-microsofts-ecosystem/"><u>[New] Finding the Perfect Recorders Outside Microsoft's Ecosystem</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-making-money-with-youtube-understanding-partner-program/"><u>[New] In 2024, Making Money with YouTube Understanding Partner Program</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-selecting-the-best-mac-sniping-solutions/"><u>[Updated] 2024 Approved Selecting the Best Mac Sniping Solutions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-global-youtube-rich-list-pinnacle/"><u>[Updated] Global YouTube Rich List Pinnacle</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-independent-artists-guide-to-personalized-visual-tricks/"><u>[Updated] Independent Artists' Guide to Personalized Visual Tricks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-your-music-collection-youtube-playlists-guide-for-2024/"><u>Crafting Your Music Collection YouTube Playlists Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ngs-on-youtube-a-monthly-perspective-for-2024/"><u>Earnings on YouTube A Monthly Perspective for 2024</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/enable-automatic-playback-in-your-custom-flipbooks-with-flipbuilder-a-comprehensive-guide/"><u>Enable Automatic Playback in Your Custom Flipbooks with FlipBuilder - A Comprehensive Guide</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-power-up-your-gym-sessions-with-these-top-20-songs/"><u>In 2024, Power Up Your Gym Sessions with These Top 20 Songs</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-on-iphone-7-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication On iPhone 7? 5 Tips You Must Know</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/eal-deal-behind-asmr-videos/"><u>The Real Deal Behind ASMR Videos</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-optimal-picture-configuration-for-your-samsung-4k-television/"><u>Ultimate Guide: Optimal Picture Configuration for Your Samsung 4K Television</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/voice-for-algorithms-chatgpts-new-command-respondive-capability/"><u>Voice for Algorithms: ChatGPT's New Command-Respondive Capability</u></a></li>
 </ul></div>
 
