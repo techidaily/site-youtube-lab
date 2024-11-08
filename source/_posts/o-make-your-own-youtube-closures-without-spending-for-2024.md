@@ -1,7 +1,7 @@
 ---
 title: "How to Make Your Own YouTube Closures Without Spending for 2024"
-date: 2024-10-29T03:59:41.588Z
-updated: 2024-11-01T20:27:24.315Z
+date: 2024-11-01T20:33:33.841Z
+updated: 2024-11-07T21:35:38.861Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,16 +125,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -158,22 +152,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/levate-your-recordings-doing-without-a-microphone/"><u>[New] Elevate Your Recordings Doing Without a Microphone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/aucous-reels-crafting-7-comedy-storylines-for-social-media-stars-for-2024/"><u>[New] Raucous Reels Crafting 7 Comedy Storylines for Social Media Stars for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-crafting-compelling-freefire-vids-with-strategy-guide/"><u>[Updated] Crafting Compelling FreeFire Vids with Strategy Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-visual-anonymous-how-to-make-faces-and-objects-invisible/"><u>[Updated] Visual Anonymous How to Make Faces and Objects Invisible</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-an-inside-look-at-magix-vpxs-advanced-techniques/"><u>2024 Approved An Inside Look at Magix VPX's Advanced Techniques</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-instagram-tutorial-upload-and-share-video/"><u>2024 Approved Instagram Tutorial Upload and Share Video</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-mastering-the-art-of-crafting-compelling-content-in-60-second-videos/"><u>2024 Approved Mastering the Art of Crafting Compelling Content in 60-Second Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-yt-favorites-top-10-music-videos-and-their-reactions/"><u>2024 Approved YT Favorites Top 10 Music Videos & Their Reactions</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/3-ways-to-unlock-iphone-13-pro-without-passcode-or-face-id-by-drfone-ios/"><u>3 Ways to Unlock iPhone 13 Pro without Passcode or Face ID</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-pictures-files-on-y36-by-fonelab-android-recover-pictures/"><u>Complete guide for recovering pictures files on Y36.</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Infinix Smart 8 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-t2-5g-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Vivo T2 5G Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/masterful-management-add-gmail-accounts-to-outlook-windows/"><u>Masterful Management: Add Gmail Accounts to Outlook, Windows</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/rtisans-approach-to-crafting-channel-identities/"><u>The Artisan's Approach to Crafting Channel Identities</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-10-best-small-personal-gps-trackers-a-detailed-comparative-study-to-help-you-choose-the-right-size-for-safety-and-convenience/"><u>Top 10 Best Small Personal GPS Trackers - A Detailed, Comparative Study to Help You Choose the Right Size for Safety and Convenience</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/icks-for-vloggers-8-mirrorless-cameras-leading-the-pack/"><u>Top Picks for Vloggers 8 Mirrorless Cameras Leading the Pack</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/understanding-llama-2-usage-guide-essentials/"><u>Understanding Llama 2 - Usage Guide Essentials</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-frozen-frustrations-addressing-stutter-in-photobooth-videos/"><u>[New] 2024 Approved Frozen Frustrations Addressing Stutter in Photobooth Videos</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-superior-locations-for-purchasing-youtube-ringtone-content/"><u>[New] 2024 Approved Superior Locations for Purchasing YouTube Ringtone Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-seamlessly-download-youtube-thumbnails-online/"><u>[New] In 2024, Seamlessly Download YouTube Thumbnails Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-path-to-profitable-videography-starting-strong/"><u>[New] In 2024, The Path to Profitable Videography Starting Strong</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-unfiltered-guide-to-everyday-video-content/"><u>[New] In 2024, The Unfiltered Guide to Everyday Video Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/eamless-webm-creation-from-youtube-videos/"><u>[New] Seamless WebM Creation From YouTube Videos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-syncing-images-android-iphone-file-transfer-guide/"><u>[Updated] Syncing Images Android-iPhone File Transfer Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-comprehensive-guide-to-vsco-camera-app/"><u>2024 Approved Comprehensive Guide to VSCO Camera App</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-elevate-views-not-video-length-expert-guide-to-yt-desc-templates/"><u>2024 Approved Elevate Views, Not Video Length Expert Guide to YT Desc Templates</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-the-payment-structure-on-youtube/"><u>Decoding the Payment Structure on YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-revisiting-erased-reddit-topics-fast-and-efficient-ways/"><u>In 2024, Revisiting Erased Reddit Topics Fast & Efficient Ways</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, The Best Methods to Unlock the iPhone Locked to Owner for iPhone 11 Pro Max</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-unraveling-youtubes-platform-for-content-crafting/"><u>In 2024, Unraveling YouTube’s Platform for Content Crafting</u></a></li>
+<li><a href="https://games-able.techidaily.com/navigating-privacy-on-console-voice-communications/"><u>Navigating Privacy on Console Voice Communications</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210184979-9781880765760-the-free-will-zone/"><u>The Free Will Zone | Free Book</u></a></li>
 </ul></div>
 

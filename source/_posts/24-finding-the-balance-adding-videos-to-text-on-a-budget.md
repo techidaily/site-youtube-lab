@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Finding the Balance  Adding Videos to Text on a Budget\""
-date: 2024-10-31T00:24:41.710Z
-updated: 2024-11-01T20:32:02.569Z
+date: 2024-11-01T20:31:12.179Z
+updated: 2024-11-08T03:32:22.476Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,10 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Adding Video to Text in Filmora
@@ -69,10 +69,10 @@ Besides presentation software, you can also use video editing software products 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
@@ -84,10 +84,16 @@ Set the preferred duration of the title by dragging one of its ends to the left 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
@@ -97,10 +103,10 @@ Now it’s time to add the text video and the background video to the project me
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
@@ -136,18 +142,21 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-grab-your-guiltless-film-endings-with-our-template-service/"><u>[New] 2024 Approved Grab Your Guiltless Film Endings with Our Template Service</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-maximizing-channel-visibility-banner-size-and-art-dimensions-explained/"><u>[New] In 2024, Maximizing Channel Visibility Banner Size and Art Dimensions Explained</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-step-by-step-strategies-to-make-your-video-stand-out-with-effective-end-screens/"><u>[New] In 2024, Step-by-Step Strategies to Make Your Video Stand Out with Effective End Screens</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-expressive-poetry-in-images-and-text-top-100-instagramcaptions-for-2024/"><u>[Updated] Expressive Poetry in Images and Text - Top 100 #InstagramCaptions for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-best-webcams-for-youtube-livestreaming/"><u>[Updated] In 2024, Best Webcams for YouTube Livestreaming</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-streamlining-sound-systems-uploads-for-your-youtube-hub/"><u>[Updated] Streamlining Sound Systems Uploads for Your Youtube Hub</u></a></li>
-<li><a href="https://win-web3.techidaily.com/iumsiowvueacjewkoeapkosplusmpluswvhjrmlbdmja7kuk3lv4pnoazku7blpifku73op6plhrpmlrnmoygi/"><u>针对服务提供商:数据中心硬件备份解决方案</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/best-3-vivo-x90s-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>Best 3 Vivo X90S Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/expert-solutions-for-when-your-usb-hdmi-connection-wont-connect/"><u>Expert Solutions for When Your USB-HDMI Connection Won't Connect</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-xiaomi-redmi-note-12-pro-4g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Xiaomi Redmi Note 12 Pro 4G Phones with/without a PC</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-sharpening-digital-images-through-strategic-zooming/"><u>In 2024, Sharpening Digital Images Through Strategic Zooming</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ystery-of-unlisted-content-on-youtube-explored/"><u>The Mystery of Unlisted Content on YouTube Explored</u></a></li>
-<li><a href="https://network-issues.techidaily.com/1719974204116-upgrade-your-systems-visual-experience-using-the-latest-intel-gpu-driver-in-w10/"><u>Upgrade Your System's Visual Experience Using the Latest Intel GPU Driver in W10</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-elites-free-guide-to-10-caption-download-tools/"><u>[New] 2024 Approved Elite's Free Guide to 10 Caption Download Tools</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-discord-spoiler-tag-all-you-need-to-know-for-2024/"><u>[New] Discord Spoiler Tag All You Need to Know for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-leveraging-youtube-insights-for-content-growth/"><u>[Updated] 2024 Approved Leveraging YouTube Insights for Content Growth</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-youtube-revenue-pathways-and-payments/"><u>[Updated] 2024 Approved YouTube Revenue Pathways and Payments</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-future-earning-potential-in-gaming-videos-for-2024/"><u>[Updated] Future Earning Potential in Gaming Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-photo-tools-top-9-camgear-enhancers-for-filmmakers/"><u>[Updated] In 2024, Essential Photo Tools Top 9 CamGear Enhancers for Filmmakers</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-natural-and-artificial-blending-lights-in-iphone-photos/"><u>[Updated] Natural & Artificial Blending Lights in iPhone Photos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-exploring-the-legal-aspects-of-youtube-content-capture/"><u>2024 Approved Exploring the Legal Aspects of YouTube Content Capture</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-ingenious-designer-of-visual-and-auditory-delight/"><u>2024 Approved Ingenious Designer of Visual & Auditory Delight</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-thumbnail-tactics-for-top-views-on-youtube-videos/"><u>2024 Approved Thumbnail Tactics for Top Views on YouTube Videos</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/guia-paso-a-paso-para-modificar-la-unidad-de-rescate-en-windows-server-2022/"><u>Guía Paso a Paso Para Modificar La Unidad De Rescate en Windows Server 2022</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/1728501006287-hddwindows-11/"><u>HDDにWindows 11をインストールするための一番便利なガイド：初心者から上級者まで楽しめる方法</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-oneplus-11r-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve OnePlus 11R Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-calendar-events-iphone-14-pro-max-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Retrieve Deleted Calendar Events iPhone 14 Pro Max? | Stellar</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/mastering-koreader-a-comprehensive-tutorial-for-kindle-users/"><u>Mastering Koreader: A Comprehensive Tutorial for Kindle Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/outube-inversion-creative-tactics-to-watch-videos-backwards/"><u>The Youtube Inversion Creative Tactics to Watch Videos Backwards</u></a></li>
 </ul></div>
 

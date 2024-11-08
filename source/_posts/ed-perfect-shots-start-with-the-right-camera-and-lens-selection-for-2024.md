@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Perfect Shots Start With The Right Camera & Lens Selection for 2024"
-date: 2024-09-06T19:38:39.928Z
-updated: 2024-09-07T19:38:39.928Z
+date: 2024-11-04T19:35:36.175Z
+updated: 2024-11-07T16:44:16.442Z
 tags:
   - ai video
   - ai youtube
@@ -14,24 +14,12 @@ keywords: "Camera Selection For Perfect Photos,Ideal Lens for Great Images,Optim
 thumbnail: https://thmb.techidaily.com/5397c89a05d7c549e3c941ac0bcf9ef244a3e9feb2997b7fec4700344c4b271c.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Perfect Shots Start With The Right Camera & Lens Selection
 
 # A Vlogger's Guide To Camera Lenses
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Nov 01, 2022• Proven solutions
@@ -90,30 +78,12 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 ### Focal Length Equivalency Table
@@ -132,30 +102,39 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+### Aperture
+
+ ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
+
+<!-- affiliate ads begin -->
 <a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
   <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
 <img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-### Aperture
-
- ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -170,6 +149,19 @@ But do you even need a fast lens?
 * More expensive
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
+
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Optical Image Stabilization
 
@@ -191,14 +183,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -207,4 +196,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/irect-to-youtube-stepwise-process-of-mobile-and-desktop-video-posting/"><u>[New] Direct to YouTube Stepwise Process of Mobile & Desktop Video Posting</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-secrets-revealed-6-strategies-to-keep-your-youtube-audience-hooked-and-returning/"><u>[New] In 2024, Secrets Revealed 6 Strategies to Keep Your YouTube Audience Hooked and Returning</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-unfading-flight-ambitions-top-10-longevity-drone-lists/"><u>[New] In 2024, Unfading Flight Ambitions Top 10 Longevity Drone Lists</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-youtubes-financial-frontier-strategies-for-maximum-gains/"><u>[New] In 2024, Youtube's Financial Frontier Strategies for Maximum Gains</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/recise-codex-of-conduct-in-the-digital-realm/"><u>[New] Precise Codex of Conduct in the Digital Realm</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-becoming-a-lyric-video-pro-a-lyric-video-makers-journey-for-2024/"><u>[Updated] Becoming a Lyric Video Pro A Lyric Video Maker's Journey for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-easeus-screen-recorder-featuresreview/"><u>[Updated] EaseUS Screen Recorder Features|Review</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-essential-6-apps-elevating-your-instagram-reels/"><u>2024 Approved Essential 6 Apps Elevating Your Instagram Reels</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/cut-mkv-files-for-free-top-10-editor-recommendations/"><u>Cut MKV Files for Free Top 10 Editor Recommendations</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-ultimate-walkthrough-for-permanently-removing-your-yahoo-mail-account/"><u>The Ultimate Walkthrough for Permanently Removing Your Yahoo Mail Account</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ultimate-instructions-on-how-to-unset-a-pin-from-windows-11-accounts/"><u>Ultimate Instructions on How to Unset a Pin From Windows 11 Accounts</u></a></li>
+<li><a href="https://win-docs.techidaily.com/understanding-urls-comprehensive-guide-and-essential-seo-strategies-with-seo-powersuite/"><u>Understanding URLs: Comprehensive Guide & Essential SEO Strategies with SEO PowerSuite</u></a></li>
+</ul></div>
 

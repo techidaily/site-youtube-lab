@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Thriving on Both Sides  Work and YouTubing Tips\""
-date: 2024-10-29T00:17:43.959Z
-updated: 2024-11-02T06:38:50.639Z
+date: 2024-11-06T23:40:19.971Z
+updated: 2024-11-07T21:15:07.269Z
 tags:
   - ai video
   - ai youtube
@@ -52,26 +52,26 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4. Create 3-5 videos in advance
 
@@ -84,10 +84,10 @@ In the event that life gets too crazy, it’s perfectly fine to do just audio. M
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Make a YouTube Video with Wondershare Filmora
@@ -99,10 +99,10 @@ Just try it and create your own YouTube video!
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -128,22 +128,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/levate-your-mobile-surfing-with-these-top-7-blockers/"><u>[New] Elevate Your Mobile Surfing with These Top 7 Blockers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/aximizing-impact-with-creative-video-titles-for-2024/"><u>[New] Maximizing Impact with Creative Video Titles for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-secrets-for-transcribing-twitter-videos-into-mp3-format/"><u>[New] Secrets for Transcribing Twitter Videos Into MP3 Format</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nraveling-the-complexity-of-youtube-analytics-analysis-for-2024/"><u>[New] Unraveling the Complexity of YouTube Analytics Analysis for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-digital-dominion-for-techno-gamers/"><u>[Updated] 2024 Approved Digital Dominion for Techno Gamers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-investigating-spotlighted-comments-online/"><u>[Updated] 2024 Approved Investigating Spotlighted Comments Online</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-tiktok-livestream-immersion-your-playbook/"><u>[Updated] 2024 Approved TikTok Livestream Immersion Your Playbook</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-5-tips-for-enhancing-roblox-gaming-recordings-mac-for-2024/"><u>[Updated] 5 Tips for Enhancing Roblox Gaming Recordings (Mac) for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-auditory-storytelling-in-cinematic-openings/"><u>[Updated] Auditory Storytelling in Cinematic Openings</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-easy-sound-transformation-ios-tools-to-convert-youtube-songs-to-mp3-files/"><u>[Updated] In 2024, Easy Sound Transformation IOS Tools to Convert YouTube Songs to MP3 Files</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-crafting-seamless-image-transfers-across-operating-systems/"><u>2024 Approved Crafting Seamless Image Transfers Across Operating Systems</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/a-comprehensive-guide-to-choosing-between-cat5-or-cat6-cables-for-your-home-office/"><u>A Comprehensive Guide to Choosing Between Cat5 or Cat6 Cables for Your Home Office</u></a></li>
-<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Oppo Find X6 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/tless-music-extraction-choose-the-right-apps-for-youtube-and-mp3/"><u>Effortless Music Extraction Choose the Right Apps for YouTube & MP3</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/o-edit-youtube-videos-in-windows-movie-maker/"><u>How to Edit YouTube Videos in Windows Movie Maker</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-unlock-apple-id-from-your-iphone-8-plus-without-security-questions-by-drfone-ios/"><u>How to Unlock Apple ID From your iPhone 8 Plus without Security Questions?</u></a></li>
-<li><a href="https://fox-access.techidaily.com/navigating-the-complexities-of-youtubes-subtitles-download-with-3-proven-techniques-for-2024/"><u>Navigating the Complexities of YouTube's Subtitles Download With 3 Proven Techniques for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-visualize-pixels-introduce-inner-soft-radial-blur-in-cs/"><u>[New] Visualize Pixels Introduce Inner Soft Radial Blur in CS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unveiling-the-mysteries-of-digital-media-ownership-on-youtube/"><u>[Updated] 2024 Approved Unveiling the Mysteries of Digital Media Ownership on YouTube</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-from-standard-to-spectacular-your-guide-to-selecting-a-stellar-4k-display/"><u>[Updated] In 2024, From Standard to Spectacular Your Guide to Selecting a Stellar 4K Display</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-copyrights-demystified-understanding-and-managing-strikes-for-2024/"><u>[Updated] YouTube Copyrights Demystified Understanding and Managing Strikes for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-zero-cost-frame-perfection-on-youtube-video-viewing/"><u>[Updated] Zero-Cost Frame Perfection on YouTube Video Viewing</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-quick-and-simple-creating-stunning-time-lapses-on-samsungs/"><u>2024 Approved Quick & Simple Creating Stunning Time-Lapses on Samsungs</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-motorola-moto-g23-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Motorola Moto G23</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/connect-to-fm-frequencies-a-users-manual-for-iphones-and-android-phones/"><u>Connect to FM Frequencies: A User's Manual for iPhones and Android Phones</u></a></li>
+<li><a href="https://article-tips.techidaily.com/download-youtube-tweets-as-mp3-files-for-2024/"><u>Download YouTube Tweets as MP3 Files for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/te-views-with-optimal-youtube-thumbnails-and-ratios/"><u>Elevate Views with Optimal YouTube Thumbnails & Ratios</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-oppo-k11xwithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Oppo K11xwith/without a PC</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-ultimate-list-best-video-making-for-ios-android-users/"><u>In 2024, The Ultimate List Best Video-Making For iOS, Android Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/izing-online-identity-through-yt-profile-refinement-for-2024/"><u>Optimizing Online Identity Through YT Profile Refinement for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nalizing-public-vs-private-settings-on-youtube-for-2024/"><u>Personalizing Public vs Private Settings on YouTube for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/success-story-correcting-the-driver-failed-problem-with-easy-configuration-tips/"><u>Success Story: Correcting the 'Driver Failed' Problem with Easy Configuration Tips</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-most-efficient-cable-modems-on-the-market-2024-edition/"><u>The Most Efficient Cable Modems on the Market - 2024 Edition</u></a></li>
 </ul></div>
 

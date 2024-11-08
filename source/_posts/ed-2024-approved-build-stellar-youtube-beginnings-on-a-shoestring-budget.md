@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Build Stellar YouTube Beginnings on a Shoestring Budget\""
-date: 2024-09-06T19:38:13.581Z
-updated: 2024-09-07T19:38:13.581Z
+date: 2024-11-06T21:01:06.786Z
+updated: 2024-11-08T01:10:49.024Z
 tags:
   - ai video
   - ai youtube
@@ -14,24 +14,12 @@ keywords: "\"Budget-Friendly YT Channel Start,Cost-Effective YouTubing Basics,Af
 thumbnail: https://thmb.techidaily.com/c6291d176ca52af593ed97a64202c588c0b54ac6b9ff66af20d69e9744d56a33.jpeg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Build Stellar YouTube Beginnings on a Shoestring Budget
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Oct 26, 2023• Proven solutions
@@ -52,18 +40,6 @@ thumbnail: https://thmb.techidaily.com/c6291d176ca52af593ed97a64202c588c0b54ac6b
 
 [How To Make an End Card](#how-to)
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -92,18 +68,6 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -114,17 +78,12 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -161,25 +120,23 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -188,4 +145,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-cut-costs-enhance-visuals-free-banners-for-video-makers-for-2024/"><u>[New] Cut Costs, Enhance Visuals – Free Banners for Video Makers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ow-to-profit-from-your-youtube-channels-for-2024/"><u>[New] How to Profit From Your YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-structuring-videos-for-maximum-impact-on-youtube/"><u>[New] In 2024, Structuring Videos for Maximum Impact on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ourney-to-optimal-health-the-top-10-online-yoga-masters/"><u>[New] Journey to Optimal Health - The Top 10 Online Yoga Masters</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ethinking-top-movies-7-swap-selections/"><u>[New] Rethinking Top Movies - #7 Swap Selections</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nlocking-youtubes-viewer-count-secret-weights/"><u>[New] Unlocking YouTube's Viewer Count Secret Weights</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-watch-9-free-full-length-christmas-movies-on-youtube/"><u>[Updated] In 2024, Watch 9 Free Full Length Christmas Movies On YouTube</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-snappy-sharing-uploading-and-publishing-short-videos-online/"><u>[Updated] Snappy Sharing Uploading and Publishing Short Videos Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-earning-mastery-executing-a-3-step-procedure-to-evaluate-your-youtube-income/"><u>2024 Approved Earning Mastery Executing a 3-Step Procedure to Evaluate Your YouTube Income</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-how-to-edit-youtube-videos-in-adobe-premiere/"><u>2024 Approved How to Edit YouTube Videos in Adobe Premiere</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-youtube-monetization-policy-updated-requirements-and-guidelines/"><u>2024 Approved YouTube Monetization Policy Updated Requirements and Guidelines</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ver-the-leading-free-ios-video-editor-a-comprehensive-guide-for-2024/"><u>Discover the Leading Free iOS Video Editor A Comprehensive Guide for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/essential-criteria-preparing-to-utilize-chatgpt-in-mental-health-support/"><u>Essential Criteria: Preparing to Utilize ChatGPT in Mental Health Support</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-tecno-spark-20-pro-drfone-by-drfone-android/"><u>How to Screen Mirroring Tecno Spark 20 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-google-pixel-7a-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Google Pixel 7a to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-ffmpeg-and-the-art-of-audio-preservation/"><u>In 2024, FFmpeg and the Art of Audio Preservation</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-vivo-y36i-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Vivo Y36i? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-vivo-y78plus-t1-edition-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Vivo Y78+ (T1) Edition? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-10-must-play-titles-on-the-steam-deck/"><u>Top 10 Must-Play Titles on the Steam Deck</u></a></li>
+</ul></div>
 

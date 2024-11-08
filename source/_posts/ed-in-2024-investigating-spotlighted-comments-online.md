@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Investigating Spotlighted Comments Online"
-date: 2024-10-26T20:12:47.708Z
-updated: 2024-11-02T02:03:47.182Z
+date: 2024-11-02T19:27:01.155Z
+updated: 2024-11-08T02:50:52.317Z
 tags:
   - ai video
   - ai youtube
@@ -60,16 +60,10 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
 <!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: What Does The Highlighted Comment Look Like?
@@ -79,10 +73,16 @@ YouTube has been working on improving the navigation of the comment section for 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915830/19272" target="_top" id="1915830">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915830" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915830/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
@@ -107,19 +107,6 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: How to Reply to Highlighted Comments?
 
 Replying to "highlighted comments" on your YouTube channel is pretty easy since this feature was developed, keeping the user's convenience in mind. If you want to follow up or reply to such comments, you can do so from your email or YouTube Dashboard.
@@ -127,6 +114,13 @@ Replying to "highlighted comments" on your YouTube channel is pretty easy since 
 If you click the notification bell icon, whenever a viewer drops a new comment on one of your videos, YouTube will send you a notification via email. On opening the email, you will find a clickable "Reply" option. Or else, if you follow the comment section in the YouTube Dashboard, you can directly view or reply to highlighted comments from here as well.
 
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094483/7443" target="_top" id="2094483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 6: How to Remove Highlighted Comments?
 
@@ -141,6 +135,13 @@ Alternatively, you can try out a few temporary solutions.
 <https://www.youtube.com/watch?v=XWhjJjhpmQA>
 
 1. Try logging out from your Google Account and browse YouTube (anonymously). Doing this will ensure that you no longer see any highlighted comments. However, at the same time, this will restrict you from interacting in any way with that video, let alone leaving a comment.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 7: Tips for Writing a Comment that will be Pinned as a Highlighted Comment?
 
@@ -172,13 +173,6 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -200,22 +194,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-convenient-hp-recording-strategies-for-seamless-productivity/"><u>[New] Convenient HP Recording Strategies for Seamless Productivity</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/uide-to-youtubes-latest-income-strategies-for-2024/"><u>[New] Guide to YouTube's Latest Income Strategies for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-exploring-how-tseries-harnesses-revenue-from-online-viewer-base-youtube/"><u>[New] In 2024, Exploring How TSeries Harnesses Revenue From Online Viewer Base (YouTube)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/earn-to-turn-comments-on-or-off-on-youtube-easily-for-2024/"><u>[New] Learn to Turn Comments On or Off on YouTube Easily for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ransform-your-youtube-presence-effortlessly-for-2024/"><u>[New] Transform Your YouTube Presence Effortlessly for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nleash-your-contents-potential-organic-growth-tactics/"><u>[New] Unleash Your Content's Potential Organic Growth Tactics</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-infinite-inspiration-cost-free-youtube-theming/"><u>[Updated] In 2024, Infinite Inspiration Cost-Free YouTube Theming</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-prime-source-directory-downloading-youtube-video-intros/"><u>[Updated] In 2024, Prime Source Directory Downloading YouTube Video Intros</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-unlocking-the-secrets-of-instagram-scheduling/"><u>[Updated] In 2024, Unlocking the Secrets of Instagram Scheduling</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/d-the-scenes-how-to-create-youtube-trailers-in-filmora/"><u>Behind the Scenes How-To Create YouTube Trailers in Filmora</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/bypassing-freeze-windows-update-savior-guide/"><u>Bypassing Freeze: Windows Update Savior Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ious-youtube-moments-top-10-quirky-short-film-concepts/"><u>Hilarious YouTube Moments Top 10 Quirky Short Film Concepts</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-watching-social-network-vids-through-the-television-glass/"><u>In 2024, Watching Social Network Vids Through the Television Glass?</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/lingua-franca-of-the-holy-land/"><u>Lingua Franca of the Holy Land?</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/mastering-sleep-optimal-asmr-experiences-and-picks-for-2024/"><u>Mastering Sleep Optimal ASMR Experiences & Picks for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overhauling-copy-and-paste-on-chrome-edge-firefox-os/"><u>Overhauling Copy & Paste on Chrome, Edge, Firefox OS</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/bes-link-trimming-winners-select-the-top-5-apps-for-2024/"><u>Youtube's Link-Trimming Winners Select the Top 5 Apps for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unlock-creative-potential-with-no-cost-green-screen-knowledge-from-top-4-educational-channels/"><u>[Updated] In 2024, Unlock Creative Potential with No-Cost Green Screen Knowledge From Top 4 Educational Channels</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unlock-premium-image-quality-through-youtubes-av1-settings-for-2024/"><u>[Updated] Unlock Premium Image Quality Through YouTube's AV1 Settings for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-efficient-tools-simplifying-the-task-of-feedback-erasure/"><u>2024 Approved Efficient Tools Simplifying the Task of Feedback Erasure</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-revisiting-sonys-s6700-blu-ray/"><u>2024 Approved Revisiting Sony's S6700 Blu-Ray</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unleash-your-youtube-earnings-achieving-prosperity-at-the-50-written-excerpt/"><u>2024 Approved Unleash Your YouTube Earnings Achieving Prosperity at the 50 Written Excerpt</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96316545-9781401926281-el-asombroso-poder-de-las-emociones/"><u>El Asombroso Poder de las Emociones | Free Book</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-make-time-lapse-on-samsung-mobile/"><u>How to Make Time Lapse on Samsung Mobile</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-transform-yourfb-watchlist-with-easy-youtube-video-autoplay-configuration/"><u>In 2024, Transform YourFB Watchlist with Easy Youtube Video Autoplay Configuration</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-vn-video-editor-pro-vs-the-competition-how-does-it-stack-up-in-2024/"><u>New VN Video Editor Pro Vs. The Competition How Does It Stack Up, In 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/windows-10-windows-10cortanaspartanhololens/"><u>Windows 10ファイル: 安心で快適なWindows 10無料ダウンロード・アップグレードガイドとCortana、Spartan、HoloLensの特集</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/zero-dollars-free-techniques-for-desktop-snaps-for-2024/"><u>Zero Dollars Free Techniques for Desktop Snaps for 2024</u></a></li>
 </ul></div>
 

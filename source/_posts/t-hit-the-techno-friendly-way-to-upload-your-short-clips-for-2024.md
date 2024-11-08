@@ -1,7 +1,7 @@
 ---
 title: "\"Direct Hit  The Techno-Friendly Way to Upload Your Short Clips for 2024\""
-date: 2024-10-26T07:47:59.885Z
-updated: 2024-11-02T00:53:55.449Z
+date: 2024-11-06T17:49:17.286Z
+updated: 2024-11-08T05:03:37.315Z
 tags:
   - ai video
   - ai youtube
@@ -81,6 +81,13 @@ For macOS 10.12 or later
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997657/19272" target="_top" id="1997657">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997657" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997657/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
@@ -95,24 +102,31 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
 #### Step 2: Add Details
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
 #### Step 3: Upload the Video
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: Record a Short Video and Upload
 
@@ -123,19 +137,6 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1770544">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -159,26 +160,13 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -202,18 +190,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ultivating-a-community-the-key-to-surpassing-1000-views/"><u>[New] Cultivating a Community The Key to Surpassing 1000 Views</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-explore-top-7-live-streaming-iosandroid-apps-perfect-for-youtube-channel-creators/"><u>[New] In 2024, Explore Top 7 Live Streaming iOS/Android Apps Perfect for YouTube Channel Creators</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-elevating-viewers-to-patrons-a-vloggers-guide-to-income/"><u>[Updated] Elevating Viewers to Patrons A Vlogger's Guide to Income</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-mastering-video-production-with-chroma-key-techniques-for-2024/"><u>[Updated] Mastering Video Production with Chroma Key Techniques for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-optimizing-privacy-for-your-online-videography-for-2024/"><u>[Updated] Optimizing Privacy for Your Online Videography for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-building-a-strong-online-presence-with-attractive-video-thumbnails/"><u>2024 Approved Building a Strong Online Presence with Attractive Video Thumbnails</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-simplified-hdr-strategies-for-photography-novices/"><u>2024 Approved Simplified HDR Strategies for Photography Novices</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/calculating-ideal-time-for-tech-refresh/"><u>Calculating Ideal Time for Tech Refresh</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-vivo-y78t-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Vivo Y78t Phones with/without a PC</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-y17s-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Vivo Y17s Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://fox-that.techidaily.com/iphone-text-delays-frustrating-you-solve-it-in-just-9-easy-steps/"><u>IPhone Text Delays Frustrating You? Solve It in Just 9 Easy Steps!</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ing-your-youtube-profile-a-guide-for-2024/"><u>Securing Your YouTube Profile A Guide for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/transforming-your-mac-a-step-by-step-guide-to-using-windows-compatible-keyboards-mice-and-trackballs/"><u>Transforming Your Mac: A Step-by-Step Guide to Using Windows-Compatible Keyboards, Mice, and Trackballs</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-rapid-film-techniques-make-your-own-studio-at-home/"><u>[New] Rapid Film Techniques Make Your Own Studio At Home</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-channel-your-creativity-convert-youtube-clips-into-dynamic-gifs-for-2024/"><u>[Updated] Channel Your Creativity Convert YouTube Clips Into Dynamic Gifs for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-decoding-the-mysteries-of-effective-youtube-keywords/"><u>[Updated] Decoding the Mysteries of Effective YouTube Keywords</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-uniting-your-favorite-sounds-a-complete-walkthrough-for-making-youtube-playlists-onlinemobile-for-2024/"><u>[Updated] Uniting Your Favorite Sounds A Complete Walkthrough for Making YouTube Playlists Online/Mobile for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-video-venue-selection-finding-the-right-platform/"><u>[Updated] Video Venue Selection Finding the Right Platform</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-visual-flow-mastery-with-simple-transitions/"><u>2024 Approved Visual Flow Mastery with Simple Transitions</u></a></li>
+<li><a href="https://win-blog.techidaily.com/cambia-tu-audio-de-m4a-al-formato-swf-facilmente-y-gratis-mediante-onlineconvertfreeorg/"><u>Cambia Tu Audio De M4A Al Formato SWF Fácilmente Y Gratis Mediante OnlineConvertFree.org</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/sive-free-mcb-visual-tools/"><u>Exclusive Free MCB Visual Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-intersecting-realities-metaverse-and-multiverse-differences/"><u>In 2024, Intersecting Realities Metaverse and Multiverse Differences</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-is-it-possible-to-use-miracast-with-apple-iphone-12-drfone-by-drfone-ios/"><u>In 2024, Is it Possible to Use Miracast with Apple iPhone 12? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-masterclass-in-glamour-beauty-tutorials-for-all/"><u>In 2024, Masterclass in Glamour Beauty Tutorials for All</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-precise-codex-of-conduct-in-the-digital-realm/"><u>In 2024, Precise Codex of Conduct in the Digital Realm</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-vivo-y77t-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Vivo Y77t Unresponsive Screen | Dr.fone</u></a></li>
 </ul></div>
 

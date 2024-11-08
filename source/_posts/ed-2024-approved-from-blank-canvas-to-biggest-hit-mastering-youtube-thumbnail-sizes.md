@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  From Blank Canvas to Biggest Hit  Mastering YouTube Thumbnail Sizes\""
-date: 2024-10-26T17:44:06.326Z
-updated: 2024-11-02T05:50:08.299Z
+date: 2024-11-05T00:33:18.392Z
+updated: 2024-11-08T01:00:40.743Z
 tags:
   - ai video
   - ai youtube
@@ -70,10 +70,10 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
@@ -86,16 +86,10 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
@@ -111,16 +105,23 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
@@ -129,13 +130,6 @@ You may want to know:
 
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
@@ -170,18 +164,18 @@ With Canva you can make a distinct and stand-out YouTube thumbnail image. Canva 
 
 To download the image without the watermark you’ll need to sign-up for a premium account on the Canva.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **To sum up**
 
 YouTube thumbnail plays an important part for the audience's first impression on your video. And it is of essential essence as it can attract more viewers to your content. So you should get the right **youtube thumbnail size** before you start customing your thumbnail. We’ve gone through all the detailed requirements of **youtube thumbnail size** and how to make the best thumbnail by using the best software solutions. Please leave your comments below if any suggestions. We'd love to hear them!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -204,19 +198,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-quick-steps-to-elevate-low-quality-webcam-vids/"><u>[New] 2024 Approved Quick Steps to Elevate Low-Quality WebCam Vids</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-proven-steps-building-quality-time-lapses-on-galaxy-devices/"><u>[New] Proven Steps Building Quality Time-Lapses on Galaxy Devices</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/eliable-steps-toward-attaining-safe-and-ethical-one-million-follower-status/"><u>[New] Reliable Steps Toward Attaining Safe and Ethical One-Million Follower Status</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/eviving-retro-film-techniques-detailed-instructions-for-2024/"><u>[New] Reviving Retro Film Techniques Detailed Instructions for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/he-insiders-guide-to-youtube-success/"><u>[New] The Insider's Guide to YouTube Success</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/best-6-value-proposition-affordable-4k-projectors/"><u>Best 6 Value Proposition Affordable 4K Projectors</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/iant-setups-top-17-gear-for-online-videographers-for-2024/"><u>Brilliant Setups Top 17 Gear for Online Videographers for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/bypass-activation-lock-from-apple-iphone-11-pro-max-4-easy-ways-by-drfone-ios/"><u>Bypass Activation Lock From Apple iPhone 11 Pro Max - 4 Easy Ways</u></a></li>
-<li><a href="https://common-error.techidaily.com/effortless-remedies-for-microsofts-error-code-0x800f0831-via-windows-update-options/"><u>Effortless Remedies for Microsoft's Error Code 0X800f0831 via Windows Update Options</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-channel-your-content-earning-through-evaluative-endeavors-online/"><u>In 2024, Channel Your Content Earning Through Evaluative Endeavors Online</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-motorola-g54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Motorola G54 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-snippet-analysis-at-a-glance-for-2024/"><u>Micro Snippet Analysis at a Glance for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/utting-edge-without-costs-navigating-through-these-8-tools-for-2024/"><u>The Cutting Edge Without Costs - Navigating Through These 8 Tools for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-extracting-youtube-music-three-secure-ways-without-financial-burden/"><u>[New] In 2024, Extracting YouTube Music Three Secure Ways Without Financial Burden</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/aking-the-leap-essential-video-gatherings-post-vidcon/"><u>[New] Taking the Leap Essential Video Gatherings (Post-VidCon)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-essential-audio-interface-guide-for-podcasters/"><u>[Updated] 2024 Approved Essential Audio Interface Guide for Podcasters</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mapping-out-the-next-wave-of-social-media-graphs/"><u>[Updated] Mapping Out the Next Wave of Social Media Graphs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-earning-equations-decoding-the-mathematics-behind-youtube-income-monitoring/"><u>2024 Approved Earning Equations Decoding the Mathematics Behind YouTube Income Monitoring</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722973214798-fire-suppression-systems-are-designed-based-on-a-thorough-risk-assessment-of-the-protected-space/"><u>Fire Suppression Systems Are Designed Based on a Thorough Risk Assessment of the Protected Space</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/guide-on-viewing-the-spectacular-2024-olympics-gymnastic-events/"><u>Guide on Viewing the Spectacular 2024 Olympics Gymnastic Events</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-from-novice-to-pro-your-step-by-step-guide-to-youtube-live-images/"><u>In 2024, From Novice to Pro Your Step-by-Step Guide to YouTube Live Images</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-lenovo-thinkphone-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Lenovo ThinkPhone Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://win11.techidaily.com/optimizing-epic-launcher-operations-for-speedy-downloads/"><u>Optimizing Epic Launcher Operations for Speedy Downloads</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/rethink-ai-six-reasons-to-approach-with-skepticism/"><u>Rethink AI: Six Reasons to Approach with Skepticism</u></a></li>
+<li><a href="https://techidaily.com/unlock-iphone-8-plus-lock-with-apple-id-by-drfone-ios-unlock-ios-unlock/"><u>Unlock iPhone 8 Plus lock with Apple ID</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering YouTube's Defense  Confronting Critics\""
-date: 2024-09-06T19:39:27.735Z
-updated: 2024-09-07T19:39:27.735Z
+date: 2024-11-06T16:39:37.350Z
+updated: 2024-11-07T22:13:17.697Z
 tags:
   - ai video
   - ai youtube
@@ -14,36 +14,18 @@ keywords: "YouTubDefenseSkills,YouTubeCritiqueFight,MasterYouTubeCriticism,Defen
 thumbnail: https://thmb.techidaily.com/443fa3d21137649dff0319f1c3c3070702e32a7b2f673e094959a8fdb4cdbd5b.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mastering YouTube's Defense: Confronting Critics
 
 # How To Deal with YouTube Trolls and Negative Comments
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -72,26 +54,17 @@ thumbnail: https://thmb.techidaily.com/443fa3d21137649dff0319f1c3c3070702e32a7b2
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -100,4 +73,31 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-crafting-attention-a-look-at-the-best-15-video-intro-plans/"><u>[New] In 2024, Crafting Attention A Look at the Best 15 Video Intro Plans</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-essential-software-to-rip-youtube-trailers/"><u>[New] In 2024, Essential Software to Rip YouTube Trailers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-top-15-youtube-starter-themes-for-increased-viewership/"><u>[New] In 2024, Top 15 YouTube Starter Themes for Increased Viewership</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-unraveling-the-cash-accumulation-through-viewers-attention/"><u>[New] In 2024, Unraveling the Cash Accumulation Through Viewers' Attention</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-laugh-and-cry-on-instagram-best-meme-accounts-of-the-year/"><u>[New] Laugh and Cry on Instagram Best Meme Accounts of the Year</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-sony-bdp-s6500-review-updated/"><u>[New] Sony BDP-S6500 Review - Updated</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/outube-recommended-videos-block-the-videos-for-2024/"><u>[New] YouTube Recommended Videos - Block the Videos for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-accelerated-steps-to-rearrange-youtube-music-ordering/"><u>[Updated] In 2024, Accelerated Steps to Rearrange YouTube Music Ordering</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-video-prowess-comparison-the-battle-between-cameras/"><u>[Updated] In 2024, Video Prowess Comparison The Battle Between Cameras</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-fb-video-highlights-our-top-5-favorites/"><u>2024 Approved FB Video Highlights Our Top 5 Favorites</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-stepwise-steps-to-install-windows-movie-maker-6/"><u>2024 Approved Stepwise Steps to Install Windows Movie Maker 6</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/find-and-install-the-right-controller-emulator-for-xbox-360-games/"><u>Find and Install the Right Controller Emulator for Xbox 360 Games</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-lava-blaze-2-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Lava Blaze 2 Device SIM</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1721952284796-new-chatgpt-ios-app-revealed/"><u>New ChatGPT iOS App Revealed</u></a></li>
+<li><a href="https://win11.techidaily.com/skilled-tactics-bypassing-windows-11s-security-measures/"><u>Skilled Tactics: Bypassing Windows 11'S Security Measures</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/ultimate-guide-resolving-the-persistent-windows-update-error-0x80240017/"><u>Ultimate Guide: Resolving the Persistent Windows Update Error 0X80240017</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ate-list-of-highest-rated-free-video-editing-apps-for-idevices/"><u>Ultimate List of Highest-Rated Free Video Editing Apps for iDevices</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Footage to Feature  Making YouTube Thumbnails (Mobile)\""
-date: 2024-10-27T18:32:18.680Z
-updated: 2024-11-02T04:36:28.702Z
+date: 2024-10-31T17:53:59.791Z
+updated: 2024-11-08T04:06:37.042Z
 tags:
   - ai video
   - ai youtube
@@ -74,13 +74,6 @@ Step5 When you're satisfied with your thumbnail, **tap Done** in the top right c
 
 This method is best for users looking for a quick and easy way to create a thumbnail on the go and doesn't need many customization options. It's also a good option for users needing computer or graphic design software access. If you're looking for more advanced customization options or higher image quality, consider using other methods or software.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Method 2\. Make YouTube Thumbnails on Android/iPhone With Third-Party Apps
 
 In addition to using the built-in Photos app on your iPhone or Android device, there are also many third-party apps that you can use to create YouTube thumbnails. Some popular options include Canva, Adobe Spark, and FotoJet. These apps offer a wider range of customization options and design templates, making it easy to create professional-looking thumbnails even if you have yet to gain graphic design experience.
@@ -97,6 +90,13 @@ Step2 Tap the **"+"** icon to **add** an image from your gallery.
 
 ![pixellab add image](https://images.wondershare.com/filmora/article-images/pixellab-add-image.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Edit the image using the available tools, such as cropping, rotating, and adjusting the color and lighting.
 
 ![pixellab editing options](https://images.wondershare.com/filmora/article-images/pixellab-editing-options.jpg)
@@ -105,13 +105,6 @@ Step4 Add text to the image and **customize** it to your liking.
 
 ![pixellab add text](https://images.wondershare.com/filmora/article-images/pixellab-add-text.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5 Change the resolution of the image to **1280 x 720 pixels**.
 
 ![pixellab change resolution](https://images.wondershare.com/filmora/article-images/pixellab-change-resolution.jpg)
@@ -119,6 +112,13 @@ Step5 Change the resolution of the image to **1280 x 720 pixels**.
 Step6 Save the image to your gallery by exporting it.
 
 ![pixellab export image](https://images.wondershare.com/filmora/article-images/pixellab-export-image.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Pros
 
@@ -147,9 +147,23 @@ Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 
 ![youtube select video](https://images.wondershare.com/filmora/article-images/youtube-select-video.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Tap on the video and tap the "**Edit**" button in the top right corner of the screen.
 
 ![youtube edit video](https://images.wondershare.com/filmora/article-images/youtube-edit-video.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Tap the **Custom thumbnail** button and **upload** the image you want to use from your photo library.
 
@@ -207,13 +221,6 @@ This video will show you how to use Filmora to create a custom thumbnail for you
 
 Here are some common questions that people have when it comes to creating YouTube thumbnails on mobile.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Q1\. What App Do Youtubers Use To Make Thumbnails?
 
 There are many different apps and tools that YouTubers use to create thumbnails for their videos. The best app for creating YouTube thumbnails will depend on your needs and skill level.
@@ -225,6 +232,19 @@ If you're looking for a quick and easy way to create a thumbnail on your mobile 
 The recommended size for YouTube thumbnails is 1280 x 720 pixels. This size balances quality and file size, ensuring that your thumbnail looks sharp and loads quickly. It's also important to note that YouTube thumbnails are displayed at different sizes depending on the device and context in which they are viewed.
 
 For example, a thumbnail may be displayed at a larger size when it's shown as the main thumbnail for a video but smaller when it's shown in a list of related videos.
+
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Q3\. What Thumbnail Gets the Most Clicks?
 
@@ -240,13 +260,6 @@ Whether you create your thumbnails on your mobile device or your computer, use a
 
 This method is best for users looking for a quick and easy way to create a thumbnail on the go and doesn't need many customization options. It's also a good option for users needing computer or graphic design software access. If you're looking for more advanced customization options or higher image quality, consider using other methods or software.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Method 2\. Make YouTube Thumbnails on Android/iPhone With Third-Party Apps
 
 In addition to using the built-in Photos app on your iPhone or Android device, there are also many third-party apps that you can use to create YouTube thumbnails. Some popular options include Canva, Adobe Spark, and FotoJet. These apps offer a wider range of customization options and design templates, making it easy to create professional-looking thumbnails even if you have yet to gain graphic design experience.
@@ -263,6 +276,13 @@ Step2 Tap the **"+"** icon to **add** an image from your gallery.
 
 ![pixellab add image](https://images.wondershare.com/filmora/article-images/pixellab-add-image.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Edit the image using the available tools, such as cropping, rotating, and adjusting the color and lighting.
 
 ![pixellab editing options](https://images.wondershare.com/filmora/article-images/pixellab-editing-options.jpg)
@@ -278,13 +298,6 @@ Step5 Change the resolution of the image to **1280 x 720 pixels**.
 Step6 Save the image to your gallery by exporting it.
 
 ![pixellab export image](https://images.wondershare.com/filmora/article-images/pixellab-export-image.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Pros
 
@@ -313,13 +326,6 @@ Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 
 ![youtube select video](https://images.wondershare.com/filmora/article-images/youtube-select-video.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Tap on the video and tap the "**Edit**" button in the top right corner of the screen.
 
 ![youtube edit video](https://images.wondershare.com/filmora/article-images/youtube-edit-video.JPG)
@@ -328,16 +334,16 @@ Step4 Tap the **Custom thumbnail** button and **upload** the image you want to u
 
 ![youtube upload thumbnail](https://images.wondershare.com/filmora/article-images/youtube-upload-thumbnail.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5 Tap Save in the top right corner to upload the thumbnail to your video.
 
 ![youtube save thumbnail](https://images.wondershare.com/filmora/article-images/youtube-save-thumbnail.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 That's it! Your new thumbnail will now be displayed on your YouTube video, helping it stand out and attract more views. You can repeat this process for other videos if you want to add a custom thumbnail.
 
@@ -360,13 +366,6 @@ To create a thumbnail using Filmora on your Windows or Mac computer, follow thes
 Step1 Launch Filmora, add the picture to the timeline and **select** the AI Portrait option in the Effects panel to cut out the subject from the background.
 
 ![filmora interface](https://images.wondershare.com/filmora/article-images/filmora-interface.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step2 Scale up and reposition the photo.
 
@@ -399,6 +398,13 @@ Here are some common questions that people have when it comes to creating YouTub
 There are many different apps and tools that YouTubers use to create thumbnails for their videos. The best app for creating YouTube thumbnails will depend on your needs and skill level.
 
 If you're looking for a quick and easy way to create a thumbnail on your mobile device, start with the built-in Photos app or a third-party app like Canva. If you need more advanced customization options or are comfortable with graphic design software, consider using Adobe Photoshop or another tool.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Q2\. What Is YouTube Thumbnail Size?
 
@@ -439,18 +445,24 @@ Whether you create your thumbnails on your mobile device or your computer, use a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-step-by-step-guide-to-capturing-desktop-using-ezvid-software/"><u>[New] In 2024, Step-by-Step Guide to Capturing Desktop Using Ezvid Software</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-discover-efficient-methods-for-compiling-songs-on-youtube/"><u>[Updated] Discover Efficient Methods for Compiling Songs on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-skyrocketing-youtube-popularity-through-seo-know-how/"><u>[Updated] In 2024, Skyrocketing YouTube Popularity Through SEO Know-How</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-leading-tech-premium-choices-of-mac-videograbbers-for-2024/"><u>[Updated] Leading Tech Premium Choices of Mac Videograbbers for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-mastering-screen-capture-with-irecorder-for-2024/"><u>[Updated] Mastering Screen Capture with iRecorder for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-rhythm-revivers-10-androidios-audio-challengers/"><u>[Updated] Rhythm Revivers 10 Android/iOS Audio Challengers</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-the-finest-budget-friendly-photo-processors-online/"><u>[Updated] The Finest Budget-Friendly Photo Processors Online</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/cing-youtube-experience-with-a-structured-watch-later-plan-for-2024/"><u>Enhancing YouTube Experience with a Structured Watch Later Plan for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/expert-advice-on-resolving-razer-manowar-microphone-failure/"><u>Expert Advice on Resolving Razer ManO'War Microphone Failure</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-dismantling-the-shadowy-video-barrier-on-youtube/"><u>In 2024, Dismantling the Shadowy Video Barrier on YouTube</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211018038-9781088235836-meditations-for-the-superhuman-mage/"><u>Meditations for the Superhuman Mage | Free Book</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ame-plan-for-creating-a-hit-youtube-introduction-trailer/"><u>The Game Plan for Creating a Hit YouTube Introduction Trailer</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/unveiling-the-update-to-sonys-premium-blu-ray-player/"><u>Unveiling the Update to Sony’s Premium Blu-Ray Player</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-ultimate-list-best-for-android-pics/"><u>[New] 2024 Approved The Ultimate List Best for Android Pics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/chieve-financial-insight-the-simple-three-steps-to-assess-youtube-earning-potential/"><u>[New] Achieve Financial Insight The Simple Three Steps To Assess YouTube Earning Potential</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/alculator-projected-profits-from-youtube-for-2024/"><u>[New] Calculator Projected Profits From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-mics-and-more-discovering-the-audio-essential-that-matches-your-yt-vision/"><u>[New] In 2024, Mics & More Discovering the Audio Essential That Matches Your YT Vision</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-your-marketing-journey-begins-here-experience-the-full-spectrum-of-over-50-free-ads/"><u>[New] In 2024, Your Marketing Journey Begins Here - Experience the Full Spectrum of Over 50 FREE Ads!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-young-filmmakers-guide-to-selecting-video-gear/"><u>[New] The Young Filmmaker's Guide to Selecting Video Gear</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ips-and-tricks-for-creating-engaging-collab-videos-on-youtube/"><u>[New] Tips and Tricks for Creating Engaging Collab Videos on YouTube</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-ultimate-screen-recorder-guide-apeak-vs-others/"><u>[Updated] 2024 Approved Ultimate Screen Recorder Guide – Apeak vs Others</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-crafting-compelling-proposals-a-famebit-guide-to-channel-ads-for-2024/"><u>[Updated] Crafting Compelling Proposals A FameBit Guide to Channel Ads for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-rapid-video-grabber-your-gateway-to-all-online-videos/"><u>[Updated] Rapid Video Grabber - Your Gateway to All Online Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2023-how-to-find-facebook-recently-watched-videos/"><u>2023 | How to Find Facebook Recently Watched Videos?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ngs-update-navigating-youtube-monetization-for-2024/"><u>Earnings Update Navigating YouTube Monetization for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Xiaomi Redmi Note 13 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-short-symphony-shots-roles-and-rhythm-showcase/"><u>In 2024, Short Symphony Shots Roles & Rhythm Showcase</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-podcast-playback-iphone-edition-for-2024/"><u>Mastering Podcast Playback IPhone Edition for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/perfect-your-presentation-essential-strategies-for-video-length-reduction-in-vimeo-for-2024/"><u>Perfect Your Presentation Essential Strategies for Video Length Reduction in Vimeo for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-pros-approach-to-optimizing-zoom-settings/"><u>The Pro's Approach to Optimizing Zoom Settings</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-12-prominent-huawei-nova-y71-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Huawei Nova Y71 Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://apple-account.techidaily.com/unlock-apple-id-without-phone-number-on-iphone-12-pro-by-drfone-ios/"><u>Unlock Apple ID without Phone Number On iPhone 12 Pro</u></a></li>
 </ul></div>
 
