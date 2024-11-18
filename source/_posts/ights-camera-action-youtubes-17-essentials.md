@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Lights, Camera, Action! - YouTube's #17 Essentials\""
-date: 2024-09-02T08:07:00.465Z
-updated: 2024-09-03T08:07:00.465Z
+date: 2024-11-16T17:25:34.813Z
+updated: 2024-11-18T20:02:26.971Z
 tags:
   - ai video
   - ai youtube
@@ -81,8 +81,12 @@ White reflectors are used to simply bounce light. Silver reflectors make light a
 Reflectors are used to bounce light towards your subject. They are great for filling shadows created by your main light. This reflector is five reflectors in one: silver, gold, black, white, and translucent.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: Best Lights and Lighting Equipment for YouTube Videos
 
 Consumer-level camera sensors are nowhere close to being as sensitive to light as our eyes. So a scene that may look sufficiently lit to our eyes may be too dark for the camera. When you're shooting video indoors, you'll need additional lighting equipment. Here are some of the top seventeen best lighting equipment for YouTubers.
@@ -97,14 +101,18 @@ On-Camera LED lights are LED lights that can be mounted directly onto your camer
 
 ![Julius Studio Lighting](https://images.wondershare.com/filmora/article-images/lighting-equipment-julius-studio.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The Julius Studio 160 LED light not only can be mounted on any digital camera that has a hot/cold shoe but it can also be mounted on light stands so you can keep the same light setting even if you are moving the camera around. This lighting equipment also comes with four color filters so that you can control the color temperature of your light.
 
 #### 2\. Viltrox L116B highest RA CRI95 LED Light Panel
 
 ![Viltrox lighting](https://images.wondershare.com/filmora/article-images/lighting-equipment-viltrox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The VILTROX L116B LED light panel is a powerful piece of on-camera lighting equipment. As you can see from the back view of this light panel, you can see how much battery you have left as well as digitally set the color temperature of your light. It also features PWM light adjustment technology that reduces power consumption. As this equipment comes with an AC adapter, you can choose to use this outdoors or indoors.
 
@@ -112,15 +120,19 @@ The VILTROX L116B LED light panel is a powerful piece of on-camera lighting equi
 
 ![Chromo Inc](https://images.wondershare.com/filmora/article-images/lighting-equipment-chromo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you're looking for an on-camera ring light, Chromo Inc's macro ring light is a great option. This ring light mounts onto the lens of your SLR camera and its power source (two AA batteries) attaches to your camera's hot/cold shoe. Get that nice-looking ring light reflection in your eyes as you film with this portable ring light!
 
 #### 4\. Neewer CN-216 216PCS LED Dimmable Ultra High Power Panel
 
 ![Neewer CN-216 216PCS ](https://images.wondershare.com/filmora/article-images/lighting-equipment-neewer.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 The Neewer 216 PCS LED dimmable light panel is powerful lighting equipment at a cheap price. You can adjust the color temperature of this light from 3200K up 5400K. This piece of equipment is only battery-powered, but you do have the option to either use six AA batteries or specific Sony NP series batteries, or Panasonic CGR-D16S rechargeable batteries.
 
 #### 5\. [Neewer 160 LED CN-160 Dimmable Ultra High Power Panel](https://www.amazon.com/Dimmable-Digital-Camcorder-Panasonic-Samsung/dp/B004TJ6JH6/)
@@ -137,24 +149,25 @@ LED ring lights are called ring lights because of their ring-like shape. The ope
 
 ![Diva Ring Light Super Nova ](https://images.wondershare.com/filmora/article-images/led-ring-lighting-equipment-diva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Diva ring light is a great ring light for divas, make-up artists, and anyone else wanting to look good right in front of the camera! This LED ring light has a dimming knob so that you can adjust the brightness of your light. It also comes with a cloth for you to diffuse your light (so that your light will be softer) and a gooseneck and z-bracket attachment if you want to use your camera and ring light with just one tripod.
 
 #### 2\. [Prismatic Halo Ring Light](https://www.amazon.com/Prismatic-18-Halo-Ring-Light/dp/B011CO4HPG/)
 
 ![Prismatic Halo Ring Light ](https://images.wondershare.com/filmora/article-images/led-ring-lighting-equipment-prismatic.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 The Prismatic Halo ring light is another great ring light option. It comes with a canvas travel bag, making it easier to store away or take around with you. The 110-120 VAC, 5400K light bulb produces light that can be dimmed as well. The Prismatic Halo Ring kit doesn't include a light stand.
 
 #### 3\. [Neewer Dimmable 18" Ring Light](https://www.amazon.com/Neewer-10086031-Dimmable-Diameter-Fluorescent/dp/B018G039IU/)
 
 ![Neewer Dimmable  Ring Light ](https://images.wondershare.com/filmora/article-images/led-ring-lighting-equipment-neewer-dimmable.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 The 18-inch light ring uses fluorescent light. In addition, this kit includes a 59-inch light stand as well as white and orange filters and a hot shoe adapter that extends the capabilities of this affordable LED ring light kit.
 
 #### 4\. [FalconEyes DVR-300](https://www.amazon.com/FalconEyes%C2%AE-DVR-300-3000K-7000K-Adjustable-Photography/dp/B00XBQNN8G/)
@@ -169,9 +182,6 @@ With 300 pcs LED and 150 yellow color and 150 white-color lights, FalconEyes DVR
 
 The 10-inch inner rim diameter may seem small when compared with larger ring lights that offer more room to operate. The Neewer Camera Ring Light is undimmable and has 50W power. The ring light uses an AC adapter, which makes it difficult to use when filming outside of a studio.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### List of the Top 2 Best Softbox Video Lights
 
 A softbox is commonly used by photographers and videographers to simulate natural light. This effect is achieved with the aid of a diffusion panel that is placed around the light source that produces continuous light. Softboxes are often less expensive than other professional lighting equipment which makes them a great option if you are working on a budget.
@@ -180,15 +190,19 @@ A softbox is commonly used by photographers and videographers to simulate natura
 
 ![Neewer 14  Ring Light ](https://images.wondershare.com/filmora/article-images/softbox-lighting-equipment-StudioFX.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This lighting system contains two 16x24-inch softboxes and an overhead hair light boom softbox. The stands for all three softboxes are included in the kit. Each light head is capable of holding up to four bulbs.
 
 #### 2\. [Fancierstudio 2400 Watt Professional Lighting Kit](https://www.amazon.com/gp/product/B0047FHOWG/)
 
 ![Fancierstudio 2400 Watt Professional Lighting Kit ](https://images.wondershare.com/filmora/article-images/softbox-lighting-equipment-fancierstudio.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 This is a standard light setup you want to use when recording interviews, product reviews, or vlogs. It contains two 16x24-inch and one 16x16-inch softbox light that all have their own stands. Each lighthead can hold four 5500K fluorescent or daylight bulbs that are perfectly suited for work in studio conditions.
 
 ### List of the Top 5 Best Umbrella Video Lights
@@ -210,8 +224,12 @@ Besides featuring two umbrellas and two softboxes, this kit also includes a 6x9 
 ![ Emart 600W Studio Photography Photo/Video Portrait Kit ](https://images.wondershare.com/filmora/article-images/umbrella-lighting-equipment-emart.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Chances are that you won't need much more than what this photo/video kit has to offer. Emart's 600W kit includes two white and two black/silver 33-inch umbrellas as well as two 83-inch light stands and a smaller 33-inch light stand. The heavy-duty carry case can store the entire kit.
 
 #### 4\. [LINCO 600W Photography/Video Continuous Lighting Kit](https://www.amazon.com/gp/product/B018KE5XUO/)
@@ -219,8 +237,12 @@ Chances are that you won't need much more than what this photo/video kit has to 
 ![LINCO 600W Photography/Video Continuous Lighting Kit ](https://images.wondershare.com/filmora/article-images/umbrella-lighting-equipment-linco.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 The Linco 600W continuous lighting kit contains two white translucent umbrellas that generate soft light, which is quite useful if you want to get even skin tones in your videos. The kit has three lamps that use 5500K 40W bulbs and light stands you can easily carry to any filming location.
 
 #### 5\. [Emart 1575W Umbrella Lighting Kit With Translucent White & Black/Silver & Black/Gold](https://www.amazon.com/gp/product/B018KE5XUO/)
@@ -233,28 +255,26 @@ Besides the best lighting equipment, we have also summarized some [tips and tric
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -263,4 +283,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://network-issues.techidaily.com/corrected-riders-republic-launch-failure-directx-compatibility/"><u>[CORRECTED] Riders Republic Launch Failure - DirectX Compatibility</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-future-of-finance-15-must-watch-market-videos-for-2024/"><u>[New] The Future of Finance 15 Must-Watch Market Videos for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-monetary-value-of-each-youtube-brand-partnership/"><u>[New] The Monetary Value of Each YouTube Brand Partnership?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-premium-10-drones-capturing-images-and-films/"><u>[Updated] 2024 Approved Premium 10 Drones Capturing Images & Films</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-from-roots-to-refined-rogues-journey-through-genres/"><u>[Updated] From Roots to Refined Rogue's Journey Through Genres</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unstoppable-streams-the-rising-stars-of-female-youtube-content/"><u>[Updated] In 2024, Unstoppable Streams The Rising Stars of Female YouTube Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-learn-the-lingo-three-steps-to-deciphering-your-youtube-earning-statements-for-2024/"><u>[Updated] Learn the Lingo Three Steps to Deciphering Your YouTube Earning Statements for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-spotlight-websites-offering-youtube-branding-collaborations/"><u>[Updated] Spotlight Websites Offering YouTube Branding Collaborations</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/astro-a50-sound-problems-solved-fix-for-broken-mic-functionality/"><u>Astro A50 Sound Problems Solved - Fix for Broken Mic Functionality</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/beyond-facetime-transformative-webcam-uses-for-2024/"><u>Beyond FaceTime Transformative Webcam Uses for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-vivo-y200-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Vivo Y200 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Nokia 105 Classic | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/dible-mobile-photography-and-videography-apps-for-iosandroid/"><u>Incredible Mobile Photography & Videography Apps for iOS/Android</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hts-into-profit-allocation-on-popular-youtube-shorts-for-2024/"><u>Insights Into Profit Allocation on Popular YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/twriting-101-for-aspiring-youtube-producers-for-2024/"><u>Scriptwriting 101 for Aspiring YouTube Producers for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/vintage-gaming-geeks-insights/"><u>Vintage Gaming Geeks' Insights</u></a></li>
+</ul></div>
 

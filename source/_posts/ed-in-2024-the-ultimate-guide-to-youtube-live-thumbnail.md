@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Ultimate Guide to YouTube Live Thumbnail"
-date: 2024-11-05T17:01:31.283Z
-updated: 2024-11-08T04:37:54.325Z
+date: 2024-11-13T17:37:14.275Z
+updated: 2024-11-18T16:29:26.412Z
 tags:
   - ai video
   - ai youtube
@@ -60,23 +60,9 @@ YouTube Studio is the place where you edit most of your videos on YouTube. It's 
 
 ![editing youtube live metada](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-studio-4.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Click "UPLOAD CUSTOM THUMBNAIL."
 
 ![uploading custom thumbnnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-studio-5.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Select the custom thumbnail that you have prepared. Click "Open."
 * Click "Create Stream."
@@ -104,15 +90,15 @@ Suppose you want to change the YouTube live stream thumbnail the uld-fashioned w
 
 ![going to youtube studio](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-classic-5.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148647/16836" target="_top" id="2148647">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148647" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148647/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Select the thumbnail image you have prepared. Click "Open."
 * Wait for the thumbnail image to refresh.
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 3\. Upload a Thumbnail to YouTube Live With Mobile Phones
 
@@ -128,13 +114,6 @@ Perhaps you are live-streaming a trip somewhere. There are other ways to do it n
 * Click "Next."
 
 ![going to the next screen youtube mobile](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-5.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * YouTube will take a photo of you. Don't mind this because you'll be changing it later.
 
@@ -153,22 +132,15 @@ Perhaps you are live-streaming a trip somewhere. There are other ways to do it n
 
 ![editing uploaded custom thumbnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-10.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Click "Go Live."
 
 ![going live on mobile with custom thumbneil](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-11.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How To Create a Livestream Thumbnail
@@ -185,13 +157,6 @@ There are many great YouTube thumbnail makers on the market. You can find thumbn
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Steps to Make an Amazing YouTube Livestream Thumbnail
 
 Here is a tutorial on how to create a YouTube Livestream thumbnail using Wondershare Filmora.
@@ -207,6 +172,13 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 * Drag the "Human Segmentation" effect to your image on the timeline. Do the same with "Human Border." Alternatively, click "Touls" > "Video" > "AI Portrait" > "Ok."
 
 ![adding human segmentation effect on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the photo on the timeline. Scale it and move it to where you want it to be.
 
@@ -236,22 +208,16 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 
 ![youtube live thumbnail templates on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-3.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Select a template that fits your idea.
 
 ![choosing a template on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-4.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Edit the sample image and text. Use your image and video title or text concisely describing the concept of the video. Edit other aspects of the image as needed.
 
@@ -302,9 +268,23 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 
 ![adding your photo to filmora timeline](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-1.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Click "Effect."
 
 ![effects tab on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-2.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Drag the "Human Segmentation" effect to your image on the timeline. Do the same with "Human Border." Alternatively, click "Touls" > "Video" > "AI Portrait" > "Ok."
 
@@ -359,6 +339,13 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 
 ![downloading the custom thumbnail from wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-9.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making an Amazing YouTube Live Thumbnail
 
 Here are some tips to fullow.
@@ -374,6 +361,13 @@ If you're not new to YouTube, you have probably seen the "YouTube thumbnail face
 ### Text
 
 Add simple text with clear, buld, easy-to-read font.
+
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -402,20 +396,20 @@ For creating YouTube thumbnails, you can use Wondershare Filmora. It's a video e
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/reeminent-zero-price-stock-image-sites-for-2024/"><u>[New] Preeminent Zero-Price Stock Image Sites for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/he-entrepreneurs-guide-to-mobility-launching-channels-with-minimal-hassle-for-2024/"><u>[New] The Entrepreneur's Guide to Mobility Launching Channels with Minimal Hassle for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-find-hidden-fb-watch-video-tile/"><u>[Updated] Find Hidden FB Watch Video Tile</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-immediate-mastery-skilled-thumbnails-for-valorants-highlights/"><u>[Updated] Immediate Mastery - Skilled Thumbnails for Valorant's Highlights</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-take-your-online-presence-to-new-heights-with-youtube-edits-in-sony-vegas/"><u>[Updated] In 2024, Take Your Online Presence to New Heights with YouTube Edits in Sony Vegas</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-your-complimentary-access-to-50-premium-youtube-banners/"><u>[Updated] Your Complimentary Access to 50 Premium YouTube Banners</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/construct-and-grow-unveiling-the-addictive-gameplay-of-cities-skylines/"><u>Construct & Grow: Unveiling the Addictive Gameplay of Cities: Skylines</u></a></li>
-<li><a href="https://win11.techidaily.com/effortless-data-discovery-on-pc-via-everythingapp/"><u>Effortless Data Discovery on PC via EverythingApp</u></a></li>
-<li><a href="https://some-tips.techidaily.com/how-microsofts-directx-raytracing-dxr-innovation-propels-next-gen-pc-gaming-performance/"><u>How Microsoft's DirectX Raytracing (DXR) Innovation Propels Next-Gen PC Gaming Performance</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-in-depth-look-the-prime-snipping-options-on-macos/"><u>In 2024, In-Depth Look The Prime Snipping Options on macOS</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/synchronizing-airwaves-for-audience-gain/"><u>Synchronizing Airwaves for Audience Gain</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/the-second-law-of-thermodynamics-indicates-that-the-entropy-of-an-isolated-system-can-never-decrease-over-time-which-is-a-statement-about-the-irreversibilit659/"><u>The Second Law of Thermodynamics Indicates that the Entropy of an Isolated System Can Never Decrease over Time, Which Is a Statement About the Irreversibility of Natural Processes.</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/form-your-videos-secrets-of-effective-youtube-seo-tools/"><u>Transform Your Videos Secrets of Effective YouTube SEO Tools</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/unlocking-network-growth-share-igtv-videos-and-fb-for-2024/"><u>Unlocking Network Growth Share IGTV Videos & FB for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/guide-to-gaining-from-google-a-stepwise-strategy-for-tracking-youtube-income/"><u>Your Guide to Gaining From Google A Stepwise Strategy for Tracking YouTube Income</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/est-10-volume-elevators-for-windows-ios-and-android/"><u>[New] Best 10 Volume Elevators for Windows, iOS & Android</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-exploring-youtubes-financial-blueprint-for-short-form-video-success/"><u>[New] In 2024, Exploring YouTube's Financial Blueprint for Short-Form Video Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-smart-way-to-save-youtube-sections/"><u>[New] The Smart Way to Save YouTube Sections</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-elevate-your-visual-narratives-with-mastered-stories-bokeh/"><u>[Updated] 2024 Approved Elevate Your Visual Narratives with Mastered Stories Bokeh</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-direct-transfer-of-tweets-video-features-onto-snapchat/"><u>[Updated] In 2024, Direct Transfer of Tweets' Video Features Onto Snapchat</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-the-essential-guide-to-blurring-images-with-your-iphone/"><u>[Updated] The Essential Guide to Blurring Images with Your iPhone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-alternative-video-editor-tips-beyond-youtube/"><u>2024 Approved Alternative Video Editor Tips Beyond YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-mastering-the-art-of-facebook-seo-top-ten-must-knows/"><u>2024 Approved Mastering the Art of Facebook SEO Top Ten Must-Knows</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-trailblazer-in-multimedia-craftsmanship/"><u>2024 Approved Trailblazer in Multimedia Craftsmanship</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/comprehensive-guide-making-your-long-videos-compatible-with-whatsapp-by-shrinking-their-file-size/"><u>Comprehensive Guide: Making Your Long Videos Compatible with WhatsApp by Shrinking Their File Size</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-sifting-through-the-sands-of-youtube-conversations/"><u>In 2024, Sifting Through the Sands of YouTube Conversations</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-gastronomes-blueprint-filming-feasts/"><u>In 2024, The Gastronome’s Blueprint Filming Feasts</u></a></li>
+<li><a href="https://extra-information.techidaily.com/overview-and-assessment-parrots-advanced-edition/"><u>Overview and Assessment - Parrot's Advanced Edition</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/premium-after-effects-text-enhancements/"><u>Premium After Effects Text Enhancements</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ltimate-list-of-12-superior-flipscreen-vlog-cameras-for-2024/"><u>The Ultimate List of 12 Superior Flipscreen Vlog Cameras for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Captivating Audiences  Adopting YouTube Vlogger Charisma\""
-date: 2024-09-02T08:04:29.846Z
-updated: 2024-09-03T08:04:29.846Z
+date: 2024-11-15T20:02:10.946Z
+updated: 2024-11-18T19:18:51.184Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,13 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -50,9 +57,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -61,9 +65,6 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -73,8 +74,12 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **5\. Compose the Shot**
 
 Vlogging is a visual medium, and while the story is important, what is captured in the frame will play an impactful role in the video as well.
@@ -87,9 +92,6 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -101,8 +103,18 @@ Good preparation includes having all your gear ready for filming when you need i
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **7\. Be Expressive**
 
 Remember those teachers that drone on and on, without adding any expression or passion to what they are lecturing? While they might have been perfectly suitable as teachers, they wouldn’t make good vloggers.
@@ -137,11 +149,14 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -149,14 +164,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -165,4 +177,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-top-10-tools-to-enhance-your-youtube-vocal-recordings/"><u>[New] 2024 Approved Top 10 Tools to Enhance Your YouTube Vocal Recordings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-a-guide-to-gathering-creative-themes-using-google-trends/"><u>[Updated] 2024 Approved A Guide to Gathering Creative Themes Using Google Trends</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-escape-the-top-chart-unexpected-flick-winners/"><u>[Updated] 2024 Approved Escape the Top Chart Unexpected Flick Winners</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-exposing-sham-numbers-the-danger-of-fabricated-youtube-views/"><u>[Updated] Exposing Sham Numbers The Danger of Fabricated YouTube Views</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-swiftly-excise-your-youtube-comment-spam-for-2024/"><u>[Updated] How to Swiftly Excise Your Youtube Comment Spam for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-adobe-premiere-tips-youtube-video-uploads/"><u>[Updated] In 2024, Adobe Premiere Tips YouTube Video Uploads</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-ranking-8-real-time-strategies-to-grow-youtube-success/"><u>[Updated] In 2024, Ranking 8 Real-Time Strategies to Grow YouTube Success</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-auditory-enhancement-of-photographic-memories-online/"><u>2024 Approved Auditory Enhancement of Photographic Memories Online</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-become-a-pro-at-setting-up-vrecorder-fast/"><u>2024 Approved Become a Pro at Setting Up VRecorder Fast</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-secure-engagement-understanding-fair-advertising-on-youtube/"><u>2024 Approved Secure Engagement Understanding Fair Advertising on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-an-impactful-waterway-teaser-for-2024/"><u>Crafting an Impactful Waterway Teaser for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/earbud-evolution-airpods-pro-vs-samsung-buds-pro-face-off/"><u>Earbud Evolution: AirPods Pro Vs. Samsung Buds Pro Face-Off</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-scalable-success-lawful-techniques-for-video-visibility/"><u>In 2024, Scalable Success Lawful Techniques for Video Visibility</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-9gag-a-guide-for-memetic-creation-for-2024/"><u>Mastering 9GAG A Guide for Memetic Creation for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722963330919-newly-released-geforce-nvidia-210-drivers-compatible-with-windows-11-get-them-now/"><u>Newly Released GeForce nVidia 210 Drivers Compatible with Windows 11 - Get Them Now!</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/safeguarding-your-snaps-secure-backup-from-phone-to-snapchat/"><u>Safeguarding Your Snaps Secure Backup From Phone to Snapchat</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/smartwatch-showdown-how-to-decide-on-the-apple-watch-ultra-versus-the-series-8/"><u>Smartwatch Showdown: How to Decide on the Apple Watch Ultra Versus the Series 8</u></a></li>
+</ul></div>
 

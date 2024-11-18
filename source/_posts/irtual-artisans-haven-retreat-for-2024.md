@@ -1,7 +1,7 @@
 ---
 title: "[New] Virtual Artisans' Haven Retreat for 2024"
-date: 2024-09-02T08:04:48.564Z
-updated: 2024-09-03T08:04:48.564Z
+date: 2024-11-11T16:56:47.271Z
+updated: 2024-11-18T18:58:35.499Z
 tags:
   - ai video
   - ai youtube
@@ -68,8 +68,12 @@ One of the major benefits of attending this summit would have been networking wi
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Branded slippers
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
@@ -77,20 +81,25 @@ To help them relax after long days at the summit, YouTube provided creators with
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
@@ -98,8 +107,12 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
@@ -110,23 +123,17 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,4 +142,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/xpressing-emotionally-using-emojis-for-yt-comments-for-2024/"><u>[New] Expressing Emotionally Using Emojis for YT Comments for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-the-art-of-instantaneous-deletion-of-youtube-discussions-for-2024/"><u>[New] Mastering the Art of Instantaneous Deletion of YouTube Discussions for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ideo-view-count-boosters-top-8-thumbnails-tactics/"><u>[New] Video View Count Boosters Top 8 Thumbnails Tactics</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-10-best-online-destinations-for-accessible-images/"><u>[Updated] 10 Best Online Destinations for Accessible Images</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-valorant-portraits-professional-thumbnails-made-in-a-flash/"><u>[Updated] 2024 Approved Valorant Portraits - Professional Thumbnails Made in a Flash</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-elevate-your-content-in-depth-guide-to-youtube-video-edits-for-2024/"><u>[Updated] Elevate Your Content In-Depth Guide to YouTube Video Edits for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-enhance-engagement-sharing-videos-on-instagram/"><u>[Updated] In 2024, Enhance Engagement Sharing Videos on Instagram</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unlock-your-potential-50-free-high-impact-banners-at-your-disposal/"><u>[Updated] In 2024, Unlock Your Potential 50 FREE, High-Impact Banners at Your Disposal</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-mastering-chroma-key-techniques-for-professional-videos/"><u>2024 Approved Mastering Chroma Key Techniques for Professional Videos</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-proven-methods-to-improve-zoom-efficiency-on-a-chromebook/"><u>2024 Approved Proven Methods to Improve Zoom Efficiency on a Chromebook</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/all-you-need-to-know-about-mega-greninja-for-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>All You Need To Know About Mega Greninja For Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rt-with-precision-10-leading-tools-from-flv-to-youtube-platforms-for-2024/"><u>Convert with Precision 10 Leading Tools From Flv to YouTube Platforms for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-oppo-a2-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-delving-into-youtubes-complex-calculation-of-viewer-stats/"><u>In 2024, Delving Into YouTube's Complex Calculation of Viewer Stats</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/secure-and-detailed-best-ways-to-document-fb-call-footage-for-2024/"><u>Secure & Detailed Best Ways to Document FB Call Footage for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/soaring-to-new-heights-how-student-fliers-can-score-25-off-airfare-using-their-amazon-prime-benefits-zdnet/"><u>Soaring to New Heights: How Student Fliers Can Score $25 Off Airfare Using Their Amazon Prime Benefits | ZDNET</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-resolving-saints-row-pc-startup-issues/"><u>Troubleshooting Steps: Resolving Saints Row PC Startup Issues</u></a></li>
+</ul></div>
 

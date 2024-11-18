@@ -1,7 +1,7 @@
 ---
 title: "Scriptwriting 101 for Aspiring YouTube Producers for 2024"
-date: 2024-11-06T19:32:45.331Z
-updated: 2024-11-07T19:11:45.123Z
+date: 2024-11-12T17:55:43.487Z
+updated: 2024-11-18T18:19:32.918Z
 tags:
   - ai video
   - ai youtube
@@ -45,22 +45,15 @@ You have a great idea for a video, but you’re just not sure how to express it 
 Here are some things to do before you start writing your script for YouTube:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Find an area that is not distracting
 
@@ -74,16 +67,16 @@ Now that you're ready to sit down and write, here's what you do:
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
@@ -124,13 +117,32 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -153,21 +165,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/nveiling-profitable-practices-for-creating-youtube-trailers-for-2024/"><u>[New] Unveiling Profitable Practices for Creating YouTube Trailers for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/outube-thumbnail-101-phones-edition-for-2024/"><u>[New] YouTube Thumbnail 101 Phones Edition for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-borrow-without-cost-images-from-leading-youtubers-archives/"><u>[Updated] Borrow Without Cost Images From Leading YouTubers' Archives</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-gaming-hits-with-powerful-hashtag-strategies/"><u>[Updated] Gaming Hits with Powerful Hashtag Strategies</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-unlock-youtubes-potential-essential-tips-and-techniques-for-optimal-titles/"><u>[Updated] Unlock YouTube's Potential Essential Tips & Techniques for Optimal Titles</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-openscreens-the-unchained-gamers-screen-record/"><u>2024 Approved OpenScreens The Unchained Gamer's Screen Record</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-the-new-era-of-youtube-naming-unique-ideas-for-modern-blogging-and-filming-maximum-length-156-characters/"><u>2024 Approved The New Era of Youtube Naming Unique Ideas For Modern Blogging & Filming (Maximum Length 156 Characters)</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/best-windows-music-managers/"><u>Best Windows Music Managers</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Huawei Nova Y71 | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-prevent-rainbow-six-extraction-from-crashing-while-playing-on-your-computer/"><u>How To Prevent Rainbow Six Extraction From Crashing While Playing on Your Computer</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-call-logs-from-realme-note-50-by-fonelab-android-recover-call-logs/"><u>How to retrieve erased call logs from Realme Note 50?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oppo-find-x6-pro-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Oppo Find X6 Pro to Outlook | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-behind-the-scenes-filmmaking-tips-from-youtube-experts/"><u>In 2024, Behind-the-Scenes Filmmaking Tips From YouTube Experts</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-cutting-edge-techniques-for-private-yt-content-dissemination-in-gmail/"><u>In 2024, Cutting-Edge Techniques for Private YT Content Dissemination in Gmail</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-infinix-hot-40i-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Infinix Hot 40i Location on Skout | Dr.fone</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/unlock-new-horizons-switching-win10s-bit-configuration/"><u>Unlock New Horizons: Switching Win10's Bit Configuration</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ow-much-money-do-youtubers-make-per-view-for-2024/"><u>[New] How Much Money Do YouTubers Make Per View for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-crafting-engaging-video-content-for-live-streams/"><u>[New] In 2024, Crafting Engaging Video Content for Live Streams</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-customizable-mcb-visuals-for-youtube-banners/"><u>[New] In 2024, Customizable MCB Visuals for YouTube Banners</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-navigating-the-world-of-mac-screenshot-with-confidence/"><u>[Updated] 2024 Approved Navigating the World of Mac Screenshot with Confidence</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-beginner-to-star-top-25-vlogging-ideas/"><u>[Updated] From Beginner to Star Top 25 Vlogging Ideas</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-ultimate-7-private-film-access-tools/"><u>[Updated] In 2024, Ultimate 7 Private Film Access Tools</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-no-cost-humor-in-your-arsenal-ultimate-meme-guide-for-2024/"><u>[Updated] No-Cost Humor in Your Arsenal – Ultimate Meme Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-avoid-mainstream-underrated-movies-of-the-year/"><u>2024 Approved Avoid Mainstream Underrated Movies of the Year</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-tunes-palette-for-video-storytelling/"><u>2024 Approved Top Tunes Palette for Video Storytelling</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/erleb-die-highlights-indiens-bollywoods-greatest-movies-in-german-fur-kostenlose-vorstellung-ranking-der-besten/"><u>Erleb Die Highlights Indiens: Bollywood's Greatest Movies in German Für Kostenlose Vorstellung – Ranking Der Besten</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fix-your-battlenet-opening-woes-with-our-comprehensive-guide/"><u>Fix Your Battle.net Opening Woes with Our Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-getting-real-broadcast-your-life-on-youtube-using-obs/"><u>In 2024, Getting Real Broadcast Your Life on Youtube Using OBS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-leveraging-youtube-top-5-digital-strategies-for-brand-success/"><u>In 2024, Leveraging YouTube Top 5 Digital Strategies for Brand Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ynamics-behind-tseries-youtube-earning-patterns-for-2024/"><u>The Dynamics Behind TSeries' YouTube Earning Patterns for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ntegration-adding-youtube-playlists-easily/"><u>Web Integration Adding YouTube Playlists Easily</u></a></li>
 </ul></div>
 

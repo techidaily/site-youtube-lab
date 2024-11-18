@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Tapping Into Trending Topics for Videography Ideas via Google"
-date: 2024-09-02T08:07:41.445Z
-updated: 2024-09-03T08:07:41.445Z
+date: 2024-11-12T19:07:16.276Z
+updated: 2024-11-18T18:56:29.257Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,19 @@ Unless you do news or political commentary on your channel these probably aren�
 
 To get information more relevant to your channel you’re going to have to do some filtering.
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -70,6 +83,13 @@ For example, if you have a gaming channel and you’re looking for a non-gamepla
 
 ![Google Trends Category YouTube Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-categories.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The first two happen to be about gaming. If you, as a gamer, had any strong reaction to either of these topics – whether it’s that you feel like you’re knowledgeable about them, or that you’re excited by something that’s coming up, or that something made you groan – then that would be a sign that you should make a video. Capitalizing on a trend while also covering a topic you have a lot to say about is always a good move.
 
 Having something to say doesn’t have to mean having a strong opinion. If you just find something interesting and want to pass the information along to your viewers then that’s great too.
@@ -86,9 +106,6 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 
 ![Google Trends Keywords YouTube Video](https://images.wondershare.com/filmora/article-images/explore-topic-in-google-trends.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
@@ -97,9 +114,6 @@ You can see near the top that this chart represents searches for the topic over 
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
@@ -107,8 +121,12 @@ Next, what other words do I want to include in my video title? Is this a review,
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
 
 It’s pretty clear from the chart that ‘filmora review’ is the strongest of those 3 search terms. The title of my video should definitely start with the words **Filmora Review** because that is what most people are searching for when they want information about Filmora. Putting your most important keyword/search term first in your video titles will help them rank better in the viewer’s search results.
@@ -117,9 +135,6 @@ Although, when you do a comparison like this you should also go to YouTube and s
 
 ![YouTube search Filmora Keyword](https://images.wondershare.com/filmora/article-images/google-trends-youtube-keyword-search.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 _If my view of YouTube looks different from yours it’s because I’m using the [VidIQ plugin for Chrome](https://chrome.google.com/webstore/detail/vidiq-vision-for-youtube/pachckjkecffpdphbpmfolblodfkgbhl?hl=en). It’s free and it gives you all kinds of extra info about videos and channels._
 
 The second-highest ranked result is only 2 months old and isn’t from a huge channel. Although there is competition for this keyword, ranking for it is not impossible. It also helps that software reviews are a topic where people will always be looking for the latest information/newest videos.
@@ -131,8 +146,12 @@ One of the biggest benefits of identifying trends and making videos about them q
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Making Better YouTube Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
@@ -141,23 +160,17 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,4 +179,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-7-premium-android-adblocking-tools/"><u>[New] In 2024, Discover 7 Premium Android AdBlocking Tools</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-the-best-vocal-transformation-programs-for-video-makers/"><u>[New] The Best Vocal Transformation Programs for Video Makers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-essential-gear-picking-the-very-best-among-top-9-free-logomakers/"><u>[Updated] 2024 Approved Essential Gear Picking the Very Best Among Top 9 Free Logomakers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-optimizing-online-identity-through-yt-profile-refinement/"><u>2024 Approved Optimizing Online Identity Through YT Profile Refinement</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unleash-creativity-with-youtube-list-mix-ups/"><u>2024 Approved Unleash Creativity with YouTube List Mix-Ups</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/dable-techniques-to-enhance-written-content-with-media/"><u>Affordable Techniques to Enhance Written Content with Media</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Realme Narzo 60x 5G? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/innovative-metaverse-perspectives-a-30-quote-collection-for-2024/"><u>Innovative Metaverse Perspectives A 30-Quote Collection for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nplay-grooves-best-background-tunes-for-yt-shorts-for-2024/"><u>Screenplay Grooves Best Background Tunes For YT Shorts for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-hidden-dangers-of-overtrusting-artificial-intelligence-learn-why-caution-is-needed/"><u>The Hidden Dangers of Overtrusting Artificial Intelligence – Learn Why Caution Is Needed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/sh-your-youtube-channels-full-potential-with-profitable-trailers/"><u>Unleash Your YouTube Channels' Full Potential with Profitable Trailers</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Free YouTube End Screen Templates [+How-Tos] for 2024\""
-date: 2024-09-02T08:07:22.723Z
-updated: 2024-09-03T08:07:22.723Z
+date: 2024-11-16T17:06:55.108Z
+updated: 2024-11-18T17:40:45.825Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
@@ -105,6 +112,13 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
@@ -112,6 +126,19 @@ Another way to get your YouTube end screens for free, of course, is to make them
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
@@ -123,20 +150,24 @@ If you're looking for other options to design your end screen, make sure to also
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,8 +176,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-iphone-and-android-edition-compile-the-most-useful-top-8-edits-tools/"><u>[New] 2024 Approved IPhone and Android Edition Compile the Most Useful Top 8 Edits Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ngaging-video-audiences-choosing-impactful-youtube-images-for-2024/"><u>[New] Engaging Video Audiences Choosing Impactful YouTube Images for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-enhance-and-clean-up-youtube-footage-borderless-tutorial-for-2024/"><u>[New] Enhance and Clean Up YouTube Footage Borderless Tutorial for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-understanding-ip-in-instagram-rhythms/"><u>[New] In 2024, Understanding IP in Instagram Rhythms</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-revitalize-your-routine-with-these-top-10-yoga-streams-of-note/"><u>[Updated] 2024 Approved Revitalize Your Routine with These Top 10 Yoga Streams of Note</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-soundtrack-synthesis-crafting-the-perfect-youtube-list/"><u>[Updated] 2024 Approved Soundtrack Synthesis Crafting the Perfect YouTube List</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-comprehensive-review-of-powerdirector-pro-suite/"><u>[Updated] Comprehensive Review of PowerDirector Pro Suite</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-top-10-instagram-tags-for-maximum-engagement-right-now/"><u>[Updated] In 2024, Top 10 Instagram Tags for Maximum Engagement Right Now</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-trimming-tips-select-the-top-5-url-shrinkers-for-youtube/"><u>[Updated] In 2024, Trimming Tips Select the Top 5 URL Shrinkers for YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-infographic-social-strategies-for-budget-brands-for-2024/"><u>[Updated] Infographic Social Strategies for Budget Brands for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unlock-youtube-collaboration-a-guide-to-partnering-and-producing-together/"><u>[Updated] Unlock YouTube Collaboration A Guide to Partnering and Producing Together</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-hone-your-livestream-skills-on-youtubes-premier-platform/"><u>2024 Approved Hone Your Livestream Skills on YouTube's Premier Platform</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-snap-into-position-handhran-balancing-tricks/"><u>2024 Approved Snap Into Position Handhran Balancing Tricks</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/automatische-ubertragung-ihrer-iphone-fotografien-auf-das-ipad/"><u>Automatische Übertragung Ihrer iPhone-Fotografien Auf Das iPad</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-exposing-sham-numbers-the-danger-of-fabricated-youtube-views/"><u>In 2024, Exposing Sham Numbers The Danger of Fabricated YouTube Views</u></a></li>
+<li><a href="https://network-issues.techidaily.com/resolved-winsoft-com-crash/"><u>Resolved WinSOFT COM Crash</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Honor X9b? | Dr.fone</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Affordable Strategies for Engaging YouTube Opening & End Titles"
-date: 2024-09-02T08:04:56.830Z
-updated: 2024-09-03T08:04:56.830Z
+date: 2024-11-17T21:17:52.888Z
+updated: 2024-11-18T18:26:13.277Z
 tags:
   - ai video
   - ai youtube
@@ -77,6 +77,19 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -112,20 +125,24 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +151,21 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/nhance-your-videos-call-to-action-a-step-by-step-filmora-guide/"><u>[New] Enhance Your Video's Call-to-Action A Step-by-Step Filmora Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/amified-learning-educational-youtubers-to-subscribe/"><u>[New] Gamified Learning Educational YouTubers to Subscribe</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-complete-guidebook-to-evaluating-your-videos-impact-and-earning-power/"><u>[New] In 2024, Complete Guidebook to Evaluating Your Video's Impact and Earning Power</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-masterful-monetization-crafting-a-revenue-driven-youtube-presence/"><u>[Updated] 2024 Approved Masterful Monetization Crafting a Revenue-Driven Youtube Presence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-perfecting-the-pulse-news-outro-techniques/"><u>[Updated] In 2024, Perfecting the Pulse News Outro Techniques</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-sound-of-success-audio-tips-to-elevate-your-youtube-experience/"><u>[Updated] The Sound of Success Audio Tips to Elevate Your YouTube Experience</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-google-pixel-fold-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-become-a-viral-sensation-crafting-impressive-unboxing-videos/"><u>In 2024, Become a Viral Sensation Crafting Impressive Unboxing Videos</u></a></li>
+<li><a href="https://techtrends.techidaily.com/learn-how-to-establish-live-audio-video-calls-from-your-windows-pc/"><u>Learn How to Establish Live Audio-Video Calls From Your Windows PC</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mastering-photo-migration-transferring-your-visual-archives-from-google-photos-to-icloud-securely/"><u>Mastering Photo Migration: Transferring Your Visual Archives From Google Photos to iCloud Securely</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/s-to-perfection-youtubes-beauty-color-techniques-for-2024/"><u>Pixels to Perfection Youtube's Beauty Color Techniques for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-end-of-facebook-heres-the-reality-check/"><u>The End of Facebook? Here’s the Reality Check</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/transform-videos-into-stories-discover-the-top-10-reactions/"><u>Transform Videos Into Stories Discover the Top 10 Reactions</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/winxvideo-ihre-fragen-zur-kunstlichen-intelligenz-beantworten/"><u>WinXvideo: Ihre Fragen Zur Künstlichen Intelligenz Beantworten</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->

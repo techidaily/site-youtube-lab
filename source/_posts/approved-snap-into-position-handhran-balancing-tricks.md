@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Snap Into Position  Handhran Balancing Tricks\""
-date: 2024-11-03T21:36:58.304Z
-updated: 2024-11-07T16:37:25.863Z
+date: 2024-11-13T17:34:37.356Z
+updated: 2024-11-18T18:56:51.553Z
 tags:
   - ai video
   - ai youtube
@@ -41,13 +41,6 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -62,19 +55,33 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
@@ -93,13 +100,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 4. Put your camera on top of the books.
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
@@ -132,10 +132,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -159,16 +159,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/60-video-editors-how-to-upload-360-video-to-youtube-for-2024/"><u>[New] 360 Video Editors How to Upload 360 Video to YouTube for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-breaking-down-asus-pa32u-a-4k-professional-review/"><u>[New] Breaking Down ASUS PA32U A 4K Professional Review</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-enhancing-comments-with-emojis-on-youtube/"><u>[New] In 2024, Enhancing Comments with Emojis on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-android-freedom-selecting-prime-video-editing-tools/"><u>[Updated] 2024 Approved Android Freedom Selecting Prime Video Editing Tools</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-transform-your-videos-simple-steps-to-include-youtube-subtitlescc-for-2024/"><u>[Updated] Transform Your Videos Simple Steps to Include YouTube Subtitles/CC for 2024</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/effiziente-migration-wenn-sie-ihre-windows-server-20122008-sicherungen-schnell-ubertragen/"><u>Effiziente Migration: Wenn Sie Ihre Windows Server 2012/2008 Sicherungen Schnell Übertragen</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-do-you-unlock-your-apple-iphone-8-learn-all-4-methods-drfone-by-drfone-ios/"><u>How Do You Unlock your Apple iPhone 8? Learn All 4 Methods | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-fix-non-launching-steam-games-in-windows-10/"><u>How to Fix Non-Launching Steam Games in Windows 10</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-avoiding-the-common-path-the-route-to-unique-streamer-identities/"><u>In 2024, Avoiding the Common Path The Route to Unique Streamer Identities</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/maximize-game-time-top-10-ps5-external-hddssd/"><u>Maximize Game Time Top 10 PS5 External HDD/SSD</u></a></li>
-<li><a href="https://windows11.techidaily.com/quick-recovery-resolving-common-rpc-errors-on-windows/"><u>Quick Recovery: Resolving Common RPC Errors on Windows</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-navigating-the-backlink-jungle-a-video-content-guide/"><u>[New] 2024 Approved Navigating the Backlink Jungle A Video Content Guide</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-a-comprehensively-compared-guide-to-triller-vs-tiktok-max-156-chars-for-2024/"><u>[New] A Comprehensively Compared Guide to Triller Vs. TikTok (Max 156 Chars) for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-channel-artistry-in-a-click-10-prime-apps-for-banner-crafting/"><u>[New] In 2024, Channel Artistry in a Click 10 Prime Apps for Banner Crafting</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-insta-growth-the-10-most-important-hashtags-now/"><u>[New] In 2024, Insta Growth The 10 Most Important Hashtags Now</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-exclusive-list-of-8-best-apps-to-enhance-facebook-likes/"><u>[Updated] 2024 Approved Exclusive List of 8 Best Apps To Enhance Facebook Likes</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-rising-stars-of-online-videos-top-subscription-hits/"><u>[Updated] 2024 Approved Rising Stars of Online Videos Top Subscription Hits</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unveiling-the-cash-generated-by-every-viewed-stream/"><u>[Updated] 2024 Approved Unveiling the Cash Generated by Every Viewed Stream</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-elite-5-earbuds-youtubes-best-companions/"><u>[Updated] In 2024, Elite 5 Earbuds YouTube's Best Companions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-ultimate-microphone-choices-for-filmmakers/"><u>[Updated] In 2024, Ultimate Microphone Choices for Filmmakers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-transform-your-youtube-profile-incorinaste-gamers-templates-for-2024/"><u>[Updated] Transform Your YouTube Profile Incorinaste Gamers' Templates for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unlocking-youtubes-potential-subscriber-triumph-tactics/"><u>2024 Approved Unlocking YouTube's Potential Subscriber Triumph Tactics</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/failed-to-play-mkv-movies-on-galaxy-s21-fe-5g-2023-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Failed to play MKV movies on Galaxy S21 FE 5G (2023)</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Tecno Pop 8 | Dr.fone</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-essential-camera-techniques-for-novice-filmmakers/"><u>In 2024, Essential Camera Techniques for Novice Filmmakers</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/step-by-step-setting-up-your-smartphone-as-a-webcam-device/"><u>Step-by-Step Setting Up Your Smartphone as a Webcam Device</u></a></li>
 </ul></div>
 

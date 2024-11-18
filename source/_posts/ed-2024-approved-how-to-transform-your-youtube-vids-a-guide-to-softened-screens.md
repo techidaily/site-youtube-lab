@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Transform Your Youtube Vids  A Guide to Softened Screens\""
-date: 2024-09-06T19:38:16.006Z
-updated: 2024-09-07T19:38:16.006Z
+date: 2024-11-12T21:10:33.145Z
+updated: 2024-11-18T20:42:24.440Z
 tags:
   - ai video
   - ai youtube
@@ -14,18 +14,6 @@ keywords: "Soft Video Techniques,Screen Harmony Tips,Gently Enhancing Videos,You
 thumbnail: https://thmb.techidaily.com/23dc4857279699198e48a622a7713386fd30f7f47908caf6a0fe50229057f885.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Transform Your Youtube Vids: A Guide to Softened Screens
 
 # How to Blur Background of Your YouTube Video
@@ -40,12 +28,6 @@ A lot of YouTubers like to vlog in front of blurred backgrounds. [Blurring the b
 
 ![how to blur01](https://images.wondershare.com/filmora/article-images/how-to-blur01.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Even if your set is clean, there could be things like books behind you, which will distract viewers; they will be trying to read the spines. Blurring out the background of your shot makes your video look polished and keeps people's focus entirely on you.
 
 * [Part 1: Blur YouTube Video Background in Shooting Videos](#blur%5Fbackground%5Fin%5Fvideo%5Fshooting)
@@ -53,12 +35,6 @@ Even if your set is clean, there could be things like books behind you, which wi
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: How to Blur Background of Your YouTube Video in Shooting Videos
 
 Blurring your background is also how you create a beautiful bokeh lighting effect. Bokeh is when you blur lights in the background of your shot, creating halo-like circles of light. By attaching a filter with a shape cut out to the camera lens, you can even generate bokeh lights in other shapes, like hearts or stars.
@@ -84,17 +60,18 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Add Bokeh Filter to Video in Filmora
 
@@ -104,19 +81,14 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
 
@@ -126,9 +98,23 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
@@ -136,26 +122,17 @@ You see, the video background is blurred, and the people are highlighted. Now it
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -164,4 +141,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/amified-learning-educational-youtubers-to-subscribe/"><u>[New] Gamified Learning Educational YouTubers to Subscribe</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-download-youtube-videos-anywhere-anytime-free-android-tips-for-2024/"><u>[Updated] Download YouTube Videos Anywhere, Anytime Free Android Tips for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-sound-sphere-navigating-music-uploads/"><u>[Updated] In 2024, The Sound Sphere Navigating Music Uploads</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-premium-10-audio-enhancers-for-multiple-systems/"><u>2024 Approved Premium 10 Audio Enhancers for Multiple Systems</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-prove-your-prowess-with-swift-video-edits-on-windows-11-photos/"><u>2024 Approved Prove Your Prowess with Swift Video Edits on Windows 11 Photos</u></a></li>
+<li><a href="https://driver-download.techidaily.com/access-improved-stability-and-speed-for-msi-x470-with-updated-drivers/"><u>Access Improved Stability & Speed for MSI X470 With Updated Drivers</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/1723086572957-creative-sound-blaster-zxr-review-a-comprehensive-look-at-the-top-2013-gaming-audio-card/"><u>Creative Sound Blaster ZXR Review - A Comprehensive Look at the Top 2013 Gaming Audio Card</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-switch-windows-11-to-auto-hdr-mode-for-2024/"><u>How to Switch Windows 11 To Auto HDR Mode for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/mic-revelations-top-15-vlogs-celebrating-music-creators-stories-for-2024/"><u>Rhythmic Revelations Top 15 Vlogs Celebrating Music Creators' Stories for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-rated-magsafe-wallet-picks-comprehensive-reviews-by-tech-gurus-zdnet/"><u>Top-Rated MagSafe Wallet Picks - Comprehensive Reviews by Tech Gurus | ZDNET</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-steps-resolving-issues-with-a-hidden-wi-fi-network/"><u>Troubleshooting Steps: Resolving Issues with a Hidden Wi-Fi Network</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/tutorial-eliminare-le-macchie-dal-tuo-album-fotografico-strumenti-per-lediting-delle-foto/"><u>Tutorial: Eliminare Le Macchie Dal Tuo Album Fotografico - Strumenti per L'Editing Delle Foto</u></a></li>
+</ul></div>
 

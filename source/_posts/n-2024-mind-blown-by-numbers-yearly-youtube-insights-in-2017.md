@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Mind Blown by Numbers  Yearly YouTube Insights in 2017\""
-date: 2024-09-06T19:38:19.061Z
-updated: 2024-09-07T19:38:19.061Z
+date: 2024-11-17T20:23:59.984Z
+updated: 2024-11-18T20:52:15.547Z
 tags:
   - ai video
   - ai youtube
@@ -14,30 +14,12 @@ keywords: "YouTube Inspections 2017,Video Statistics 2017,Content Analytics 2017
 thumbnail: https://thmb.techidaily.com/501cfbb0674181793ce2cd8353fd1c77b58868d2c9678fbe9da8ac95eb395e1d.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Mind Blown by Numbers: Yearly YouTube Insights in 2017
 
 # Infographic - Mind Numbing YouTube Facts,Figures and Statistics
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -48,18 +30,6 @@ In 2017, more than 500 hours of video content are being uploaded to [YouTube](ht
 
 ![mind blowing youtube stats facts 2017](https://filmora.wondershare.com/youtube-video-editing/mind-blowing-youtube-stats-facts-2017.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 It’s hard to pick highlights from such an interesting and comprehensive read, but a couple of key stats shine out.
 
 * **YouTube has just 0,5 billion users less than Facebook**
@@ -86,26 +56,17 @@ Let us know what you think about these interesting facts about YouTube in the co
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -114,4 +75,31 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ffordable-cameras-for-effective-vloggers-for-2024/"><u>[New] Affordable Cameras for Effective Vloggers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ransform-your-channel-with-effective-youtube-link-protocols-for-2024/"><u>[New] Transform Your Channel with Effective YouTube Link Protocols for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-crafting-captivating-youtube-presence-the-ultimate-guide-to-making-thumbnails-on-phones/"><u>[Updated] 2024 Approved Crafting Captivating YouTube Presence The Ultimate Guide to Making Thumbnails on Phones</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-redefining-your-twitter-vibe-with-dynamic-video-thumbnails/"><u>[Updated] 2024 Approved Redefining Your Twitter Vibe with Dynamic Video Thumbnails</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-snippet-spectacle-top-hashes-to-trigger-the-viral-spree-on-youtube/"><u>[Updated] 2024 Approved Snippet Spectacle Top Hashes to Trigger the Viral Spree on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-video-content-creation-evolution-choosing-studio-over-beta/"><u>[Updated] 2024 Approved Video Content Creation Evolution Choosing Studio Over Beta</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-achieving-virality-in-instagram-videos-practical-advice-for-2024/"><u>[Updated] Achieving Virality in Instagram Videos Practical Advice for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-crafting-memorable-valorant-thumbnails-a-practical-guide-for-youtube-creators-for-2024/"><u>[Updated] Crafting Memorable Valorant Thumbnails A Practical Guide for YouTube Creators for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-how-algorithm-changes-shape-your-youtube-visibility/"><u>2024 Approved How Algorithm Changes Shape Your YouTube Visibility</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/conversion-rapide-des-fichiers-caf-a-m4a-en-ligne-gratuit-avec-movavi/"><u>Conversion Rapide Des Fichiers CAF À M4A En Ligne - Gratuit Avec Movavi</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1725288126448-dvd/"><u>DVDの中から曲を取り出すための専門的なガイド</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-restore-sound-on-a-non-working-logitech-g230-microphone-expert-tips/"><u>How to Restore Sound on a Non-Working Logitech G230 Microphone: Expert Tips</u></a></li>
+<li><a href="https://driver-install.techidaily.com/mastering-windows-startechs-expertise-in-fixing-drivers-7-11/"><u>Mastering Windows: StarTech's Expertise in Fixing Drivers (7-11)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/outstanding-beginners-choice-the-amazfit-bip-smartwatch-evaluation/"><u>Outstanding Beginner's Choice: The Amazfit Bip Smartwatch Evaluation</u></a></li>
+<li><a href="https://driver-download.techidaily.com/quick-install-guide-for-hp-officejet-amoena-5740-printing-driver-download/"><u>Quick Install Guide for HP OfficeJet Amoena 5740 Printing Driver Download</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/revolutionize-your-video-editing-workflow-top-adobe-premiere-plugins-free-trial/"><u>Revolutionize Your Video Editing Workflow Top Adobe Premiere Plugins (Free Trial)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ltimate-platform-question-whos-the-best-vimeo-or-youtubeplusdailymotion/"><u>The Ultimate Platform Question Who's the Best - Vimeo or YouTube+Dailymotion?</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

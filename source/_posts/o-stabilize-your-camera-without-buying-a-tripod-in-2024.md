@@ -1,7 +1,7 @@
 ---
 title: "How to Stabilize Your Camera without Buying a Tripod, In 2024"
-date: 2024-11-05T23:07:00.174Z
-updated: 2024-11-08T03:21:32.036Z
+date: 2024-11-12T19:02:58.879Z
+updated: 2024-11-18T19:00:15.682Z
 tags:
   - ai video
   - ai youtube
@@ -42,16 +42,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -68,27 +62,20 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -107,6 +94,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -116,16 +110,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -171,24 +159,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-crafting-gifs-like-a-pro-industry-leaders-tools/"><u>[New] In 2024, Crafting GIFs Like a Pro Industry Leaders' Tools</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-ace-your-earnings-game-in-youtube-shorts-for-2024/"><u>[Updated] Ace Your Earnings Game in YouTube Shorts for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-decoding-youtube-exchange-threads-for-2024/"><u>[Updated] Decoding YouTube Exchange Threads for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-how-to-optimize-rl-recording-hardware-and-software-for-2024/"><u>[Updated] How to Optimize RL Recording Hardware & Software for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mobilizing-money-a-complete-guide-to-youtubes-revenue-features/"><u>[Updated] In 2024, Mobilizing Money A Complete Guide to YouTube's Revenue Features</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-innovative-tricks-to-transform-iphone-shots/"><u>[Updated] Innovative Tricks to Transform iPhone Shots</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-mapping-social-interest-to-video-idea-generation-with-google-for-2024/"><u>[Updated] Mapping Social Interest to Video Idea Generation with Google for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-top-list-of-video-recording-apps-for-iphone/"><u>2024 Approved Top List of Video Recording Apps for iPhone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/boosting-productivity-key-strategies-for-your-center-of-excellence-with-abbyy-plus-blue-prism-live-session/"><u>Boosting Productivity - Key Strategies for Your Center of Excellence with ABBYY + Blue Prism Live Session</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/tless-transformation-of-your-youtube-content-into-webm-for-2024/"><u>Effortless Transformation of Your YouTube Content Into WebM for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/guide-to-solving-wwe-2k-games-dx11-at-level-100-problem/"><u>Guide to Solving WWE 2K Game's DX11 at Level 10.0 Problem</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-14-without-passcode-or-face-id-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 14 without Passcode or Face ID</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-mastering-youtube-steps-for-submitting-songs/"><u>In 2024, Mastering YouTube Steps for Submitting Songs</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-revolutionizing-video-sharing-alternatives-to-youtube/"><u>In 2024, Revolutionizing Video Sharing Alternatives to YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-stepwise-strategies-for-unique-youtube-openers/"><u>In 2024, Stepwise Strategies for Unique YouTube Openers</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/is-it-possible-to-manage-a-smart-home-using-chatgpt/"><u>Is It Possible To Manage A Smart Home Using ChatGPT?</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/ist-die-bitlocker-verschlusselung-fur-immer-aktiviert-ein-schnelles-handbuch-zum-deaktivieren/"><u>Ist Die BitLocker-Verschlüsselung Für Immer Aktiviert? Ein Schnelles Handbuch Zum Deaktivieren</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/resolved-how-to-fix-the-non-launching-glitch-in-the-ascent/"><u>Resolved! How to Fix the Non-Launching Glitch in 'The Ascent'</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-the-art-of-audio-branding-creating-iconic-podcast-cover-imagery-for-2024/"><u>Updated The Art of Audio Branding Creating Iconic Podcast Cover Imagery for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-curious-case-of-inverted-images-on-social-media/"><u>[New] 2024 Approved The Curious Case of Inverted Images on Social Media</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ow-to-spark-interest-with-unique-channel-names/"><u>[New] How to Spark Interest With Unique Channel Names</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mastering-the-art-of-instagram-voice-transformation/"><u>[New] Mastering the Art of Instagram Voice Transformation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/erfectly-positioned-cards-youtube-embedding-techniques/"><u>[New] Perfectly Positioned Cards YouTube Embedding Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-breaking-down-the-elements-of-a-youtube-shorts-template-for-2024/"><u>[Updated] Breaking Down the Elements of a YouTube Shorts Template for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-ordinary-to-extraordinary-the-ultimate-iphoneandroid-screenshot-enhancers-list/"><u>[Updated] From Ordinary to Extraordinary The Ultimate iPhone/Android Screenshot Enhancers List</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-master-quick-youtube-video-rendering-and-efficient-uploading/"><u>[Updated] In 2024, Master Quick YouTube Video Rendering & Efficient Uploading</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-ultimate-guide-to-downloading-youtube-media/"><u>2024 Approved The Ultimate Guide to Downloading YouTube Media</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/bending-reality-advanced-distortion-methods-for-ps-users/"><u>Bending Reality Advanced Distortion Methods for PS Users</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-to-pinpoint-the-best-independent-games-on-itchio/"><u>How to Pinpoint the Best Independent Games on itch.io</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-most-known-ways-to-find-someone-on-tinder-for-infinix-hot-40i-by-name-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Most-Known Ways to Find Someone on Tinder For Infinix Hot 40i by Name | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-step-inside-youtube-master-one-frame-no-money-spent/"><u>In 2024, Step Inside YouTube Master One Frame, No Money Spent</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-streamline-creation-with-no-cost-high-quality-banner-templates/"><u>In 2024, Streamline Creation with No-Cost, High-Quality Banner Templates</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolved-fixing-the-applicationexe-has-stopped-error/"><u>Resolved: Fixing the 'Application.Exe Has Stopped' Error</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-nokia-130-music-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Nokia 130 Music to Gmail | Dr.fone</u></a></li>
 </ul></div>
 

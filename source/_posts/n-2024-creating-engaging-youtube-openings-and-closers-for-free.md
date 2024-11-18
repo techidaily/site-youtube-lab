@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Creating Engaging YouTube Openings & Closers for Free"
-date: 2024-09-02T08:04:20.436Z
-updated: 2024-09-03T08:04:20.436Z
+date: 2024-11-12T18:56:55.104Z
+updated: 2024-11-18T19:52:42.896Z
 tags:
   - ai video
   - ai youtube
@@ -77,6 +77,19 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -112,20 +125,24 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +151,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-fixing-inactive-obs-video-inputs/"><u>[New] Fixing Inactive OBS Video Inputs</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-ensure-your-insta-pics-are-real-a-comprehensible-guide/"><u>[Updated] 2024 Approved Ensure Your Insta Pics Are Real - A Comprehensible Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-essential-gear-picking-the-very-best-among-top-9-free-logomakers/"><u>[Updated] 2024 Approved Essential Gear Picking the Very Best Among Top 9 Free Logomakers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-boosting-views-with-captivating-intros-filmed-in-imovie/"><u>[Updated] In 2024, Boosting Views with Captivating Intros Filmed in iMovie</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitters-hot-takes-the-10-craziest-tweets/"><u>[Updated] Twitter's Hot Takes The 10 Craziest Tweets</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unleash-creativity-with-youtube-list-mix-ups/"><u>2024 Approved Unleash Creativity with YouTube List Mix-Ups</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-motorola-moto-g13-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Motorola Moto G13 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/dable-techniques-to-enhance-written-content-with-media/"><u>Affordable Techniques to Enhance Written Content with Media</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Xiaomi Redmi Note 12T Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/lock-your-motorola-edge-40-neo-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Motorola Edge 40 Neo Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolved-red-dead-redemption-2-fixes-for-frame-rate-drops-and-performance-lags/"><u>Resolved: Red Dead Redemption 2 - Fixes for Frame Rate Drops & Performance Lags</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nplay-grooves-best-background-tunes-for-yt-shorts-for-2024/"><u>Screenplay Grooves Best Background Tunes For YT Shorts for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/ultimate-guide-downloading-logitech-t63am-t630-drivers-for-windows-7810/"><u>Ultimate Guide: Downloading Logitech T63am T630 Drivers for Windows 7/8/10</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

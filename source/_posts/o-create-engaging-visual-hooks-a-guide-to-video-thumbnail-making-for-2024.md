@@ -1,7 +1,7 @@
 ---
 title: "\"How to Create Engaging Visual Hooks  A Guide to Video Thumbnail Making for 2024\""
-date: 2024-09-06T19:38:17.729Z
-updated: 2024-09-07T19:38:17.729Z
+date: 2024-11-14T17:51:44.025Z
+updated: 2024-11-18T16:34:34.651Z
 tags:
   - ai video
   - ai youtube
@@ -14,24 +14,12 @@ keywords: "Engaging Thumbnails,Video Thumbnail Tips,Creation of Video Hooks,Thum
 thumbnail: https://thmb.techidaily.com/18b7f2a3affa298abd49de738912f69fd84b1ae730be3c4356f4b4963bc95eed.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Create Engaging Visual Hooks: A Guide to Video Thumbnail Making
 
 # How to Make Video Thumbnails for YouTube
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -50,22 +38,17 @@ Here are 5 easy tips for creating thumbnails that get views.
 
  _Contest now closed._
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Edit Your Videos Before Creating Video Thumbnails
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
@@ -75,28 +58,37 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **2\. Use Your Face**
 
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Use Graphics/Emojis that are On Topic
 
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
 
 Make sure the images you choose are relevant to the topic of your video.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
 
@@ -116,26 +108,17 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,4 +127,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-ideal-techniques-for-noiseless-recording/"><u>[Updated] 2024 Approved Ideal Techniques for Noiseless Recording</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-a-step-by-step-breakdown-creating-your-best-yt-shorts-for-2024/"><u>[Updated] A Step-by-Step Breakdown Creating Your Best YT Shorts for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-analyzing-whether-youtube-premium-is-right-for-you-for-2024/"><u>[Updated] Analyzing Whether YouTube Premium Is Right for You for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-bring-imagination-to-life-self-animated-artistry-for-2024/"><u>[Updated] Bring Imagination to Life Self-Animated Artistry for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-seamless-integration-vimeo-uploads-with-windows-media-center/"><u>2024 Approved Seamless Integration Vimeo Uploads with Windows Media Center</u></a></li>
+<li><a href="https://media-tips.techidaily.com/best-free-methods-to-watch-movies-tv-series-and-live-sports-online/"><u>Best Free Methods to Watch Movies, TV Series & Live Sports Online</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/bringing-waterfront-scenes-alive-with-insta360s-x2/"><u>Bringing Waterfront Scenes Alive with Insta360's X2</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-choreographing-climactic-crescendos/"><u>In 2024, Choreographing Climactic Crescendos</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-migrate-android-data-from-itel-p40plus-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Migrate Android Data From Itel P40+ to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-ultimate-12-selection-of-smart-flip-screen-vlog-cameras/"><u>In 2024, The Ultimate 12 Selection of Smart Flip-Screen Vlog Cameras</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-xiaomi-redmi-13c-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Xiaomi Redmi 13C Phone Pattern Lock</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/meme-crafting-undead-androids-for-2024/"><u>Meme Crafting Undead Androids for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-htc-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On HTC</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/windows-10disk/"><u>Windows 10上のデータを外部ハードDiskに安全圏で保存する手順</u></a></li>
+</ul></div>
 

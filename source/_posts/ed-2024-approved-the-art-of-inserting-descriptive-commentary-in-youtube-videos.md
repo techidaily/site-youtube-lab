@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Art of Inserting Descriptive Commentary in YouTube Videos\""
-date: 2024-09-02T08:03:58.034Z
-updated: 2024-09-03T08:03:58.034Z
+date: 2024-11-11T17:01:22.429Z
+updated: 2024-11-18T19:53:02.218Z
 tags:
   - ai video
   - ai youtube
@@ -67,6 +67,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -77,10 +84,24 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -120,20 +141,24 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +167,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-crafting-chorus-in-a-click-essential-insights-into-shortform-song-videos/"><u>[New] 2024 Approved Crafting Chorus in a Click Essential Insights Into Shortform Song Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ow-to-use-google-trends-to-come-up-with-video-ideas-in-2024/"><u>[New] How to Use Google Trends to Come up with Video Ideas, In 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hat-are-the-laws-around-youtube-video-capture/"><u>[New] What Are the Laws Around YouTube Video Capture?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/isdom-waves-prime-ed-channels-online/"><u>[New] Wisdom Waves Prime Ed Channels Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-deciphering-content-control-youtube-vs-creative-commons-license/"><u>[Updated] 2024 Approved Deciphering Content Control YouTube Vs. Creative Commons License</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-jest-sculptor-undead-funnybots/"><u>[Updated] In 2024, Jest Sculptor Undead Funnybots</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-your-first-leap-onto-youtubes-platform/"><u>[Updated] In 2024, Your First Leap Onto YouTube's Platform</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-top-10-soothing-games-to-ease-anxiety/"><u>[Updated] Top 10 Soothing Games to Ease Anxiety</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-brief-beatcasts-role-of-the-melody/"><u>2024 Approved Brief Beatcasts Role of the Melody</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-budget-friendly-designs-for-youtube-content-creators/"><u>2024 Approved Budget-Friendly Designs for YouTube Content Creators</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-crafting-cinematic-magic-a-filmmakers-guide-to-light/"><u>2024 Approved Crafting Cinematic Magic A Filmmaker's Guide to Light</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/pwise-approach-to-youtube-caption-addition/"><u>A Stepwise Approach to YouTube Caption Addition</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ing-impressive-video-tracks-with-a-newbie-mac-user-for-2024/"><u>Creating Impressive Video Tracks with a Newbie Mac User for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-14-pro-max-to-mac-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 14 Pro Max to Mac? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-essence-of-tale-making/"><u>In 2024, Essence of Tale Making</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-samsung-galaxy-s23-ultra-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Samsung Galaxy S23 Ultra ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-unlock-apple-id-without-phone-number-from-apple-iphone-14-by-drfone-ios/"><u>In 2024, Unlock Apple ID without Phone Number From Apple iPhone 14</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ative-hubs-of-affordable-visual-content-sources-for-2024/"><u>Innovative Hubs of Affordable Visual Content Sources for 2024</u></a></li>
+<li><a href="https://win-online.techidaily.com/qnap-naswindowsos-onedrive/"><u>QNAP NAS機器をWindowsOSであなたの重要データを保護: OneDriveに簡単同期方法</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

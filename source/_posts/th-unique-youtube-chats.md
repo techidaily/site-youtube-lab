@@ -1,7 +1,7 @@
 ---
 title: "Unearth Unique YouTube Chats"
-date: 2024-09-02T08:06:45.812Z
-updated: 2024-09-03T08:06:45.812Z
+date: 2024-11-12T17:49:51.990Z
+updated: 2024-11-18T19:39:55.042Z
 tags:
   - ai video
   - ai youtube
@@ -60,6 +60,13 @@ Although YouTube has settings to know about the first comment in a video, that i
 * Paste the URL of your YouTube video in the search box. Click on the FIND There you go! The name of the first commenter of the video will come right in front of you, and you can even see what the comment is and the date of commenting.
 * **Unique Feature:** This website comes with a tutorial and you can find out the first comment of the YouTube quickly with it. However, the feature of this tool is limited.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Hadzy
 
 It is one of the most user-friendly and ad-free random comment pickers available for YouTube. Hadzy is quick and can handle more comments than other sites. Hadzy YouTube comment picker is popular among most of the Tubers.
@@ -70,9 +77,6 @@ It is one of the most user-friendly and ad-free random comment pickers available
 
 ![Hadzy YouTube comment   search feature](https://images.wondershare.com/filmora/article-images/hadzy-youtube-comment-finder.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 * In the next step, you will be redirected to another pop-up with two buttons- 'View Comments' and 'View Statistics.' Click on View Comments to check the first, second and all the other comments in ascending order.
 * **Unique feature 1:** By clicking the View Statistics button, you can get a track of the popular words used in the comment section and the top questions asked by your followers.
 * **Unique feature 2:** Along with the comment, details of the user, time of commenting, and many more things can be extracted from Hadzy.
@@ -91,15 +95,29 @@ Everything you have to do now follows the steps below. For the following methods
 ![  YouTube comment  history search ](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 By these basic steps, enjoy editing or deleting your comments and replies directly on YouTube!
 
 However, you will have to scroll down a long way before you hit the end to see your first comment posted on YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How to Find the Latest Comments you have received on YouTube?
 
 You do not get notifications about comments left on your YouTube videos at times. Mostly, it's due to your notification preferences. When you enable comment notifications, you'll be informed of all the latest comments on your videos. And this, in turn, allows you to keep track of your followers and engage with them more easily.
@@ -117,9 +135,6 @@ These steps are convenient both for pc as well as a mobile app. Just follow thre
 
 * Click on the bell icon at the top right corner and there you would receive notifications regarding all the comment activities. Click on the particular notification to go to that comment.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Bonus: How to Change the Comments View Order?
 
 Did you know you can also customize your comment section as per your need? On the watch page for your video, you can rearrange the order of the comments. You may sort the comments by top comments or by date added. It's just simple steps ahead.
@@ -129,9 +144,6 @@ Did you know you can also customize your comment section as per your need? On th
 
 ![  YouTube comment  and rating settings ](https://images.wondershare.com/filmora/article-images/set-up-comment-ratings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 * Under 'Comments and ratings,' select Sort by, and then choose between "Top" and "Newest."
 * Save the changes, and you are done!
 
@@ -146,22 +158,23 @@ YouTube Comments Finder helps you keep track of the good and bad comments in you
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +183,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/xclusive-online-converter-for-video-texts-for-2024/"><u>[New] Exclusive Online Converter for Video Texts for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-cutting-edge-excellence-top-editors-for-videos/"><u>[New] In 2024, Cutting Edge Excellence Top Editors for Videos</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-finding-the-middle-ground-working-and-youtube/"><u>[New] In 2024, Finding the Middle Ground Working & YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ntegrate-youtube-content-into-google-slides-effectively/"><u>[New] Integrate YouTube Content Into Google Slides Effectively</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-srt-transition-subbed-content-conversion-strategies/"><u>[Updated] 2024 Approved SRT Transition Subbed Content Conversion Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-a-step-by-step-breakdown-creating-your-best-yt-shorts-for-2024/"><u>[Updated] A Step-by-Step Breakdown Creating Your Best YT Shorts for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-androids-video-recording-techniques-explored/"><u>[Updated] Android's Video Recording Techniques Explored</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-bring-imagination-to-life-self-animated-artistry-for-2024/"><u>[Updated] Bring Imagination to Life Self-Animated Artistry for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-turbo-faster-window-photo-editor/"><u>[Updated] In 2024, Turbo Faster Window Photo Editor</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-navigating-picture-landscapes-on-pexelscom/"><u>[Updated] Navigating Picture Landscapes on Pexels.com</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-students-the-power-of-youtube-in-education/"><u>Engaging Students The Power of YouTube in Education</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/essential-call-customization-applications-ranked/"><u>Essential Call Customization Applications Ranked</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/guide-complet-supprimer-les-espaces-vides-sur-windows-10-top-techniques/"><u>Guide Complet : Supprimer Les Espaces Vides Sur Windows 10 - Top Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-choreographing-climactic-crescendos/"><u>In 2024, Choreographing Climactic Crescendos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-ultimate-12-selection-of-smart-flip-screen-vlog-cameras/"><u>In 2024, The Ultimate 12 Selection of Smart Flip-Screen Vlog Cameras</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-steps-for-correcting-the-dx11-feature-level-100-glitch-in-wwe-2k-battlegrounds/"><u>Troubleshooting Steps for Correcting the DX11 Feature Level 10.0 Glitch in WWE 2K Battlegrounds</u></a></li>
+</ul></div>
 

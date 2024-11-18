@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Upload YouTube Shorts Video From Computer and Mobile for 2024"
-date: 2024-09-06T19:38:15.474Z
-updated: 2024-09-07T19:38:15.474Z
+date: 2024-11-15T16:42:49.896Z
+updated: 2024-11-18T16:01:06.203Z
 tags:
   - ai video
   - ai youtube
@@ -20,12 +20,6 @@ thumbnail: https://thmb.techidaily.com/f7eb32e30dabd1ecde240ae4f390a8ba724185aa1
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -36,12 +30,6 @@ Quite recently, YouTube launched Shorts to compete with Tik Tok. At the time of 
 
 With that said, the following sections explain the step-by-step process on **how to upload a short video on YouTube** Shorts both from your smartphone and a PC.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: How to Upload Short Video on YouTube from PC?
 
 The fact is, if you are using a computer to upload short videos to YouTube, the process is identical to publishing your other, regular footage. However, there are a few guidelines that your clips must comply with so that the streaming platform could specifically identify them as YouTube Shorts. These norms include:
@@ -56,12 +44,6 @@ Once you have a video recorded using the first two guidelines from the above lis
 
 ![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Launch your favorite web browser on your PC, go to YouTube, make sure to sign in to your YouTube account, click the **Create** (**Camera**) icon from the top-right corner of the web page, click **SELECT FILES** on the **Upload videos** window, and locate, select, and upload a short video from your PC to the portal.
 
 ![Upload YouTube Shorts Video](https://images.wondershare.com/filmora/article-images/upload-short-videos-interface-on-youtube-pc.jpg)
@@ -78,12 +60,6 @@ On the **Visibility** window, choose your preferred radio button from under the 
 
 ![post YouTube Shorts Video  ](https://images.wondershare.com/filmora/article-images/publish-youtube-shorts-video-desktop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 To sum up, uploading YouTube Shorts video from desktop has nothing different from uploading regular YouTube video besides the requirements listed at the beginning of this article. If you prefer to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for YouTube Shortson a computer, I recommend you to try our video editor [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), which is an ideal solution for YouTubers. Download the free trial version below and get started.
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -98,19 +74,14 @@ For macOS 10.12 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
@@ -126,11 +97,25 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
 #### Step 2: Add Details
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -138,12 +123,6 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 2: Record a Short Video and Upload
 
 **Step 1:** Record Shorts Video
@@ -154,12 +133,6 @@ Please note you will not see the **Create a Short** option if you are outsides o
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
 Next, use the **Speed** and **Timer** icons to set the speed of the video and the countdown timer duration before the app starts recording the video when you press the **Record** button respectively.
@@ -176,31 +149,20 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -208,14 +170,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -224,4 +183,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-missing-video-functionality-in-sony-a6400/"><u>[New] 2024 Approved Missing Video Functionality in Sony A6400</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-essential-art-of-editing-boost-your-instagram-videography/"><u>[New] 2024 Approved The Essential Art of Editing Boost Your Instagram Videography</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-humor-haven-top-15-laugh-factory-channels-online/"><u>[New] In 2024, Humor Haven Top 15 Laugh Factory Channels Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-navigating-through-paid-product-evaluations-online/"><u>[New] In 2024, Navigating Through Paid Product Evaluations Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-social-stream-wars-fb-live-vs-yt-live-and-tweetstreams/"><u>[Updated] 2024 Approved Social Stream Wars FB LIVE Vs. YT Live & TweetStreams</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-superior-mics-for-video-blogging-professionals/"><u>[Updated] 2024 Approved Superior Mics for Video Blogging Professionals</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-masterclass-in-conversions-top-software-for-youtube-to-avi/"><u>[Updated] Masterclass in Conversions Top Software for YouTube to AVI</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-quantifying-mr-beasts-earnings-for-2024/"><u>[Updated] Quantifying Mr. Beast's Earnings for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-skyrocket-traffic-the-ultimate-list-of-video-growth-techniques/"><u>[Updated] Skyrocket Traffic The Ultimate List of Video Growth Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-top-10-youtube-business-channels-and-how-to-create-one-easily/"><u>2024 Approved Top 10 YouTube Business Channels and How to Create One Easily</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-motorola-edge-40-neo-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Motorola Edge 40 Neo Phone Using PC | Dr.fone</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/comment-installer-une-image-du-syswin10-sur-un-cle-usb-guide-complet/"><u>Comment Installer Une Image Du SysWin10 Sur Un Clé USB : Guide Complet</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/motion-vs-youtube-monetization-which-is-more-profitable/"><u>Dailymotion vs YouTube Monetization Which Is More Profitable?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-the-two-factor-authentication-from-iphone-15-pro-max-by-drfone-ios/"><u>How To Remove the Two Factor Authentication From iPhone 15 Pro Max</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ps5-purchase-is-it-justified-discover-the-five-compelling-reasons-to-level-up-your-gaming-experience/"><u>PS5 Purchase: Is It Justified? Discover the Five Compelling Reasons to Level Up Your Gaming Experience</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-complete-guide-to-understanding-and-assessing-truecallers-performance/"><u>The Complete Guide to Understanding and Assessing TrueCaller's Performance</u></a></li>
+</ul></div>
 

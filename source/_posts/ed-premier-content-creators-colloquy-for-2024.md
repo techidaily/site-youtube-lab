@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Premier Content Creators Colloquy for 2024"
-date: 2024-09-02T08:04:06.112Z
-updated: 2024-09-03T08:04:06.112Z
+date: 2024-11-11T19:55:41.357Z
+updated: 2024-11-18T20:28:18.139Z
 tags:
   - ai video
   - ai youtube
@@ -59,6 +59,13 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
@@ -68,22 +75,27 @@ One of the major benefits of attending this summit would have been networking wi
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Branded slippers
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
@@ -95,8 +107,12 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
@@ -105,28 +121,19 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,4 +142,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-uniting-platforms-sharing-vids-on-twtplustumblr-space/"><u>[New] 2024 Approved Uniting Platforms Sharing Vids on Twt+Tumblr Space</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-youtubers-with-a-glamour-touch-top-names/"><u>[New] 2024 Approved YouTubers with a Glamour Touch Top Names</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-fresh-alternative-films-to-dive-into-7-favorites/"><u>[New] In 2024, Fresh Alternative Films to Dive Into, #7 Favorites</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-ig-management-made-simple-the-best-tools-reviewed/"><u>[New] In 2024, IG Management Made Simple The Best Tools Reviewed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-unlock-free-youtube-gallery-downloads-now/"><u>[New] In 2024, Unlock Free YouTube Gallery Downloads Now</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-cc-license-application-a-comprehensive-guide/"><u>[New] Mastering CC License Application A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-download-facebook-links-for-free-online-for-2024/"><u>[Updated] Download Facebook Links for FREE Online for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-picture-talk-engineer/"><u>[Updated] In 2024, Picture Talk Engineer</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unlocking-financial-potential-how-to-earn-with-youtube-shorts/"><u>2024 Approved Unlocking Financial Potential How to Earn with YouTube Shorts</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/digital-artistry-crafting-distorted-textual-elements/"><u>Digital Artistry Crafting Distorted Textual Elements</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/discover-the-premier-5-ios-podcast-clients/"><u>Discover the Premier 5 iOS Podcast Clients</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/how-to-restore-your-lost-windows-data-after-an-unintentional-partition-delete/"><u>How to Restore Your Lost Windows Data After an Unintentional Partition Delete</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/hugging-face-explained-ideals-and-implementation/"><u>Hugging Face Explained: Ideals and Implementation</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-mobile-filmmaking-mastery-creating-impactful-youtube-thumbnails/"><u>In 2024, Mobile Filmmaking Mastery Creating Impactful YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-ultimate-livestream-setup-reviews-on-the-top-livestream-tools-and-devices/"><u>In 2024, Ultimate Livestream Setup Reviews on the Top Livestream Tools and Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-unveiling-video-content-strategies-on-youtube/"><u>In 2024, Unveiling Video Content Strategies on YouTube</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-online-collage-creators-make-stunning-photo-and-video-montages/"><u>Updated 2024 Approved Online Collage Creators Make Stunning Photo and Video Montages</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/youtubers-with-a-glamour-touch-top-names-for-2024/"><u>YouTubers with a Glamour Touch Top Names for 2024</u></a></li>
+</ul></div>
 

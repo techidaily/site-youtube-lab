@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] How to Craft Eye-Catching YouTubes End Titles\""
-date: 2024-09-02T08:05:46.344Z
-updated: 2024-09-03T08:05:46.344Z
+date: 2024-11-17T17:37:50.713Z
+updated: 2024-11-18T21:12:13.708Z
 tags:
   - ai video
   - ai youtube
@@ -77,6 +77,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -112,20 +119,24 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,9 +145,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-begin-the-stream-an-introduction-to-instagram-lives/"><u>[New] Begin the Stream An Introduction to Instagram Lives</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ffortless-youtube-file-extraction/"><u>[New] Effortless YouTube File Extraction</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-streamlining-process-clean-up-youtubes-buffered-list/"><u>[New] In 2024, Streamlining Process Clean Up YouTube's Buffered List</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-ultimate-rulebook-for-youtube-participants/"><u>[New] In 2024, The Ultimate Rulebook for YouTube Participants</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-a-step-by-step-guide-to-youtube-comms-management-for-2024/"><u>[Updated] A Step-by-Step Guide to YouTube Comms Management for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-top-ai-enhanced-photoshop-suite-for-2024/"><u>[Updated] Top AI Enhanced Photoshop Suite for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-create-with-colors-youtube-banner-creation-guide/"><u>2024 Approved Create with Colors YouTube Banner Creation Guide</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/expert-advice-easily-pair-your-logitech-mouse-in-minutes/"><u>Expert Advice: Easily Pair Your Logitech Mouse in Minutes</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-can-i-bypass-a-forgotten-phone-password-of-sony-by-drfone-android/"><u>In 2024, Can I Bypass a Forgotten Phone Password Of Sony?</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-realme-narzo-60-pro-5g-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Realme Narzo 60 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-vivo-s17t-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Vivo S17t Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-mp3-upload-process-stream-convert-and-share-on-youtube-quickly/"><u>In 2024, MP3 Upload Process Stream, Convert & Share on YouTube Quickly</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-the-power-of-pacing-keeping-your-audience-glued-to-the-screen/"><u>In 2024, The Power of Pacing Keeping Your Audience Glued to the Screen</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-transform-ideas-into-visuals-free-templates-for-video-makers/"><u>In 2024, Transform Ideas Into Visuals Free Templates for Video Makers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ming-star-status-buttons-and-growth-accolades-for-2024/"><u>Streaming Star Status - Buttons & Growth Accolades for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ate-video-streaming-channel-lists-films-and-series/"><u>Ultimate Video Streaming Channel Lists Films & Series</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->

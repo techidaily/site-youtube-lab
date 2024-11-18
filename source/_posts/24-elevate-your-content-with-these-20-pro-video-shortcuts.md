@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Elevate Your Content With These 20 Pro Video Shortcuts"
-date: 2024-09-02T08:07:07.877Z
-updated: 2024-09-03T08:07:07.877Z
+date: 2024-11-14T19:09:12.037Z
+updated: 2024-11-18T17:39:38.021Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,13 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
 This section talks about the shortcut keys to skim the video forward and backward during playback:
@@ -61,12 +68,12 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -77,8 +84,12 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -90,6 +101,13 @@ This category talks about managing the video captions using the shortcut keys:
 | 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 5: Managing the Audio Video
 
@@ -127,9 +145,6 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -142,10 +157,6 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -154,28 +165,19 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -184,4 +186,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-compose-chuckling-content-for-giphy-audience/"><u>[New] 2024 Approved Compose Chuckling Content for Giphy Audience</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-unveiling-the-top-ten-youtube-music-reaction-stars/"><u>[New] 2024 Approved Unveiling the Top Ten YouTube Music Reaction Stars</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/inalcut-pro-101-crafting-professional-youtube-edits/"><u>[New] FinalCut Pro 101 Crafting Professional YouTube Edits</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-charismatic-charm-of-moving-text-on-screen/"><u>[New] In 2024, Charismatic Charm of Moving Text on Screen</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-free-youtube-download-methods-without-apps/"><u>[New] In 2024, Free YouTube Download Methods Without Apps</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-master-your-own-passport-photos-with-these-10-tools/"><u>[New] Master Your Own Passport Photos with These 10 Tools</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-elevate-your-instagram-shots-with-strategic-borders/"><u>[Updated] 2024 Approved Elevate Your Instagram Shots With Strategic Borders</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-income-maximizing-techno-gaming-tactics/"><u>[Updated] 2024 Approved Income Maximizing Techno-Gaming Tactics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-quick-guide-to-video-extraction-from-youtube/"><u>[Updated] 2024 Approved Quick Guide to Video Extraction From YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-streamlining-your-youtube-views-a-guide-to-blocking-advertisements/"><u>[Updated] 2024 Approved Streamlining Your YouTube Views A Guide to Blocking Advertisements</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-prevent-unwanted-video-captures-in-qt-player-for-2024/"><u>[Updated] Prevent Unwanted Video Captures in QT Player for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-astral-adventures-with-your-luxury-sj4000-essential-accompaniments/"><u>2024 Approved Astral Adventures with Your Luxury SJ4000 - Essential Accompaniments</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unlocking-youtube-content-as-lively-download-free-animated-gifs/"><u>2024 Approved Unlocking YouTube Content as Lively, Download-Free Animated GIFs</u></a></li>
+<li><a href="https://common-error.techidaily.com/bypassing-file-explorer-hangs-tips-and-solutions-for-smoother-windows-experience/"><u>Bypassing File Explorer Hangs: Tips and Solutions for Smoother Windows Experience</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/evaluating-the-leading-video-calling-platforms-for-tech-enthusiasts-for-2024/"><u>Evaluating the Leading Video Calling Platforms for Tech Enthusiasts for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-oppo-reno-11f-5g-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Oppo Reno 11F 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/26791338-in-2024-amplify-content-with-free-audio-samples/"><u>In 2024, Amplify Content with Free Audio Samples</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-charting-updates-youtube-money-standards/"><u>In 2024, Charting Updates YouTube Money Standards</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/pop-up-logitech-casa-desk-performance-analysis-topnotch-keyboard-and-trackpad-with-subpar-casing/"><u>Pop-Up Logitech Casa Desk Performance Analysis: Topnotch Keyboard & Trackpad with Subpar Casing</u></a></li>
+</ul></div>
 
