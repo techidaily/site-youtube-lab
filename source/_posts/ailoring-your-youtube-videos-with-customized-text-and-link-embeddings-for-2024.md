@@ -1,7 +1,7 @@
 ---
 title: "[New] Tailoring Your YouTube Videos with Customized Text & Link Embeddings for 2024"
-date: 2024-09-02T08:00:48.267Z
-updated: 2024-09-03T08:00:48.267Z
+date: 2024-11-27T06:20:37.040Z
+updated: 2024-11-27T19:05:45.590Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -52,6 +56,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Click on the "Video Manager" tab
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
@@ -67,6 +75,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -77,10 +89,18 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -126,14 +146,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +159,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-the-secret-behind-crafting-mesmerizing-slow-motion-media-for-instagram/"><u>[New] 2024 Approved The Secret Behind Crafting Mesmerizing Slow Motion Media for Instagram</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-innovative-approaches-to-youtube-teaser-trailblazing/"><u>[New] In 2024, Innovative Approaches to YouTube Teaser Trailblazing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-naming-rules-and-guidelines-how-to-ensure-originality-in-streaming/"><u>[New] In 2024, Naming Rules and Guidelines How to Ensure Originality in Streaming</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-visualcut-pro/"><u>[New] In 2024, VisualCut Pro</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/uickframe-editor/"><u>[New] QuickFrame Editor</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/our-first-step-to-successful-streaming-for-2024/"><u>[New] Your First Step to Successful Streaming for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-effective-ways-to-watch-multiple-youtube-videos-at-one-time/"><u>[Updated] In 2024, Effective Ways to Watch Multiple YouTube Videos at One Time</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-unlock-creative-potential-strategic-use-of-strikethrough/"><u>[Updated] In 2024, Unlock Creative Potential Strategic Use of Strikethrough</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-navigating-the-digital-realm-uploading-with-premiere-and-youtube/"><u>[Updated] Navigating the Digital Realm Uploading with Premiere & YouTube</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-quick-guide-altering-screen-colors-on-google-meet/"><u>2024 Approved Quick Guide Altering Screen Colors on Google Meet</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/2024s-best-free-live-streaming-platforms-for-anime-top-19-choices-reviewed/"><u>2024'S Best Free Live Streaming Platforms for Anime: Top 19 Choices Reviewed</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Infinix Smart 8 HD | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>Set Your Preferred Job Location on LinkedIn App of your Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-realme-12-pro-5g-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Realme 12 Pro 5G Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211222427-9782017229889-transformez-votre-vie-par-lecriture/"><u>Transformez votre vie par l'écriture | Free Book</u></a></li>
+<li><a href="https://win-blog.techidaily.com/winning-over-window-woes-effective-solutions-for-shadowplay-recording-issues/"><u>Winning Over Window Woes: Effective Solutions for ShadowPlay Recording Issues</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->

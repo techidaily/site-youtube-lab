@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Ultimate Guide  Incorporating Informative Commentary in YouTube Videos\""
-date: 2024-09-02T07:58:09.491Z
-updated: 2024-09-03T07:58:09.491Z
+date: 2024-11-25T09:51:49.610Z
+updated: 2024-11-28T00:29:12.134Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -58,6 +62,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
@@ -66,6 +74,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -81,6 +93,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -120,20 +136,21 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +159,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-become-an-expert-at-unearthing-unique-visuals-from-pexels/"><u>[New] In 2024, Become an Expert at Unearthing Unique Visuals From Pexels</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-ultimate-guide-for-transforming-youtube-videos-into-animated-gifs/"><u>[New] In 2024, The Ultimate Guide for Transforming YouTube Videos Into Animated GIFs</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-podcasts-vs-youtube-which-one-is-the-right-choice-for-2024/"><u>[New] Podcasts Vs. YouTube Which One Is the Right Choice for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-social-media-sites-pick-the-prime-option/"><u>[Updated] 2024 Approved Social Media Sites Pick the Prime Option</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-confirm-your-youtube-account-securely/"><u>[Updated] How to Confirm Your YouTube Account Securely?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-no-expenses-the-ultimate-guide-to-16-top-tier-youtube-rippers-for-audios/"><u>[Updated] No Expenses The Ultimate Guide to 16 Top-Tier YouTube Rippers for Audios</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-ultimate-fix-for-quick-signature-bg-disposal/"><u>[Updated] Ultimate Fix for Quick Signature BG Disposal</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Infinix Hot 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/w-without-cost-images-from-leading-youtubers-archives/"><u>Borrow Without Cost Images From Leading YouTubers' Archives</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-apple-iphone-14-backup-password-heres-what-to-do-drfone-by-drfone-ios/"><u>Forgot Apple iPhone 14 Backup Password? Heres What to Do | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-unboxing-the-hottest-youtube-music-playback-vids-2023/"><u>In 2024, Unboxing the Hottest YouTube Music Playback Vids, 2023</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-youtube-studios-pathway-to-high-quality-videography/"><u>In 2024, YouTube Studio's Pathway to High-Quality Videography</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-trendline-analysis-a-step-by-step-guide-using-microsoft-excel/"><u>Mastering Trendline Analysis: A Step-by-Step Guide Using Microsoft Excel</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-photos-on-nokia-g310-without-backup-by-fonelab-android-recover-photos/"><u>The way to recover deleted photos on Nokia G310 without backup.</u></a></li>
+<li><a href="https://win-able.techidaily.com/top-strategies-to-keep-diablo-iv-running-smoothly-on-pc-ps5-and-xbox-devices/"><u>Top Strategies to Keep Diablo IV Running Smoothly on PC, PS5, and Xbox Devices</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->

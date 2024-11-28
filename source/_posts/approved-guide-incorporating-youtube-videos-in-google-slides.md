@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Guide  Incorporating YouTube Videos in Google Slides\""
-date: 2024-11-12T21:30:31.794Z
-updated: 2024-11-18T21:12:22.942Z
+date: 2024-11-24T05:25:17.867Z
+updated: 2024-11-28T05:07:43.304Z
 tags:
   - ai video
   - ai youtube
@@ -105,9 +105,315 @@ Step 7\. Then paste the YouTube video URL in the "Paste YouTube URL Here" bar se
 
 ![add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-5.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 8\. Wait for the video file to load and press the "Select" option. The video will immediately appear in the presentation slide. Just drag and drop the video in your preferred position.
 
 Note: You can do a few edits inside the application. Set the timer when your video should start and when to stop. You can also adjust the video player size.
+
+## How to choose the right video for your Slides?
+
+Not all videos will make an impact on your Google Slide. You need to use the best shot that adds value to your presentation. These guidelines will help you to settle on the best video.
+
+**Be Professional** – choose the best video for your presentation. Remember that the video is part of the presentation and carries more weight. Settling for quality video will bring out the professionalism in you.
+
+**Relevant** – how do you know that what you are showing your audience corresponds to the presentation piece? Ensure that the video you add has something to do with the Google Slide presentation topic. The two should naturally flow to make it easy to understand the whole concept.
+
+**Precise** – your presentation is not about the video. The ideal length should not exceed 60 seconds. The longer the video, the greater the chance for your audience to lose track along the way.
+
+**Know every footage you are working with** – this will help you pick the best shots for your presentation. So, learn every aspect of the video before settling down to use it.
+
+**Add new content** – even though one content may suit several presentations, don't rely on the same piece each time. Your audience will want to feel something fresh each time you are presenting. So, compose different videos for different scenarios to make that big impact.
+
+## Create an eye-catching video for your Slides with Filmora
+
+The video quality matters when it comes to creating your Slides. The best video creator – Filmora – works in simple steps to give you an eye-catching video. It will create videos for all scenarios like marketing, tutorial, gaming, etc.
+
+#### Key features of Filmora
+
+* It offers you advanced video effects like filters, motion elements, etc
+* You can multiply your fun with multiple screens with the Split Screen feature
+* Easily change backgrounds using the Green Screen feature
+* The speed control lets you fast forward or slow down a special moment
+* Import your video clips to social media platforms
+* You can also adjust the audio of your tracks using the Audio Mixer feature
+
+#### Follow this guide to create a video for your slide with Filmora
+
+Step 1\. Launch Filmora  
+First, begin by downloading and installing Filmora on your computer device. Once installed, launch it and allow it to run. You can either create a new project or open an existing project to work on.
+
+Step 2\. Create a new project  
+Here, click on the "New Project" tab on the app's welcome screen. The editor should load immediately. Then proceed to register the product. Just hit on the "Register" tab.
+
+Step 3\. Import video
+Check the upper left corner of your screen to see the "Import" tab. Click on it and choose the "Import Media Files" option. Next, navigate to the location of your computer's local list to select the clip or video you want to edit. Then, hit the "Import" button to add the video to the timeline for editing.
+
+Step 4\. Edit video  
+Drag and drop the raw footage to Filmora's timeline to begin editing. Here, you can trim, add other video clips, merge, and add effects as you wish. Likewise, you can add opening titles, subtitles, and end credits to your video. More so, this tool offers different templates to use. Just drag and drop the templates you wish to use to a specific location on the timeline.
+
+Step 5\. Preview your file  
+Last but not least, you can preview your files. Click on the "Play" tab to start previewing your video clips. The main essence of this part is to allow you to make the necessary changes to your clips if there is a need.
+
+Step 6\. Export and Share  
+With Filmora, you can export your file to various social media platforms. But first, go to the "Output window" and select the video file format to use. This software supports several output formats to apply to any platform and device. Just click on the "Format" tab and choose the file format to use. Then also change the resolution and other parameters like frame rate and channel of your video in the "Settings" section. Finally, share your video to your YouTube channel and get ready to add the video to the Google Slide presentation.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+## Conclusion
+
+● You now know **how to put a YouTube video in Google Slides** the simple way. You can search for your YouTube videos or directly use the URL link. Whatever the case, remember that it's the quality of your video that carries more weight. Thanks to the availability of third-party apps that you can use to create and improve the quality of your videos.
+
+● Filmora is at your service to create high-resolution videos that you can export in any format to your YouTube channel. The tool is intuitive, and it won't matter whether you haven't tried it before. It is a perfect choice for both professionals and first-time users.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Google Slide presentation is a powerful tool for creators to keep their audience engaged. This online platform lets you create and demonstrate your ideas. It will capture your viewers' attention from the very beginning. It also doesn't matter whatever learning style you engage. Adding YouTube videos to Google Slide will appeal to all levels of individuals.
+
+More so, it is the best way to provide a break for both the audience and the creator. You can break Google Slide presentations with videos to offer some break. Viewers and the presenter get a breather in the process. The presenter can take a short break from speaking while the video plays. Let's now dive into **how to embed a YouTube video in Google Slides**.
+
+![add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-1.png)
+
+#### In this article
+
+01 [Why should we add a video to Google Slides?](#part1)
+
+02 [How to add a YouTube video to Google Slide](#part2)
+
+03 [How to choose the right video for your Slides?](#part3)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Why should we add a video to Google Slides?
+
+There is a great impact of adding video to Google Slides.
+
+#### For attention
+
+Videos will automatically awaken you, especially if your thoughts have started to sway during a presentation. A video has a direct way of showing creativity. The audience automatically connects the dots between the video and the presentation lines alike.
+
+#### To stimulate discussion
+
+A picture is worth a thousand words. There is a way that an added video will help the audience connect to the day's topic. It will bring up several ideas and stir up discussion with the presenter.
+
+#### Easy following
+
+With videos embedded in Google Slide, viewers will find it easy to understand and digest. Videos automatically eliminate boredom and make any topic interesting.
+
+## How to add a YouTube video to Google Slide
+
+Use these two methods to add a YouTube video to Google Slides. Via the Search and Direct link.
+
+#### Method 1\. Embed YouTube video to Google Slide by search and selection
+
+Google has owned YouTube since the year 2006\. You can, therefore, integrate Google's products with YouTube easily.
+
+Step 1\. First, go to the slide where you want to embed your video.
+
+Step 2\. Then choose the "Insert" option from the menu bar and hit the "Video" option.
+
+![how to add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Step 3\. It would be best if you now viewed the "YouTube" search bar to type in the video you want to embed. You can use keywords to search for the video in question and view instant search results.
+
+Step 4\. Then select the video you want to embed, and you'll see it appear on the "Slide."
+
+![how to add youtube video to google slides by search and selection](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-3.png)
+
+Step 5\. Format your video. Remember that the entire video will be embedded. You don't necessarily need the whole video. It is time to select just a brief but relevant clip from the video to use. Then position your video to the right point using the axes from the exact starting point to the finished part you want the video to appear in.
+
+#### Method 2\. Embed YouTube video to Google Slide by direct link
+
+You can engage this method if you want to include the entire video.
+
+Step 1\. Get the URL of the specific YouTube video that you want to use.
+
+![how to add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-4.png)
+
+Step 2\. Then go to your browser's "Address bar" to copy the YouTube link.
+
+Step 3\. Next, open the "Presentation" slide to put your video to.
+
+Step 4\. Choose the "Insert" tab from the menu bar.
+
+Step 5\. Then hit on the "Video" option from the drop-down menu that appears.
+
+Step 6\. A new window will open automatically. Choose the "By URL" tab.
+
+Step 7\. Then paste the YouTube video URL in the "Paste YouTube URL Here" bar section.
+
+![add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-5.png)
+
+Step 8\. Wait for the video file to load and press the "Select" option. The video will immediately appear in the presentation slide. Just drag and drop the video in your preferred position.
+
+Note: You can do a few edits inside the application. Set the timer when your video should start and when to stop. You can also adjust the video player size.
+
+## How to choose the right video for your Slides?
+
+Not all videos will make an impact on your Google Slide. You need to use the best shot that adds value to your presentation. These guidelines will help you to settle on the best video.
+
+**Be Professional** – choose the best video for your presentation. Remember that the video is part of the presentation and carries more weight. Settling for quality video will bring out the professionalism in you.
+
+**Relevant** – how do you know that what you are showing your audience corresponds to the presentation piece? Ensure that the video you add has something to do with the Google Slide presentation topic. The two should naturally flow to make it easy to understand the whole concept.
+
+**Precise** – your presentation is not about the video. The ideal length should not exceed 60 seconds. The longer the video, the greater the chance for your audience to lose track along the way.
+
+**Know every footage you are working with** – this will help you pick the best shots for your presentation. So, learn every aspect of the video before settling down to use it.
+
+**Add new content** – even though one content may suit several presentations, don't rely on the same piece each time. Your audience will want to feel something fresh each time you are presenting. So, compose different videos for different scenarios to make that big impact.
+
+## Create an eye-catching video for your Slides with Filmora
+
+The video quality matters when it comes to creating your Slides. The best video creator – Filmora – works in simple steps to give you an eye-catching video. It will create videos for all scenarios like marketing, tutorial, gaming, etc.
+
+#### Key features of Filmora
+
+* It offers you advanced video effects like filters, motion elements, etc
+* You can multiply your fun with multiple screens with the Split Screen feature
+* Easily change backgrounds using the Green Screen feature
+* The speed control lets you fast forward or slow down a special moment
+* Import your video clips to social media platforms
+* You can also adjust the audio of your tracks using the Audio Mixer feature
+
+#### Follow this guide to create a video for your slide with Filmora
+
+Step 1\. Launch Filmora  
+First, begin by downloading and installing Filmora on your computer device. Once installed, launch it and allow it to run. You can either create a new project or open an existing project to work on.
+
+Step 2\. Create a new project  
+Here, click on the "New Project" tab on the app's welcome screen. The editor should load immediately. Then proceed to register the product. Just hit on the "Register" tab.
+
+Step 3\. Import video
+Check the upper left corner of your screen to see the "Import" tab. Click on it and choose the "Import Media Files" option. Next, navigate to the location of your computer's local list to select the clip or video you want to edit. Then, hit the "Import" button to add the video to the timeline for editing.
+
+Step 4\. Edit video  
+Drag and drop the raw footage to Filmora's timeline to begin editing. Here, you can trim, add other video clips, merge, and add effects as you wish. Likewise, you can add opening titles, subtitles, and end credits to your video. More so, this tool offers different templates to use. Just drag and drop the templates you wish to use to a specific location on the timeline.
+
+Step 5\. Preview your file  
+Last but not least, you can preview your files. Click on the "Play" tab to start previewing your video clips. The main essence of this part is to allow you to make the necessary changes to your clips if there is a need.
+
+Step 6\. Export and Share  
+With Filmora, you can export your file to various social media platforms. But first, go to the "Output window" and select the video file format to use. This software supports several output formats to apply to any platform and device. Just click on the "Format" tab and choose the file format to use. Then also change the resolution and other parameters like frame rate and channel of your video in the "Settings" section. Finally, share your video to your YouTube channel and get ready to add the video to the Google Slide presentation.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For Win 7 or later (64-bit)
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Conclusion
+
+● You now know **how to put a YouTube video in Google Slides** the simple way. You can search for your YouTube videos or directly use the URL link. Whatever the case, remember that it's the quality of your video that carries more weight. Thanks to the availability of third-party apps that you can use to create and improve the quality of your videos.
+
+● Filmora is at your service to create high-resolution videos that you can export in any format to your YouTube channel. The tool is intuitive, and it won't matter whether you haven't tried it before. It is a perfect choice for both professionals and first-time users.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+Google Slide presentation is a powerful tool for creators to keep their audience engaged. This online platform lets you create and demonstrate your ideas. It will capture your viewers' attention from the very beginning. It also doesn't matter whatever learning style you engage. Adding YouTube videos to Google Slide will appeal to all levels of individuals.
+
+More so, it is the best way to provide a break for both the audience and the creator. You can break Google Slide presentations with videos to offer some break. Viewers and the presenter get a breather in the process. The presenter can take a short break from speaking while the video plays. Let's now dive into **how to embed a YouTube video in Google Slides**.
+
+![add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+#### In this article
+
+01 [Why should we add a video to Google Slides?](#part1)
+
+02 [How to add a YouTube video to Google Slide](#part2)
+
+03 [How to choose the right video for your Slides?](#part3)
+
+## Why should we add a video to Google Slides?
+
+There is a great impact of adding video to Google Slides.
+
+#### For attention
+
+Videos will automatically awaken you, especially if your thoughts have started to sway during a presentation. A video has a direct way of showing creativity. The audience automatically connects the dots between the video and the presentation lines alike.
+
+#### To stimulate discussion
+
+A picture is worth a thousand words. There is a way that an added video will help the audience connect to the day's topic. It will bring up several ideas and stir up discussion with the presenter.
+
+#### Easy following
+
+With videos embedded in Google Slide, viewers will find it easy to understand and digest. Videos automatically eliminate boredom and make any topic interesting.
+
+## How to add a YouTube video to Google Slide
+
+Use these two methods to add a YouTube video to Google Slides. Via the Search and Direct link.
+
+#### Method 1\. Embed YouTube video to Google Slide by search and selection
+
+Google has owned YouTube since the year 2006\. You can, therefore, integrate Google's products with YouTube easily.
+
+Step 1\. First, go to the slide where you want to embed your video.
+
+Step 2\. Then choose the "Insert" option from the menu bar and hit the "Video" option.
+
+![how to add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-2.png)
+
+Step 3\. It would be best if you now viewed the "YouTube" search bar to type in the video you want to embed. You can use keywords to search for the video in question and view instant search results.
+
+Step 4\. Then select the video you want to embed, and you'll see it appear on the "Slide."
+
+![how to add youtube video to google slides by search and selection](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-3.png)
+
+Step 5\. Format your video. Remember that the entire video will be embedded. You don't necessarily need the whole video. It is time to select just a brief but relevant clip from the video to use. Then position your video to the right point using the axes from the exact starting point to the finished part you want the video to appear in.
+
+#### Method 2\. Embed YouTube video to Google Slide by direct link
+
+You can engage this method if you want to include the entire video.
+
+Step 1\. Get the URL of the specific YouTube video that you want to use.
+
+![how to add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-4.png)
+
+Step 2\. Then go to your browser's "Address bar" to copy the YouTube link.
+
+Step 3\. Next, open the "Presentation" slide to put your video to.
+
+Step 4\. Choose the "Insert" tab from the menu bar.
+
+Step 5\. Then hit on the "Video" option from the drop-down menu that appears.
+
+Step 6\. A new window will open automatically. Choose the "By URL" tab.
+
+Step 7\. Then paste the YouTube video URL in the "Paste YouTube URL Here" bar section.
+
+![add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-5.png)
+
+Step 8\. Wait for the video file to load and press the "Select" option. The video will immediately appear in the presentation slide. Just drag and drop the video in your preferred position.
+
+Note: You can do a few edits inside the application. Set the timer when your video should start and when to stop. You can also adjust the video player size.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to choose the right video for your Slides?
 
@@ -216,11 +522,19 @@ Step 2\. Then choose the "Insert" option from the menu bar and hit the "Video" o
 
 ![how to add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 3\. It would be best if you now viewed the "YouTube" search bar to type in the video you want to embed. You can use keywords to search for the video in question and view instant search results.
 
 Step 4\. Then select the video you want to embed, and you'll see it appear on the "Slide."
 
 ![how to add youtube video to google slides by search and selection](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 5\. Format your video. Remember that the entire video will be embedded. You don't necessarily need the whole video. It is time to select just a brief but relevant clip from the video to use. Then position your video to the right point using the axes from the exact starting point to the finished part you want the video to appear in.
 
@@ -233,341 +547,7 @@ Step 1\. Get the URL of the specific YouTube video that you want to use.
 ![how to add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-4.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-Step 2\. Then go to your browser's "Address bar" to copy the YouTube link.
-
-Step 3\. Next, open the "Presentation" slide to put your video to.
-
-Step 4\. Choose the "Insert" tab from the menu bar.
-
-Step 5\. Then hit on the "Video" option from the drop-down menu that appears.
-
-Step 6\. A new window will open automatically. Choose the "By URL" tab.
-
-Step 7\. Then paste the YouTube video URL in the "Paste YouTube URL Here" bar section.
-
-![add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-5.png)
-
-Step 8\. Wait for the video file to load and press the "Select" option. The video will immediately appear in the presentation slide. Just drag and drop the video in your preferred position.
-
-Note: You can do a few edits inside the application. Set the timer when your video should start and when to stop. You can also adjust the video player size.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## How to choose the right video for your Slides?
-
-Not all videos will make an impact on your Google Slide. You need to use the best shot that adds value to your presentation. These guidelines will help you to settle on the best video.
-
-**Be Professional** – choose the best video for your presentation. Remember that the video is part of the presentation and carries more weight. Settling for quality video will bring out the professionalism in you.
-
-**Relevant** – how do you know that what you are showing your audience corresponds to the presentation piece? Ensure that the video you add has something to do with the Google Slide presentation topic. The two should naturally flow to make it easy to understand the whole concept.
-
-**Precise** – your presentation is not about the video. The ideal length should not exceed 60 seconds. The longer the video, the greater the chance for your audience to lose track along the way.
-
-**Know every footage you are working with** – this will help you pick the best shots for your presentation. So, learn every aspect of the video before settling down to use it.
-
-**Add new content** – even though one content may suit several presentations, don't rely on the same piece each time. Your audience will want to feel something fresh each time you are presenting. So, compose different videos for different scenarios to make that big impact.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Create an eye-catching video for your Slides with Filmora
-
-The video quality matters when it comes to creating your Slides. The best video creator – Filmora – works in simple steps to give you an eye-catching video. It will create videos for all scenarios like marketing, tutorial, gaming, etc.
-
-#### Key features of Filmora
-
-* It offers you advanced video effects like filters, motion elements, etc
-* You can multiply your fun with multiple screens with the Split Screen feature
-* Easily change backgrounds using the Green Screen feature
-* The speed control lets you fast forward or slow down a special moment
-* Import your video clips to social media platforms
-* You can also adjust the audio of your tracks using the Audio Mixer feature
-
-#### Follow this guide to create a video for your slide with Filmora
-
-Step 1\. Launch Filmora  
-First, begin by downloading and installing Filmora on your computer device. Once installed, launch it and allow it to run. You can either create a new project or open an existing project to work on.
-
-Step 2\. Create a new project  
-Here, click on the "New Project" tab on the app's welcome screen. The editor should load immediately. Then proceed to register the product. Just hit on the "Register" tab.
-
-Step 3\. Import video
-Check the upper left corner of your screen to see the "Import" tab. Click on it and choose the "Import Media Files" option. Next, navigate to the location of your computer's local list to select the clip or video you want to edit. Then, hit the "Import" button to add the video to the timeline for editing.
-
-Step 4\. Edit video  
-Drag and drop the raw footage to Filmora's timeline to begin editing. Here, you can trim, add other video clips, merge, and add effects as you wish. Likewise, you can add opening titles, subtitles, and end credits to your video. More so, this tool offers different templates to use. Just drag and drop the templates you wish to use to a specific location on the timeline.
-
-Step 5\. Preview your file  
-Last but not least, you can preview your files. Click on the "Play" tab to start previewing your video clips. The main essence of this part is to allow you to make the necessary changes to your clips if there is a need.
-
-Step 6\. Export and Share  
-With Filmora, you can export your file to various social media platforms. But first, go to the "Output window" and select the video file format to use. This software supports several output formats to apply to any platform and device. Just click on the "Format" tab and choose the file format to use. Then also change the resolution and other parameters like frame rate and channel of your video in the "Settings" section. Finally, share your video to your YouTube channel and get ready to add the video to the Google Slide presentation.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-## Conclusion
-
-● You now know **how to put a YouTube video in Google Slides** the simple way. You can search for your YouTube videos or directly use the URL link. Whatever the case, remember that it's the quality of your video that carries more weight. Thanks to the availability of third-party apps that you can use to create and improve the quality of your videos.
-
-● Filmora is at your service to create high-resolution videos that you can export in any format to your YouTube channel. The tool is intuitive, and it won't matter whether you haven't tried it before. It is a perfect choice for both professionals and first-time users.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Google Slide presentation is a powerful tool for creators to keep their audience engaged. This online platform lets you create and demonstrate your ideas. It will capture your viewers' attention from the very beginning. It also doesn't matter whatever learning style you engage. Adding YouTube videos to Google Slide will appeal to all levels of individuals.
-
-More so, it is the best way to provide a break for both the audience and the creator. You can break Google Slide presentations with videos to offer some break. Viewers and the presenter get a breather in the process. The presenter can take a short break from speaking while the video plays. Let's now dive into **how to embed a YouTube video in Google Slides**.
-
-![add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-#### In this article
-
-01 [Why should we add a video to Google Slides?](#part1)
-
-02 [How to add a YouTube video to Google Slide](#part2)
-
-03 [How to choose the right video for your Slides?](#part3)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Why should we add a video to Google Slides?
-
-There is a great impact of adding video to Google Slides.
-
-#### For attention
-
-Videos will automatically awaken you, especially if your thoughts have started to sway during a presentation. A video has a direct way of showing creativity. The audience automatically connects the dots between the video and the presentation lines alike.
-
-#### To stimulate discussion
-
-A picture is worth a thousand words. There is a way that an added video will help the audience connect to the day's topic. It will bring up several ideas and stir up discussion with the presenter.
-
-#### Easy following
-
-With videos embedded in Google Slide, viewers will find it easy to understand and digest. Videos automatically eliminate boredom and make any topic interesting.
-
-## How to add a YouTube video to Google Slide
-
-Use these two methods to add a YouTube video to Google Slides. Via the Search and Direct link.
-
-#### Method 1\. Embed YouTube video to Google Slide by search and selection
-
-Google has owned YouTube since the year 2006\. You can, therefore, integrate Google's products with YouTube easily.
-
-Step 1\. First, go to the slide where you want to embed your video.
-
-Step 2\. Then choose the "Insert" option from the menu bar and hit the "Video" option.
-
-![how to add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-2.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-Step 3\. It would be best if you now viewed the "YouTube" search bar to type in the video you want to embed. You can use keywords to search for the video in question and view instant search results.
-
-Step 4\. Then select the video you want to embed, and you'll see it appear on the "Slide."
-
-![how to add youtube video to google slides by search and selection](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-3.png)
-
-Step 5\. Format your video. Remember that the entire video will be embedded. You don't necessarily need the whole video. It is time to select just a brief but relevant clip from the video to use. Then position your video to the right point using the axes from the exact starting point to the finished part you want the video to appear in.
-
-#### Method 2\. Embed YouTube video to Google Slide by direct link
-
-You can engage this method if you want to include the entire video.
-
-Step 1\. Get the URL of the specific YouTube video that you want to use.
-
-![how to add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-4.png)
-
-Step 2\. Then go to your browser's "Address bar" to copy the YouTube link.
-
-Step 3\. Next, open the "Presentation" slide to put your video to.
-
-Step 4\. Choose the "Insert" tab from the menu bar.
-
-Step 5\. Then hit on the "Video" option from the drop-down menu that appears.
-
-Step 6\. A new window will open automatically. Choose the "By URL" tab.
-
-Step 7\. Then paste the YouTube video URL in the "Paste YouTube URL Here" bar section.
-
-![add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-5.png)
-
-Step 8\. Wait for the video file to load and press the "Select" option. The video will immediately appear in the presentation slide. Just drag and drop the video in your preferred position.
-
-Note: You can do a few edits inside the application. Set the timer when your video should start and when to stop. You can also adjust the video player size.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## How to choose the right video for your Slides?
-
-Not all videos will make an impact on your Google Slide. You need to use the best shot that adds value to your presentation. These guidelines will help you to settle on the best video.
-
-**Be Professional** – choose the best video for your presentation. Remember that the video is part of the presentation and carries more weight. Settling for quality video will bring out the professionalism in you.
-
-**Relevant** – how do you know that what you are showing your audience corresponds to the presentation piece? Ensure that the video you add has something to do with the Google Slide presentation topic. The two should naturally flow to make it easy to understand the whole concept.
-
-**Precise** – your presentation is not about the video. The ideal length should not exceed 60 seconds. The longer the video, the greater the chance for your audience to lose track along the way.
-
-**Know every footage you are working with** – this will help you pick the best shots for your presentation. So, learn every aspect of the video before settling down to use it.
-
-**Add new content** – even though one content may suit several presentations, don't rely on the same piece each time. Your audience will want to feel something fresh each time you are presenting. So, compose different videos for different scenarios to make that big impact.
-
-## Create an eye-catching video for your Slides with Filmora
-
-The video quality matters when it comes to creating your Slides. The best video creator – Filmora – works in simple steps to give you an eye-catching video. It will create videos for all scenarios like marketing, tutorial, gaming, etc.
-
-#### Key features of Filmora
-
-* It offers you advanced video effects like filters, motion elements, etc
-* You can multiply your fun with multiple screens with the Split Screen feature
-* Easily change backgrounds using the Green Screen feature
-* The speed control lets you fast forward or slow down a special moment
-* Import your video clips to social media platforms
-* You can also adjust the audio of your tracks using the Audio Mixer feature
-
-#### Follow this guide to create a video for your slide with Filmora
-
-Step 1\. Launch Filmora  
-First, begin by downloading and installing Filmora on your computer device. Once installed, launch it and allow it to run. You can either create a new project or open an existing project to work on.
-
-Step 2\. Create a new project  
-Here, click on the "New Project" tab on the app's welcome screen. The editor should load immediately. Then proceed to register the product. Just hit on the "Register" tab.
-
-Step 3\. Import video
-Check the upper left corner of your screen to see the "Import" tab. Click on it and choose the "Import Media Files" option. Next, navigate to the location of your computer's local list to select the clip or video you want to edit. Then, hit the "Import" button to add the video to the timeline for editing.
-
-Step 4\. Edit video  
-Drag and drop the raw footage to Filmora's timeline to begin editing. Here, you can trim, add other video clips, merge, and add effects as you wish. Likewise, you can add opening titles, subtitles, and end credits to your video. More so, this tool offers different templates to use. Just drag and drop the templates you wish to use to a specific location on the timeline.
-
-Step 5\. Preview your file  
-Last but not least, you can preview your files. Click on the "Play" tab to start previewing your video clips. The main essence of this part is to allow you to make the necessary changes to your clips if there is a need.
-
-Step 6\. Export and Share  
-With Filmora, you can export your file to various social media platforms. But first, go to the "Output window" and select the video file format to use. This software supports several output formats to apply to any platform and device. Just click on the "Format" tab and choose the file format to use. Then also change the resolution and other parameters like frame rate and channel of your video in the "Settings" section. Finally, share your video to your YouTube channel and get ready to add the video to the Google Slide presentation.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For Win 7 or later (64-bit)
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-## Conclusion
-
-● You now know **how to put a YouTube video in Google Slides** the simple way. You can search for your YouTube videos or directly use the URL link. Whatever the case, remember that it's the quality of your video that carries more weight. Thanks to the availability of third-party apps that you can use to create and improve the quality of your videos.
-
-● Filmora is at your service to create high-resolution videos that you can export in any format to your YouTube channel. The tool is intuitive, and it won't matter whether you haven't tried it before. It is a perfect choice for both professionals and first-time users.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-Google Slide presentation is a powerful tool for creators to keep their audience engaged. This online platform lets you create and demonstrate your ideas. It will capture your viewers' attention from the very beginning. It also doesn't matter whatever learning style you engage. Adding YouTube videos to Google Slide will appeal to all levels of individuals.
-
-More so, it is the best way to provide a break for both the audience and the creator. You can break Google Slide presentations with videos to offer some break. Viewers and the presenter get a breather in the process. The presenter can take a short break from speaking while the video plays. Let's now dive into **how to embed a YouTube video in Google Slides**.
-
-![add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-1.png)
-
-#### In this article
-
-01 [Why should we add a video to Google Slides?](#part1)
-
-02 [How to add a YouTube video to Google Slide](#part2)
-
-03 [How to choose the right video for your Slides?](#part3)
-
-## Why should we add a video to Google Slides?
-
-There is a great impact of adding video to Google Slides.
-
-#### For attention
-
-Videos will automatically awaken you, especially if your thoughts have started to sway during a presentation. A video has a direct way of showing creativity. The audience automatically connects the dots between the video and the presentation lines alike.
-
-#### To stimulate discussion
-
-A picture is worth a thousand words. There is a way that an added video will help the audience connect to the day's topic. It will bring up several ideas and stir up discussion with the presenter.
-
-#### Easy following
-
-With videos embedded in Google Slide, viewers will find it easy to understand and digest. Videos automatically eliminate boredom and make any topic interesting.
-
-## How to add a YouTube video to Google Slide
-
-Use these two methods to add a YouTube video to Google Slides. Via the Search and Direct link.
-
-#### Method 1\. Embed YouTube video to Google Slide by search and selection
-
-Google has owned YouTube since the year 2006\. You can, therefore, integrate Google's products with YouTube easily.
-
-Step 1\. First, go to the slide where you want to embed your video.
-
-Step 2\. Then choose the "Insert" option from the menu bar and hit the "Video" option.
-
-![how to add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-2.png)
-
-Step 3\. It would be best if you now viewed the "YouTube" search bar to type in the video you want to embed. You can use keywords to search for the video in question and view instant search results.
-
-Step 4\. Then select the video you want to embed, and you'll see it appear on the "Slide."
-
-![how to add youtube video to google slides by search and selection](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-3.png)
-
-Step 5\. Format your video. Remember that the entire video will be embedded. You don't necessarily need the whole video. It is time to select just a brief but relevant clip from the video to use. Then position your video to the right point using the axes from the exact starting point to the finished part you want the video to appear in.
-
-#### Method 2\. Embed YouTube video to Google Slide by direct link
-
-You can engage this method if you want to include the entire video.
-
-Step 1\. Get the URL of the specific YouTube video that you want to use.
-
-![how to add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-4.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2\. Then go to your browser's "Address bar" to copy the YouTube link.
@@ -642,6 +622,10 @@ For Win 7 or later (64-bit)
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.12 or later
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -670,14 +654,21 @@ For macOS 10.12 or later
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unboxing-premium-game-devices-youtube-edition/"><u>[Updated] 2024 Approved Unboxing Premium Game Devices YouTube Edition</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-visionary-graphs-on-upcoming-23-trends/"><u>[Updated] 2024 Approved Visionary Graphs on Upcoming '23 Trends</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-effortless-earnings-channel-size-no-longer-a-challenge-for-2024/"><u>[Updated] Effortless Earnings Channel Size No Longer a Challenge for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-techniques-selecting-audioscapes-for-unveiling-videos/"><u>[Updated] Techniques Selecting Audioscapes for Unveiling Videos</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-advanced-subtitle-editing-unlocking-potential-with-macos/"><u>In 2024, Advanced Subtitle Editing Unlocking Potential with MacOS</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/24-profitable-pixels-monetizing-content-across-platforms/"><u>In 2024, Profitable Pixels Monetizing Content Across Platforms</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-shedding-light-techniques-for-improving-youtube-video-quality/"><u>In 2024, Shedding Light Techniques for Improving YouTube Video Quality</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/uncover-the-best-15-free-web-based-image-editing-tools-of-2023/"><u>Uncover the Best 15 Free Web-Based Image Editing Tools of 2023</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-melodious-modulation-techniques-in-free-fire/"><u>[New] Melodious Modulation Techniques in Free Fire</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-delays-you-can-now-see-your-shorts/"><u>[New] No Delays! You Can Now See Your Shorts</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-sensational-no-cost-visual-collaboration-games/"><u>[New] Sensational No-Cost Visual Collaboration Games</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-decoding-and-practicing-with-creative-commons-licenses/"><u>[Updated] 2024 Approved Decoding and Practicing with Creative Commons Licenses</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-how-to-make-a-youtube-intro-video-2-ways/"><u>[Updated] 2024 Approved How to Make A YouTube Intro Video [2 Ways]</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unlock-higher-engagement-with-proven-video-tagging-methods/"><u>[Updated] 2024 Approved Unlock Higher Engagement with Proven Video Tagging Methods</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-adventure-seekers-choice-black-hero5-or-star-sj7/"><u>[Updated] Adventure Seekers Choice Black Hero5 or Star SJ7?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-dive-into-filmoras-certified-creative-program-for-2024/"><u>[Updated] Dive Into Filmora’s Certified Creative Program for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-from-free-posts-to-fiscal-success-fb-pages-profit-playbook/"><u>[Updated] In 2024, From Free Posts to Fiscal Success FB Pages Profit Playbook</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-monetizing-your-passion-from-youtube-gamer-to-entrepreneur/"><u>[Updated] Monetizing Your Passion From YouTube Gamer to Entrepreneur</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-step-by-step-guide-the-new-and-improved-2024-video-show/"><u>[Updated] Step-by-Step Guide The New & Improved 2024 Video Show</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-vivo-y36i-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Vivo Y36i Activity | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-free-online-services-for-youtube-images-extraction/"><u>In 2024, FREE Online Services for YouTube Images Extraction</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-motorola-edge-2023-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Motorola Edge 2023 Phones</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/izing-video-impact-a-comprehensive-guide-to-youtube-popularity/"><u>Maximizing Video Impact A Comprehensive Guide to YouTube Popularity</u></a></li>
+<li><a href="https://facebook.techidaily.com/technologys-influential-but-controversial-figures/"><u>Technology's Influential but Controversial Figures</u></a></li>
 </ul></div>
 

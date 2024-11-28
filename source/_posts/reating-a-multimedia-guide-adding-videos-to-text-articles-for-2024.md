@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Creating a Multimedia Guide  Adding Videos to Text Articles for 2024\""
-date: 2024-08-28T16:45:04.648Z
-updated: 2024-08-29T16:45:04.648Z
+date: 2024-11-25T17:56:59.414Z
+updated: 2024-11-28T06:50:52.915Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -46,9 +50,17 @@ Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Adding Video to Text in Filmora
 
@@ -56,9 +68,17 @@ Besides presentation software, you can also use video editing software products 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
@@ -88,14 +108,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,8 +121,24 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-effortless-way-to-personalize-your-youtube-channel-url/"><u>[New] 2024 Approved Effortless Way to Personalize Your YouTube Channel Url</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-embark-into-the-best-youtube-vr-content-ever/"><u>[New] 2024 Approved Embark Into the Best YouTube VR Content Ever!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-enchanting-music-visuals-using-the-lyric-video-maker-toolkit/"><u>[New] 2024 Approved Enchanting Music Visuals Using the Lyric Video Maker Toolkit</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-fullscape-synergy-the-smart-mcn-picking-game/"><u>[New] 2024 Approved FullScape Synergy The Smart MCN Picking Game</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-edit-youtube-videos-in-adobe-premiere/"><u>[New] 2024 Approved How to Edit YouTube Videos in Adobe Premiere</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-miniature-marketers-guide-to-video-promos-infographic/"><u>[New] 2024 Approved Miniature Marketer's Guide to Video Promos (Infographic)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-second-stories-explained-well/"><u>[New] 5-Second Stories Explained Well!</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-premium-choice-top-12-apps-with-no-time-limit-feature/"><u>[New] In 2024, Premium Choice Top 12 Apps with No Time Limit Feature</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-prime-color-balancer-suite/"><u>[New] Prime Color Balancer Suite</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-transform-into-an-ultimate-hit-essential-seo-tips-for-youtube-videos/"><u>[New] Transform Into an Ultimate Hit Essential SEO Tips for YouTube Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-facebooks-10-best-music-clips-making-them-happen/"><u>[Updated] In 2024, Facebook's 10 Best Music Clips Making Them Happen</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-melodic-messaging-audio-enhancements-for-status/"><u>[Updated] Melodic Messaging Audio Enhancements for Status</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-step-by-step-audio-fading-in-lumafusion-software/"><u>2024 Approved Step-by-Step Audio Fading in Lumafusion Software</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/conceal-visages-with-confidence-using-these-select-apps-for-2024/"><u>Conceal Visages with Confidence Using These Select Apps for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/overcome-launch-issues-playing-forza-horizon-4-smoothly-in-the-year-2024/"><u>Overcome Launch Issues: Playing Forza Horizon 4 Smoothly in the Year 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-methods-unsettle-youtube-playback-scheme-for-2024/"><u>Rapid Methods Unsettle YouTube Playback Scheme for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/unlock-apple-iphone-xs-with-forgotten-passcode-different-methods-you-can-try-drfone-by-drfone-ios/"><u>Unlock Apple iPhone XS With Forgotten Passcode Different Methods You Can Try | Dr.fone</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

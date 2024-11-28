@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Vloggers' Fears Decoded  Combat Strategies for Everyone\""
-date: 2024-11-14T18:36:09.138Z
-updated: 2024-11-18T17:35:14.128Z
+date: 2024-11-25T18:16:34.001Z
+updated: 2024-11-27T21:57:17.448Z
 tags:
   - ai video
   - ai youtube
@@ -48,16 +48,7 @@ My advice is to start with shorter conversations with your camera in public and 
 As you continue to vlog in public more, you’ll become increasingly comfortable with it.
 
 <!-- affiliate ads begin -->
-<span id="1983545">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. Fear of Being Judged by Others
@@ -66,28 +57,12 @@ After uploading your vlog online, the next thing you might worry about is being 
 
 You just need to be strongly grounded in your intrinsic worth and not take too seriously the judgments of those who don’t even know you. You can adjust your community settings on YouTube so that you have more control over others’ comments. But I suggest you just get used to others’ disapproval because it’s something that comes with putting yourself out there on such a public platform.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3. Fear of Not Being Interesting Enough
 
 A lot of people fear that they aren’t interesting enough to watch. This fear stops many people from vlogging. Some people get around this self-doubt by focusing their content on something other than themselves. But people are so much more interesting than the tools and objects that they test out and review on YouTube. Even if you’re unable to secure the interest of the masses, there are bound to be a handful of people from all around the world who do find you interesting.
 
 <!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4. Fear of Your Lifestyle Not Being Exciting Enough
@@ -97,6 +72,10 @@ When you look at the vlogs of many of the top YouTubers, their lives appear so a
 ### 5. Fear of Losing Your Authenticity
 
 When you have the ability to control what others see, you may be tempted to present yourself and your life in the most likable way to avoid disapproval and rejection. But the further away from your true self that you fabricate your story, the more inauthentic you’ll feel. Embrace disapproval and rejection and understand that, no matter how perfectly you present yourself, you just can’t avoid disapproval and rejection. It’s going to happen no matter what! So you might as well present yourself just as you are.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6. Fear of Your Production Not Being Good Enough
 
@@ -108,6 +87,10 @@ Getting a lot of subscribers is a common end goal for many who go into vlogging.
 
 How can you know for sure that you won’t be wasting your time and effort trying? The truth is… you can’t know for sure. But dismissing all of your time and effort as a waste just because you’re not at the end yet will take away from the joy you could have with vlogging. Rather than focusing on getting big, focus on enjoying the process of vlogging.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 8. Fear of Being Distracted From the Moment
 
 Whether you’re vlogging or not, living in the present moment can already be a challenge with a smartphone. When something exhilarating happens, many of us feel compelled to pull out our phone to capture it, only to experience that fleeting moment through a small preview screen.
@@ -118,18 +101,15 @@ Well, like all hobbies, activities, and passions, vlogging does take time and yo
 
 If, in the end, you realize you don’t enjoy vlogging, then at least you’re left with a documented piece of a memory that you can relive again and again, which can actually help you appreciate your past moments even more.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 9. Fear of Making Others Uncomfortable
 
 Even though you might have learned to enjoy and be comfortable with vlogging, your vlogging might make others uncomfortable. You can still vlog while respecting others’ boundaries by having a conversation first, before you start vlogging, around whether or not they feel comfortable with appearing in your vlog. You can then make sure to exclude those from your vlog who are uncomfortable with appearing in your vlog.
 
 Sometimes, though, as much as you try to exclude certain people from your vlogs, they might still end up in your footage. You might even find out after you’ve captured great footage that people do not want to be in your video. In these cases, you can always censor their faces out in editing.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 10. Fear of Permanently Leaving a Bad Mark
 
@@ -164,24 +144,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-crafting-engaging-live-streamed-gaming-experiences/"><u>[New] 2024 Approved Crafting Engaging Live-Streamed Gaming Experiences</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-the-quintet-at-the-pinnacle-youtube-subscribers/"><u>[New] 2024 Approved The Quintet at the Pinnacle YouTube Subscribers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-essential-insights-into-youtubes-content-policy-framework/"><u>[New] In 2024, Essential Insights Into YouTube's Content Policy Framework</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-streamlining-your-edit-with-jump-cut-tips/"><u>[New] In 2024, Streamlining Your Edit with Jump Cut Tips</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/aking-a-mark-with-effective-youtube-channel-graphics-for-2024/"><u>[New] Making a Mark with Effective YouTube Channel Graphics for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/peedy-methods-for-shuffling-youtube-lists-on-devices/"><u>[New] Speedy Methods for Shuffling YouTube Lists on Devices</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-strategies-to-increase-views-via-thumbnails/"><u>[Updated] 2024 Approved Strategies to Increase Views via Thumbnails</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-affordable-shutterbug-gear-for-dynamic-action-scenes/"><u>[Updated] Affordable Shutterbug Gear for Dynamic Action Scenes</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/descubre-el-secreto-de-uniformizar-ediciones-en-adobe-after-effects-una-guia-completa/"><u>Descubre El Secreto De Uniformizar Ediciones en Adobe After Effects: Una Guía Completa</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/exploring-the-turing-test-future-prospects-for-defeating-ai-challenges/"><u>Exploring the Turing Test - Future Prospects for Defeating AI Challenges</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/audio-treasures-to-amplify-youtube/"><u>Free Audio Treasures to Amplify YouTube!</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-mac-for-apple-iphone-xs-max-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock on Mac For Apple iPhone XS Max?</u></a></li>
-<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-motorola-moto-g24-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Motorola Moto G24 | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-new-multiple-ways-how-to-remove-icloud-activation-lock-on-your-apple-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, New Multiple Ways How To Remove iCloud Activation Lock On your Apple iPhone 14 Pro Max</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/navigating-urban-jungles-with-gotrax-gxl-v2-electric-scooter-an-insightful-overview/"><u>Navigating Urban Jungles with Gotrax GXL V2 Electric Scooter - An Insightful Overview</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/step-by-step-instructions-for-pairing-a-samsung-soundbar-to-your-set-top-box-or-tv/"><u>Step-by-Step Instructions for Pairing a Samsung Soundbar to Your Set-Top Box or TV</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/egies-for-overcoming-black-screen-errors-during-youtube-viewing-for-2024/"><u>Strategies for Overcoming Black Screen Errors During YouTube Viewing for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-guide-resolving-aoc-monitor-connection-issues-with-windows-10/"><u>Troubleshooting Guide: Resolving AOC Monitor Connection Issues with Windows 10</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unlocking-smart-home-management-with-chatgpt/"><u>Unlocking Smart Home Management with ChatGPT</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-numbers-in-focus-yearly-yt-trends-and-trivia-2017/"><u>[New] In 2024, Numbers in Focus! Yearly YT Trends & Trivia (2017)</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-discovering-success-through-the-most-effective-15-youtube-themes/"><u>[Updated] 2024 Approved Discovering Success Through the Most Effective 15 YouTube Themes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-step-by-step-guide-to-producing-quality-mobile-videos-for-2024/"><u>[Updated] Step-by-Step Guide to Producing Quality Mobile Videos for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/1-ultimate-guide-to-purchasing-your-dream-playstation-5-tips-and-tricks-from-zdnet/"><u>1. Ultimate Guide to Purchasing Your Dream PlayStation 5: Tips and Tricks From ZDNet</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-from-zero-to-hero-youtube-tech-required/"><u>2024 Approved From Zero to Hero YouTube Tech Required</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-finest-line-mice-your-complete-guide-to-choosing-the-best-one/"><u>2024'S Finest Line Mice: Your Complete Guide to Choosing the Best One</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/inners-guide-to-elevating-auditory-experiences-on-youtube/"><u>A Beginner's Guide to Elevating Auditory Experiences on YouTube</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-infinix-smart-7-hd-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Infinix Smart 7 HD FRP Locks</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-orbitmaster-high-definition-full-touch-desktops/"><u>In 2024, OrbitMaster High Definition Full Touch Desktops</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-the-ultimate-tweeting-of-tiktok-phenomena/"><u>In 2024, The Ultimate Tweeting of TikTok Phenomena</u></a></li>
+<li><a href="https://win-answers.techidaily.com/overcoming-technical-glitches-in-star-wars-jedi-fallen-order-installation/"><u>Overcoming Technical Glitches in Star Wars Jedi: Fallen Order Installation</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/secure-your-preference-with-these-9-leading-websites-offering-3d-typography-for-2024/"><u>Secure Your Preference With These 9 Leading Websites Offering 3D Typography for 2024</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-files-back-from-infinix-note-30-vip-by-fonelab-android-recover-data/"><u>Simple ways to get lost files back from Infinix Note 30 VIP</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Mastering Animations & Crafting Custom Visual Impact for 2024"
-date: 2024-11-11T19:21:10.957Z
-updated: 2024-11-18T19:09:03.206Z
+date: 2024-11-21T06:05:31.483Z
+updated: 2024-11-27T17:27:01.980Z
 tags:
   - ai video
   - ai youtube
@@ -51,15 +51,16 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -69,10 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -80,10 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -93,10 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -120,22 +112,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-files.techidaily.com/new-beyond-the-dance-understanding-copyright-pre-upload-for-2024/"><u>[New] Beyond the Dance Understanding Copyright Pre-Upload for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/reating-high-impact-yt-cover-images/"><u>[New] Creating High-Impact YT Cover Images</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ewly-eligible-users-see-revenue-uplift-for-2024/"><u>[New] Newly Eligible Users See Revenue Uplift for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-the-fundamentals-of-crafting-high-quality-videos-for-instagram-audiences-for-2024/"><u>[New] The Fundamentals of Crafting High-Quality Videos for Instagram Audiences for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-valorant-screenshots-transformed-by-rapid-skilled-designers/"><u>[Updated] 2024 Approved Valorant Screenshots Transformed by Rapid, Skilled Designers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-how-to-remove-background-noise-from-your-youtube-video-for-2024/"><u>[Updated] How To Remove Background Noise From Your YouTube Video for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-boost-engagement-with-creative-video-titling-and-tagging-techniques/"><u>[Updated] In 2024, Boost Engagement with Creative Video Titling and Tagging Techniques</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-gameplay-with-best-gadgets/"><u>[Updated] In 2024, Mastering Gameplay with Best Gadgets</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-scaling-up-a-creators-guide-to-major-content-partnerships/"><u>[Updated] In 2024, Scaling Up A Creator's Guide to Major Content Partnerships</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-pinnacle-20-anime-songs-to-start-with/"><u>2024 Approved Pinnacle 20 Anime Songs to Start With</u></a></li>
-<li><a href="https://app-tips.techidaily.com/enhance-security-while-watching-the-hidden-dangers-of-weak-passwords-in-streaming-platforms-cyberwatchers-blog/"><u>Enhance Security While Watching: The Hidden Dangers of Weak Passwords in Streaming Platforms | CyberWatchers Blog</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-the-angle-alchemists-guide-to-transforming-your-videos-youtube-edition/"><u>In 2024, The Angle Alchemist's Guide to Transforming Your Videos (YouTube Edition)</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/obs-guide-seamless-youtube-and-twitch-streaming/"><u>OBS Guide Seamless YouTube and Twitch Streaming</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/pioneering-digital-music-management-win-media-and-cds/"><u>Pioneering Digital Music Management Win, Media and Cds</u></a></li>
-<li><a href="https://win11.techidaily.com/tackling-windows-error-sevenzeronine/"><u>Tackling Windows Error SevenZeroNine</u></a></li>
-<li><a href="https://video-capture.techidaily.com/troubleshooting-common-issues-fixing-onlinevideoconvertercom-when-its-down/"><u>Troubleshooting Common Issues: Fixing OnlineVideoConverter.com When It's Down</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/understanding-ai-chatbot-content-moderation-impacts-on-users/"><u>Understanding AI Chatbot Content Moderation: Impacts on Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/reating-a-viral-traction-with-6-strategic-steps-in-youtube-marketing/"><u>[New] Creating a Viral Traction with 6 Strategic Steps in YouTube Marketing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/alt-youtube-suggested-content-now/"><u>[New] Halt YouTube Suggested Content Now</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-highlighting-twitvideos-twitters-viral-video-trends/"><u>[New] Highlighting TwitVideos Twitter's Viral Video Trends</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-from-zero-to-hero-youtube-setup-growth-and-profit-strategies/"><u>[New] In 2024, From Zero to Hero YouTube Setup, Growth & Profit Strategies</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-instagram-quick-step-elevate-through-video-and-like-gameplay-for-2024/"><u>[New] Instagram Quick-Step Elevate Through Video & Like Gameplay for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ecuring-youtube-tracks-at-no-cost-with-security-in-mind-for-2024/"><u>[New] Securing Youtube Tracks at No Cost, with Security in Mind for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-times-illusion-crafting-engaging-slow-motion-videos-on-ig/"><u>[Updated] 2024 Approved Time's Illusion Crafting Engaging Slow-Motion Videos on IG</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-top-12-free-youtube-thumbnail-makers-filmora/"><u>[Updated] 2024 Approved Top 12 Free YouTube Thumbnail Makers - Filmora</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-funimate-pro-activation-guide-for-android-users/"><u>[Updated] Funimate Pro Activation Guide for Android Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-busting-the-top-10-vloggers-fears-strategies-for-success/"><u>[Updated] In 2024, Busting the Top 10 Vloggers' Fears Strategies for Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mastery-in-managing-online-discussions-on-youtube/"><u>[Updated] Mastery in Managing Online Discussions on YouTube</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/best-methods-to-try-for-changing-playback-speed-in-spotify/"><u>Best Methods to Try for Changing Playback Speed in Spotify</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ssing-the-potential-of-youtube-shorts-advertising/"><u>Harnessing the Potential of YouTube Shorts Advertising</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-xiaomi-redmi-note-13-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Xiaomi Redmi Note 13 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/secure-and-speed-up-your-connection-acers-bluetooth-driver-download-for-immediate-use/"><u>Secure & Speed Up Your Connection: Acer's Bluetooth Driver Download for Immediate Use</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/sim-unlock-infinix-zero-5g-2023-turbo-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Infinix Zero 5G 2023 Turbo Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://article-tips.techidaily.com/ultimate-action-vision-top-7-4k-camera-selections-for-2024/"><u>Ultimate Action Vision Top 7 4K Camera Selections for 2024</u></a></li>
 </ul></div>
 

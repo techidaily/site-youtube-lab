@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Crafting a Non-Ad Revenue Stream on YouTube  The Self-Sustaining Creator’s Tale\""
-date: 2024-09-02T08:00:47.148Z
-updated: 2024-09-03T08:00:47.148Z
+date: 2024-11-20T18:51:26.006Z
+updated: 2024-11-27T20:15:16.540Z
 tags:
   - ai video
   - ai youtube
@@ -41,9 +41,9 @@ Over thousands of hours of content are uploaded on YouTube every day and people 
 [YPP enables YouTubers to make money from an advertisement](https://www.filmora.io/community-blog/youtube-monetization---the-ultimate-guide-to-ad-revenue-422.html)that appears before or during their videos.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **How Much Money Can YouTubers Make from Ads?**
 
 The answer to this question varies depending on the channel and the audience, as YouTubers don’t make money for views but rather from how often people engage with the ads. If a viewer watches more than 30 seconds of the ad or clicks it, then the YouTuber will make money.
@@ -59,8 +59,9 @@ This is a general estimate of how much a YouTuber can make from ads once they qu
 \- 1000 video views will equal between $2-$5
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Why It’s So Hard for YouTubers to Make Money From Ads**
 
 For new YouTubers, it is getting harder and harder to get to that point where their sole income can be from YouTube ads. Before they can make a penny, they must first qualify.
@@ -76,17 +77,9 @@ For new YouTubers, it is getting harder and harder to get to that point where th
 That is why it is essential to have alternative ways to make money on YouTube, and not rely on the ads shown on your videos. So, without further ado, here are 4 other ways to make money on YouTube:
 
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **1\. Sell Your Product or Service:**
 
 YouTube is one of the most effective means of marketing and selling your products and services if you are able to use it effectively and drive people to click and buy.
@@ -136,8 +129,9 @@ If you are selling a meditation eBook and guided meditation services, type in so
 ![meditation](https://images.wondershare.com/filmora/article-images/meditation3.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 From there, take your possible keywords and put them into a tool such as [Ubersuggest](https://neilpatel.com/ubersuggest/)to find other related keywords. This will help you create discoverable content that will catch the interest of those who will buy what you are selling.
 
  **2\. Your content must have value:** You cannot start with the Call to Action or try selling to your audience right away. You must first build trust and prove that what you are selling has value.
@@ -154,9 +148,6 @@ The video is over 9 minutes long and not once does he tell his audience to buy a
 
 ![link in the description box](https://images.wondershare.com/filmora/article-images/link-in-description-box4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 **The YouTube Card:**
 
 ![youtube card tutorial](https://images.wondershare.com/filmora/article-images/youtube-card-tutorial5.jpg)
@@ -164,8 +155,9 @@ The video is over 9 minutes long and not once does he tell his audience to buy a
 ![youtube card details](https://images.wondershare.com/filmora/article-images/youtube-card-details6.jpg)
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 You can add one or multiple cards to direct viewers to your website or to another related video.
 
  **Call to action button:**
@@ -235,8 +227,9 @@ Here is the list of 4 popular affiliate marketing networks:
 You can also partner with brands directly as many of them, such as [Sephora](https://www.sephora.com/affiliates)and [Canon](https://shop.usa.canon.com/shop/en/catalog/affiliate-program), will have their own affiliate program.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **3\. Brand Deal or Sponsorships:**
 
 Selling out, that is often the thought when we hear creators getting brand deals and sponsorships, but that stigma is unfounded if the brand and the content are properly aligned. As your channel grows, you will begin to recognize brands that match your values — and the values of your viewers — and those that don’t.
@@ -274,6 +267,10 @@ Steps to getting a brand deal:
 
 ##  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **4\. Crowdfunding:**
 
 If you are creating valuable content and have a loyal following, you can start thinking about crowdfunding. It doesn’t take stardom to start asking for donations, pledge, or support from your fans. There is a demand for quality content and if you are creating something of value, even on a free service like YouTube, people will happily pay to support it.
@@ -308,10 +305,6 @@ If you have a pie in the sky goal, you aren’t going to fully leverage the mess
 
 When it comes to crowdfunding for YouTubers, [Patreon](https://www.patreon.com/)is the platform of choice. While other platforms such as Kickstarter or GoFundMe are focused on entrepreneurial pursuits, large projects, or charitable causes, Patreon is designed to support creatives and reward and incentivize donors.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## **Key Takeaways:**
 
 There are many ways to make money off of YouTube, I encourage you to try a few of these different strategies and see how they perform and which one suits your channel and your audience the best.
@@ -325,28 +318,17 @@ Got questions about making money on YouTube? Leave a comment below. We love to h
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -355,4 +337,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-blueprint-composing-a-hit-mukbang-video/"><u>[New] In 2024, The Blueprint Composing a Hit Mukbang Video</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-youtube-live-thumbnails-essentials/"><u>[New] Mastering YouTube Live Thumbnails Essentials</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-advanced-techniques-for-high-quality-youtube-content/"><u>[Updated] 2024 Approved Advanced Techniques for High-Quality YouTube Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-a-step-by-step-guide-on-applying-cc-rights-effectively/"><u>2024 Approved A Step-by-Step Guide on Applying CC Rights Effectively</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-advanced-guide-to-clear-cut-and-ship-video/"><u>2024 Approved Advanced Guide to Clear, Cut, and Ship Video</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-channel-transformation-from-zero-to-thousand-followers/"><u>2024 Approved Channel Transformation From Zero to Thousand Followers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/p-dive-into-youtube-writers-workshop-space/"><u>A Deep Dive Into YouTube’ Writers' Workshop Space</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ners-guide-to-crafting-trendy-mac-video-content-for-2024/"><u>Beginner's Guide to Crafting Trendy Mac Video Content for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/discover-the-ace-of-virtual-worlds-top-oculus-headsets/"><u>Discover the Ace of Virtual Worlds Top Oculus Headsets</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-link-your-airpods-to-your-nintendo-switch-a-comprehensive-guide/"><u>How to Link Your AirPods to Your Nintendo Switch – A Comprehensive Guide</u></a></li>
+<li><a href="https://fox-info.techidaily.com/inside-out-the-nikon-d7500-experience/"><u>Inside Out The Nikon D7500 Experience</u></a></li>
+<li><a href="https://common-error.techidaily.com/navigating-through-windows-11-update-blockages-to-system-improvement/"><u>Navigating Through Windows 11 Update Blockages to System Improvement</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/tweeted-to-fame-identifying-2023s-most-shared-content-for-2024/"><u>Tweeted to Fame Identifying 2023'S Most Shared Content for 2024</u></a></li>
+</ul></div>
 

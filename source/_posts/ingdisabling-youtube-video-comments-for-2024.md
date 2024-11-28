@@ -1,7 +1,7 @@
 ---
 title: "Enabling/Disabling YouTube Video Comments for 2024"
-date: 2024-09-02T07:57:25.376Z
-updated: 2024-09-03T07:57:25.376Z
+date: 2024-11-23T23:35:15.633Z
+updated: 2024-11-27T20:36:37.438Z
 tags:
   - ai video
   - ai youtube
@@ -29,6 +29,10 @@ YouTube comments are enabled by default, and if they aren’t, learning **how to
 As a brand, it is imperative to thoroughly read all the comments that your YouTube videos receive. This not only helps you do sentimental analysis; it also enables you to understand what the viewers expect from you, and where should you focus more while recording and editing your footage.
 
 Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
@@ -58,6 +62,10 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
@@ -69,6 +77,10 @@ Click the **Settings** icon from the bottom of the left pane one more time. On t
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **Additional Info about Comments Options**
 
@@ -110,11 +122,12 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
-<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -132,8 +145,9 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -148,32 +162,17 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -182,4 +181,24 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-innovative-approaches-to-youtube-teaser-trailblazing/"><u>[New] In 2024, Innovative Approaches to YouTube Teaser Trailblazing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-naming-rules-and-guidelines-how-to-ensure-originality-in-streaming/"><u>[New] In 2024, Naming Rules and Guidelines How to Ensure Originality in Streaming</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-visualcut-pro/"><u>[New] In 2024, VisualCut Pro</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/uickframe-editor/"><u>[New] QuickFrame Editor</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/our-first-step-to-successful-streaming-for-2024/"><u>[New] Your First Step to Successful Streaming for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-mastery-in-youtube-ads-thumbnails-and-banners/"><u>[Updated] Mastery in YouTube Ads Thumbnails & Banners</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-maximizing-engagement-with-youtube-shorts-content/"><u>[Updated] Maximizing Engagement with YouTube Shorts Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-navigating-the-digital-realm-uploading-with-premiere-and-youtube/"><u>[Updated] Navigating the Digital Realm Uploading with Premiere & YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-channel-transformation-from-zero-to-thousand-followers/"><u>2024 Approved Channel Transformation From Zero to Thousand Followers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ners-guide-to-crafting-trendy-mac-video-content-for-2024/"><u>Beginner's Guide to Crafting Trendy Mac Video Content for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-oppo-a1-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Oppo A1 5G Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-realme-gt-neo-5-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Realme GT Neo 5 Phones? | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-nikon-j5-in-4k-the-ultimate-camera-review/"><u>In 2024, Nikon J5 in 4K The Ultimate Camera Review</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-sound-capture-module-for-iphone-24-year/"><u>In 2024, Sound Capture Module for iPhone '24 Year</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/tech-literacy-in-the-workplace-secure-high-quality-roles-beyond-coding-skills-forbes/"><u>Tech Literacy in the Workplace: Secure High-Quality Roles Beyond Coding Skills | Forbes</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unveiling-the-secrets-of-claude-3-exploring-its-features-and-capabilities/"><u>Unveiling the Secrets of Claude 3: Exploring Its Features and Capabilities</u></a></li>
+</ul></div>
 

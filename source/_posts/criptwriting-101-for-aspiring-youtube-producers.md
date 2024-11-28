@@ -1,7 +1,7 @@
 ---
 title: "[New] Scriptwriting 101 for Aspiring YouTube Producers"
-date: 2024-11-17T18:18:27.256Z
-updated: 2024-11-18T16:47:58.012Z
+date: 2024-11-27T02:29:58.905Z
+updated: 2024-11-28T07:24:51.062Z
 tags:
   - ai video
   - ai youtube
@@ -40,53 +40,37 @@ You have a great idea for a video, but you’re just not sure how to express it 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Before You Write Your YouTube Script
 
 Here are some things to do before you start writing your script for YouTube:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Set the tone
 
@@ -118,6 +102,10 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
@@ -131,6 +119,10 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -153,16 +145,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-10-common-vlogging-fears-and-how-to-beat-them/"><u>[New] 2024 Approved 10 Common Vlogging Fears and How To Beat Them</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-channel-marketing-making-a-trailer-that-sells-more/"><u>[New] 2024 Approved Channel Marketing Making a Trailer that Sells More</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-perfecting-your-images-lightrooms-favorite-luts/"><u>[New] Perfecting Your Images LightRoom's Favorite LUTs</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-exploring-the-mechanisms-of-noteworthy-youtube-discussions/"><u>[Updated] In 2024, Exploring the Mechanisms of Noteworthy YouTube Discussions</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/2024-approved-budget-planning-for-music-video-production/"><u>2024 Approved Budget Planning for Music Video Production</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-ultimate-meme-list-social-media-giants-clash/"><u>2024 Approved The Ultimate Meme List Social Media Giants Clash</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-vibes-current-hits-to-match-your-yt-short-tunes/"><u>Chill Vibes Current Hits to Match Your YT Short Tunes</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/easy-guide-how-to-install-the-latest-version-of-epson-ds-510-on-windows/"><u>Easy Guide: How to Install the Latest Version of Epson DS-510 on Windows</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-cloud-mastery-the-best-of-unlimited-space/"><u>In 2024, Cloud Mastery The Best of Unlimited Space</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-in-2024-fcp-top-5-editing-tricks-to-stay-ahead-of-the-curve/"><u>New In 2024, FCP Top 5 Editing Tricks to Stay Ahead of the Curve</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-audience-expansion-without-breaking-the-bank-for-2024/"><u>Rapid Audience Expansion Without Breaking the Bank for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-review-youtube-app-for-iphone-and-android/"><u>[New] 2024 Approved Review YouTube App for iPhone and Android</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-snippet-filmmaker-pro/"><u>[New] 2024 Approved Snippet Filmmaker Pro</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-monetary-scope-of-mr-beasts-ventures/"><u>[New] 2024 Approved The Monetary Scope of Mr. Beast’s Ventures</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-top-15-youtube-recording-software-for-gamers/"><u>[New] 2024 Approved Top 15 YouTube Recording Software for Gamers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-transformative-beauty-tutorials-for-everyone/"><u>[New] 2024 Approved Transformative Beauty Tutorials for Everyone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unveiling-income-insights-a-triple-step-technique-for-tracking-youtube-revenue/"><u>[New] 2024 Approved Unveiling Income Insights A Triple Step Technique for Tracking YouTube Revenue</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-valorant-image-magic-quick-professionally-crafted-portraits/"><u>[New] 2024 Approved Valorant Image Magic Quick, Professionally Crafted Portraits</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-yield-your-content-mastering-youtube-ads-for-earnings/"><u>[New] 2024 Approved Yield Your Content Mastering YouTube Ads for Earnings</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-how-to-use-luts-from-color-grading-central-to-color-grading-for-movies/"><u>[New] How to Use Luts From Color Grading Central to Color Grading for Movies</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-dissecting-the-importance-of-using-itop-for-capture/"><u>[Updated] 2024 Approved Dissecting the Importance of Using ITop for Capture</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-detailed-survey-gecatas-game-capture-utility-for-2024/"><u>[Updated] Detailed Survey Gecata's Game Capture Utility for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-from-newcomer-to-notable-nominee-nudging-numbers-naturally-for-2024/"><u>[Updated] From Newcomer to Notable Nominee Nudging Numbers Naturally for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/3-ways-to-erase-iphone-x-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>3 Ways to Erase iPhone X When Its Locked Within Seconds | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/dvd-mpeg/"><u>最優秀のDVD MPEG変換ソフトウェアレコメンド！無料で試せる方法。</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-oneplus-12-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change OnePlus 12 IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-motorola-moto-g14s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>In 2024, Unlock Your Motorola Moto G14s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/unveiling-the-secrets-of-combining-obs-with-zoom/"><u>Unveiling the Secrets of Combining OBS with Zoom</u></a></li>
 </ul></div>
 

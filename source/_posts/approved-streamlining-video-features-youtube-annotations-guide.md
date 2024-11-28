@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Streamlining Video Features  YouTube Annotations Guide\""
-date: 2024-11-11T16:54:58.235Z
-updated: 2024-11-18T19:43:00.160Z
+date: 2024-11-23T09:06:56.373Z
+updated: 2024-11-28T03:01:18.962Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -58,10 +62,18 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -73,10 +85,7 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -89,24 +98,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -147,16 +142,7 @@ No matter what kind of annotations you are using, you should never use more than
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977004">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -180,16 +166,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-easily-download-your-favorites-handpicked-tools-reviewed/"><u>[New] 2024 Approved Easily Download Your Favorites Handpicked Tools Reviewed</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-top-choices-best-livestream-equip-and-tech-for-youtubers/"><u>[New] 2024 Approved Top Choices Best Livestream Equip & Tech for Youtubers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ltra-brief-on-achieving-clear-background-effects-for-2024/"><u>[New] Ultra-Brief on Achieving Clear Background Effects for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-channels-get-free-visuals-now/"><u>Design Channels - Get Free Visuals Now</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-honor-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Honor ?</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-beginning-a-blogging-journey-profit-from-your-passion/"><u>In 2024, Beginning a Blogging Journey Profit From Your Passion</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Vivo V29 Pro | Dr.fone</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211234323--in-love-and-trust/"><u>In Love and Trust | Free Book</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/pioneers-in-the-realm-of-multimedia-synergy-for-2024/"><u>Pioneers in the Realm of Multimedia Synergy for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-honor-90-lite-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Honor 90 Lite Screen | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/smooth-gaming-experience-achieved-dealing-with-total-war-warhammer-ii-stability-issues-successfully/"><u>Smooth Gaming Experience Achieved: Dealing with TOTAL WAR: Warhammer II Stability Issues Successfully</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-xbox-screen-recording-uncovered-a-step-by-step-manual-for-2024/"><u>[New] Xbox Screen Recording Uncovered A Step-by-Step Manual for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-mastering-the-art-of-vlogging-your-ultimate-journey-begins-here/"><u>[Updated] 2024 Approved Mastering The Art of Vlogging Your Ultimate Journey Begins Here</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-can-youtube-sub4sub-really-enhance-viewing-experience/"><u>[Updated] In 2024, Can YouTube Sub4Sub Really Enhance Viewing Experience?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-maximize-earnings-navigating-youtubes-partner-program-updates/"><u>[Updated] In 2024, Maximize Earnings Navigating YouTube's Partner Program Updates</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-instantly-purging-unwanted-youtube-comments-made-simple/"><u>[Updated] Instantly Purging Unwanted YouTube Comments Made Simple</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-zooming-in-with-confidence-a-kinemaster-cinematographers-handbook-for-2024/"><u>[Updated] Zooming in with Confidence A Kinemaster Cinematographer's Handbook for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-earning-more-utilizing-youtubes-income-tools-on-all-devices/"><u>2024 Approved Earning More Utilizing YouTube's Income Tools on All Devices</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-expertise-in-action-mastering-iphone-silhouette-art/"><u>2024 Approved Expertise in Action Mastering iPhone Silhouette Art</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/digital-canvas-on-iphone-learn-the-art-of-cropping/"><u>Digital Canvas on iPhone Learn the Art of Cropping</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-gain-more-loyal-viewers-unlock-top-strategies-for-enhancing-viewer-retention-on-youtube/"><u>In 2024, Gain More Loyal Viewers Unlock Top Strategies for Enhancing Viewer Retention on YouTube</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-removing-device-from-apple-id-for-your-iphone-xs-by-drfone-ios/"><u>In 2024, Removing Device From Apple ID For your iPhone XS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-striking-visuals-a-deep-dive-into-optimal-youtube-thumbnail-sizes/"><u>In 2024, Striking Visuals A Deep Dive Into Optimal YouTube Thumbnail Sizes</u></a></li>
+<li><a href="https://driver-error.techidaily.com/resolve-ethernet-connection-problems-on-windows-10-quickly-and-effectively/"><u>Resolve Ethernet Connection Problems on Windows 10 Quickly and Effectively</u></a></li>
+<li><a href="https://app-tips.techidaily.com/team-wide-security-at-just-1995month-discover-how-1password-transforms-password-management-tech-insights/"><u>Team-Wide Security at Just $19.95/Month: Discover How 1Password Transforms Password Management | Tech Insights</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/iques-for-embedding-youtube-in-slides-on-google-slate-for-2024/"><u>Techniques for Embedding YouTube in Slides on Google Slate for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-evolution-of-smartwatches-a-samsung-galaxy-watch-active-2-review-with-improved-functionality-and-intelligence/"><u>The Evolution of Smartwatches: A Samsung Galaxy Watch Active 2 Review with Improved Functionality and Intelligence</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/ultimate-guide-how-to-effortlessly-sync-music-between-pc-and-iphone-models-xr-xs-and-xs-max/"><u>Ultimate Guide: How To Effortlessly Sync Music Between PC and iPhone Models XR, XS & XS Max</u></a></li>
 </ul></div>
 

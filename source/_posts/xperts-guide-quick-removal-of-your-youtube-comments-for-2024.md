@@ -1,7 +1,7 @@
 ---
 title: "\"The Expert's Guide  Quick Removal of Your Youtube Comments for 2024\""
-date: 2024-11-17T17:02:19.496Z
-updated: 2024-11-18T20:03:24.222Z
+date: 2024-11-24T08:54:27.006Z
+updated: 2024-11-27T21:13:13.231Z
 tags:
   - ai video
   - ai youtube
@@ -52,13 +52,6 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -68,13 +61,6 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 3. Select the video from where you want to delete a comment. Scroll down to reach the desired comment.
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
 
@@ -89,10 +75,7 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
@@ -108,6 +91,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -129,6 +116,10 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -142,18 +133,19 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Final Thoughts
 
@@ -182,18 +174,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-elevate-your-vids-top-youtube-seo-gadgets/"><u>[New] 2024 Approved Elevate Your Vids Top YouTube SEO Gadgets</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-blueprints-for-breaking-ground-in-edu-video-production-on-youtube-channels/"><u>[New] In 2024, Blueprints for Breaking Ground in Edu-Video Production on YouTube Channels</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-full-features-explored-logitechs-professional-4k-cam-for-2024/"><u>[Updated] Full Features Explored Logitech’s Professional 4K Cam for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-visionalign-studio/"><u>[Updated] VisionAlign Studio</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-aces-top-10-list-choosing-superior-capture-cards/"><u>2024 Approved Ace's Top 10 List Choosing Superior Capture Cards</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-culinary-callings-30-unique-show-title-suggestions/"><u>2024 Approved Culinary Callings 30 Unique Show Title Suggestions</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-elite-suites-3d-modeling-and-animation-synergy/"><u>2024 Approved Elite Suites 3D Modeling & Animation Synergy</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-igtv-deactivation-methods/"><u>In 2024, IGTV Deactivation Methods</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-master-the-motion-personalized-animation-techniques/"><u>In 2024, Master the Motion Personalized Animation Techniques</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-optimize-your-content-searchability-with-these-7-top-tier-youtube-tags-extractor-tools/"><u>In 2024, Optimize Your Content Searchability with These 7 Top-Tier Youtube Tags Extractor Tools</u></a></li>
-<li><a href="https://extra-support.techidaily.com/navigating-adobe-clouds-storage-explained-simply-with-comparisons-for-2024/"><u>Navigating Adobe Cloud's Storage, Explained Simply with Comparisons for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/perfect-presentations-with-a-personal-touch-adding-audio-for-2024/"><u>Perfect Presentations with a Personal Touch Adding Audio for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/troubleshooting-and-resolving-inpage-fault-issues-in-the-kernel/"><u>Troubleshooting and Resolving Inpage Fault Issues in the Kernel</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-unveiling-profits-how-much-do-creators-earn-from-each-ad/"><u>[New] In 2024, Unveiling Profits How Much Do Creators Earn From Each Ad?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/iming-and-regularity-key-factors-influencing-youtube-traffic-for-2024/"><u>[New] Timing and Regularity Key Factors Influencing YouTube Traffic for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-creating-synergy-how-youtube-aligns-with-brands-for-2024/"><u>[Updated] Creating Synergy How YouTube Aligns with Brands for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-smartphone-guide-crafting-engaging-video-content/"><u>[Updated] In 2024, Smartphone Guide Crafting Engaging Video Content</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-zooming-in-a-step-by-step-guide-to-perfect-screenshare/"><u>[Updated] In 2024, Zooming In A Step-by-Step Guide to Perfect Screenshare</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-total-data-consumption-days-long-movie/"><u>[Updated] Total Data Consumption Day's Long Movie</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-understanding-youtube-lives-image-language/"><u>2024 Approved Understanding YouTube Live's Image Language</u></a></li>
+<li><a href="https://fox-that.techidaily.com/essential-troubleshooting-steps-for-silent-iphones-receiving-calls/"><u>Essential Troubleshooting Steps for Silent iPhones Receiving Calls</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-locate-and-access-your-obs-recording-files-a-comprehensive-guide/"><u>How to Locate and Access Your OBS Recording Files: A Comprehensive Guide</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-7-top-ways-to-resolve-apple-id-not-active-issue-for-apple-iphone-7-plus-by-drfone-ios/"><u>In 2024, 7 Top Ways To Resolve Apple ID Not Active Issue For Apple iPhone 7 Plus</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-iphone-is-disabled-here-is-the-way-to-unlock-disabled-apple-iphone-6-plus-drfone-by-drfone-ios/"><u>In 2024, iPhone Is Disabled? Here Is The Way To Unlock Disabled Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ct-shots-start-with-the-right-camera-and-lens-selection-for-2024/"><u>Perfect Shots Start With The Right Camera & Lens Selection for 2024</u></a></li>
 </ul></div>
 

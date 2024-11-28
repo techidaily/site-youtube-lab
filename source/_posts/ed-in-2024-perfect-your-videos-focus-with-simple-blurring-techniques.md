@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Perfect Your Video's Focus with Simple Blurring Techniques"
-date: 2024-09-02T07:57:04.391Z
-updated: 2024-09-03T07:57:04.391Z
+date: 2024-11-24T04:28:29.763Z
+updated: 2024-11-27T23:19:34.251Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Even if your set is clean, there could be things like books behind you, which wi
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Blur Background of Your YouTube Video in Shooting Videos
 
 Blurring your background is also how you create a beautiful bokeh lighting effect. Bokeh is when you blur lights in the background of your shot, creating halo-like circles of light. By attaching a filter with a shape cut out to the camera lens, you can even generate bokeh lights in other shapes, like hearts or stars.
@@ -60,11 +64,19 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Add Bokeh Filter to Video in Filmora
 
@@ -74,14 +86,12 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
 
 Filmora features two tilt effects, tilt-shift circle and tilt-shift linear, which allows you to highlight people in the video, blur, and conceal the video background.
@@ -90,42 +100,31 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,4 +133,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/void-the-quake-optimal-tripod-placement-for-stellar-vlogs/"><u>[New] Avoid the Quake Optimal Tripod Placement for Stellar Vlogs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-top-5-free-youtube-video-editor-apps-for-apple-users/"><u>[New] In 2024, Top 5 Free YouTube Video Editor Apps for Apple Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/onetization-mastery-elevating-your-youtube-earning-strategy/"><u>[New] Monetization Mastery Elevating Your YouTube Earning Strategy</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-efficiently-convert-iphone-photos-jpg-png-into-pdf-format/"><u>[Updated] 2024 Approved Efficiently Convert iPhone Photos (JPG, PNG) Into PDF Format</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-top-10-audio-amplifiers-windows-mac-android-and-ios/"><u>[Updated] 2024 Approved Top 10 Audio Amplifiers Windows, Mac, Android & iOS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-easy-replay-on-iphone-set-videos-cycling/"><u>[Updated] In 2024, Easy Replay on iPhone Set Videos Cycling</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-innovative-techniques-for-captivating-fb-video-content/"><u>[Updated] In 2024, Innovative Techniques for Captivating FB Video Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-jest-jamboree-the-most-entertaining-youtubers-to-watch/"><u>2024 Approved Jest Jamboree The Most Entertaining YouTubers to Watch</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-lightning-methods-ios-media-on-windows/"><u>2024 Approved Lightning Methods IOS Media on Windows</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/experience-enhanced-charging-efficiency-with-ugreen-nexode-pro-1email-protected-4-port-gan-wall-charger-in-depth-analysis-and-insights/"><u>Experience Enhanced Charging Efficiency with Ugreen Nexode Pro 1([Email Protected]) 4-Port GaN Wall Charger - In-Depth Analysis and Insights</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/get-ready-for-the-game-changing-user-friendly-idiot-proof-thermal-paste-tool-from-x-apply-coming-your-way/"><u>Get Ready for the Game-Changing, User-Friendly 'Idiot-Proof' Thermal Paste Tool From X-Apply - Coming Your Way!</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-atandt-apple-iphone-13-mini-with-3-methods-by-drfone-ios/"><u>In 2024, How to Unlock AT&T Apple iPhone 13 mini with 3 Methods</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/the-pinnacle-of-audio-our-list-of-excellent-wired-earbuds/"><u>The Pinnacle of Audio: Our List of Excellent Wired Earbuds</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-compact-computing-power-of-raspberry-pi-400-desktop-meets-laptop-functionality-in-one-device/"><u>Unveiling the Compact Computing Power of Raspberry Pi 400 - Desktop Meets Laptop Functionality in One Device</u></a></li>
+</ul></div>
 

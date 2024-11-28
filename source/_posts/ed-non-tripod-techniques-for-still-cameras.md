@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Non-Tripod Techniques for Still Cameras\""
-date: 2024-09-02T08:00:56.326Z
-updated: 2024-09-03T08:00:56.326Z
+date: 2024-11-21T03:06:30.859Z
+updated: 2024-11-27T20:08:33.237Z
 tags:
   - ai video
   - ai youtube
@@ -34,6 +34,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -54,13 +58,18 @@ And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -79,8 +88,9 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -89,18 +99,6 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -124,22 +122,20 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -148,4 +144,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-instantaneous-methods-for-video-to-mp3-on-instagram/"><u>[New] Instantaneous Methods for Video-to-MP3 on Instagram</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/obile-game-innovators-and-their-streams/"><u>[New] Mobile Game Innovators and Their Streams</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-real-score-separating-authentic-from-artificial-subscribers-online-for-2024/"><u>[New] The Real Score Separating Authentic From Artificial Subscribers Online for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-easy-guide-to-using-your-phone-as-an-alternative-camera/"><u>[Updated] 2024 Approved Easy Guide to Using Your Phone as an Alternative Camera</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-best-practices-for-designing-compelling-youtube-video-thumbnails/"><u>[Updated] In 2024, Best Practices for Designing Compelling YouTube Video Thumbnails</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-transforming-twitter-video-links-to-audio/"><u>[Updated] In 2024, Transforming Twitter Video Links to Audio</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unveiling-the-top-ten-youtube-music-reaction-stars/"><u>[Updated] In 2024, Unveiling the Top Ten YouTube Music Reaction Stars</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-5-low-cost-pinterest-video-download-software-for-2024/"><u>[Updated] Top 5 Low-Cost Pinterest Video Download Software for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-how-can-you-make-outstanding-youtube-outro/"><u>2024 Approved How Can You Make Outstanding YouTube Outro?</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/2024-approved-video-editing-made-easy-splitting-videos-in-windows-live-movie-maker-for-pc-users/"><u>2024 Approved Video Editing Made Easy Splitting Videos in Windows Live Movie Maker for PC Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cost-effective-viewing-in-depth-analysis-of-caixuns-75-4k-android-television-set/"><u>Cost-Effective Viewing: In-Depth Analysis of Caixun's 75 4K Android Television Set</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/elevate-chat-dynamics-pin-messages-with-confidence-in-discord-for-2024/"><u>Elevate Chat Dynamics Pin Messages with Confidence in Discord for 2024</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/fixing-emeditor-collapse-during-column-replace-solutions-and-tips-for-text-editor-issues/"><u>Fixing EmEditor Collapse During Column Replace - Solutions and Tips for Text Editor Issues</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/guia-rapida-para-transformar-tus-audios-de-aac-a-mp3-sin-costo-alguno-usando-una-herramienta-en-linea-excelente/"><u>Guía Rápida Para Transformar Tus Audios De AAC a MP3 Sin Costo Alguno Usando Una Herramienta en Línea Excelente</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/est-laptops-for-video-editing/"><u>The Best Laptops for Video Editing</u></a></li>
+</ul></div>
 

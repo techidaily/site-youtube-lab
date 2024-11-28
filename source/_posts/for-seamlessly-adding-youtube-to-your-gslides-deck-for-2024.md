@@ -1,7 +1,7 @@
 ---
 title: "Tips for Seamlessly Adding YouTube to Your GSlides Deck for 2024"
-date: 2024-11-15T18:00:59.340Z
-updated: 2024-11-18T18:50:34.498Z
+date: 2024-11-27T08:14:53.792Z
+updated: 2024-11-28T00:38:54.853Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ More so, it is the best way to provide a break for both the audience and the cre
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why should we add a video to Google Slides?
 
 There is a great impact of adding video to Google Slides.
@@ -75,24 +79,15 @@ Step 2\. Then choose the "Insert" option from the menu bar and hit the "Video" o
 
 ![how to add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-2.png)
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 3\. It would be best if you now viewed the "YouTube" search bar to type in the video you want to embed. You can use keywords to search for the video in question and view instant search results.
 
 Step 4\. Then select the video you want to embed, and you'll see it appear on the "Slide."
 
 ![how to add youtube video to google slides by search and selection](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 5\. Format your video. Remember that the entire video will be embedded. You don't necessarily need the whole video. It is time to select just a brief but relevant clip from the video to use. Then position your video to the right point using the axes from the exact starting point to the finished part you want the video to appear in.
 
@@ -103,13 +98,6 @@ You can engage this method if you want to include the entire video.
 Step 1\. Get the URL of the specific YouTube video that you want to use.
 
 ![how to add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-4.png)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step 2\. Then go to your browser's "Address bar" to copy the YouTube link.
 
@@ -144,10 +132,7 @@ Not all videos will make an impact on your Google Slide. You need to use the bes
 **Add new content** – even though one content may suit several presentations, don't rely on the same piece each time. Your audience will want to feel something fresh each time you are presenting. So, compose different videos for different scenarios to make that big impact.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Create an eye-catching video for your Slides with Filmora
@@ -191,6 +176,10 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 ● You now know **how to put a YouTube video in Google Slides** the simple way. You can search for your YouTube videos or directly use the URL link. Whatever the case, remember that it's the quality of your video that carries more weight. Thanks to the availability of third-party apps that you can use to create and improve the quality of your videos.
@@ -204,6 +193,10 @@ Google Slide presentation is a powerful tool for creators to keep their audience
 More so, it is the best way to provide a break for both the audience and the creator. You can break Google Slide presentations with videos to offer some break. Viewers and the presenter get a breather in the process. The presenter can take a short break from speaking while the video plays. Let's now dive into **how to embed a YouTube video in Google Slides**.
 
 ![add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### In this article
 
@@ -243,25 +236,11 @@ Step 2\. Then choose the "Insert" option from the menu bar and hit the "Video" o
 
 ![how to add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 3\. It would be best if you now viewed the "YouTube" search bar to type in the video you want to embed. You can use keywords to search for the video in question and view instant search results.
 
 Step 4\. Then select the video you want to embed, and you'll see it appear on the "Slide."
 
 ![how to add youtube video to google slides by search and selection](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-3.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step 5\. Format your video. Remember that the entire video will be embedded. You don't necessarily need the whole video. It is time to select just a brief but relevant clip from the video to use. Then position your video to the right point using the axes from the exact starting point to the finished part you want the video to appear in.
 
@@ -287,16 +266,13 @@ Step 7\. Then paste the YouTube video URL in the "Paste YouTube URL Here" bar se
 
 ![add youtube video to google slides by direct link](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-5.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 8\. Wait for the video file to load and press the "Select" option. The video will immediately appear in the presentation slide. Just drag and drop the video in your preferred position.
 
 Note: You can do a few edits inside the application. Set the timer when your video should start and when to stop. You can also adjust the video player size.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to choose the right video for your Slides?
 
@@ -353,6 +329,10 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 ● You now know **how to put a YouTube video in Google Slides** the simple way. You can search for your YouTube videos or directly use the URL link. Whatever the case, remember that it's the quality of your video that carries more weight. Thanks to the availability of third-party apps that you can use to create and improve the quality of your videos.
@@ -366,6 +346,10 @@ Google Slide presentation is a powerful tool for creators to keep their audience
 More so, it is the best way to provide a break for both the audience and the creator. You can break Google Slide presentations with videos to offer some break. Viewers and the presenter get a breather in the process. The presenter can take a short break from speaking while the video plays. Let's now dive into **how to embed a YouTube video in Google Slides**.
 
 ![add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### In this article
 
@@ -494,13 +478,6 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 ● You now know **how to put a YouTube video in Google Slides** the simple way. You can search for your YouTube videos or directly use the URL link. Whatever the case, remember that it's the quality of your video that carries more weight. Thanks to the availability of third-party apps that you can use to create and improve the quality of your videos.
@@ -553,11 +530,19 @@ Step 2\. Then choose the "Insert" option from the menu bar and hit the "Video" o
 
 ![how to add youtube video to google slides](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 3\. It would be best if you now viewed the "YouTube" search bar to type in the video you want to embed. You can use keywords to search for the video in question and view instant search results.
 
 Step 4\. Then select the video you want to embed, and you'll see it appear on the "Slide."
 
 ![how to add youtube video to google slides by search and selection](https://images.wondershare.com/filmora/article-images/2021/add-youtube-video-to-google-slide-3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 5\. Format your video. Remember that the entire video will be embedded. You don't necessarily need the whole video. It is time to select just a brief but relevant clip from the video to use. Then position your video to the right point using the axes from the exact starting point to the finished part you want the video to appear in.
 
@@ -586,13 +571,6 @@ Step 7\. Then paste the YouTube video URL in the "Paste YouTube URL Here" bar se
 Step 8\. Wait for the video file to load and press the "Select" option. The video will immediately appear in the presentation slide. Just drag and drop the video in your preferred position.
 
 Note: You can do a few edits inside the application. Set the timer when your video should start and when to stop. You can also adjust the video player size.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How to choose the right video for your Slides?
 
@@ -676,22 +654,19 @@ For macOS 10.12 or later
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-popsicle-projector-detailed-tutorial-on-screen-capture-tech/"><u>[New] 2024 Approved Popsicle Projector Detailed Tutorial on Screen Capture Tech</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-how-to-view-old-stories-on-facebook/"><u>[New] How to View Old Stories on Facebook?</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-time-travel-tech-how-to-reverse-ios-video/"><u>[New] In 2024, Time Travel Tech How to Reverse iOS Video</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-youtube-mastery-on-the-move-crafting-impactful-video-thumbnails-mobile/"><u>[New] In 2024, YouTube Mastery on the Move Crafting Impactful Video Thumbnails (Mobile)</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/op-6-budget-friendly-youtube-outro-makers-for-2024/"><u>[New] Top 6 Budget-Friendly YouTube Outro Makers for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-financial-race-between-dailymovement-and-youtube-channels/"><u>[Updated] 2024 Approved The Financial Race Between DailyMovement and YouTube Channels</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-arena-of-achievements-a-million-gaming-milestones/"><u>[Updated] Arena of Achievements A Million Gaming Milestones</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-skyrocket-your-subscriber-count-6-proven-ways-to-keep-audiences-coming-back/"><u>[Updated] In 2024, Skyrocket Your Subscriber Count 6 Proven Ways to Keep Audiences Coming Back</u></a></li>
-<li><a href="https://driver-download.techidaily.com/get-your-new-m-audio-fast-track-driver-suite-win-11-7-8-and-81-supported/"><u>Get Your New M-Audio Fast Track Driver Suite: Win 11, 7, 8 & 8.1 Supported</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-essential-knowledge-for-effective-screensaver-use-in-mobile-applications/"><u>In 2024, Essential Knowledge for Effective Screensaver Use in Mobile Applications</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-strategies-for-high-quality-gopro-4k-footage-editing/"><u>In 2024, Expert Strategies for High-Quality GoPro 4K Footage Editing</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-how-to-sculpt-perfect-images-on-youtube-with-right-dimensions/"><u>In 2024, How to Sculpt Perfect Images on YouTube with Right Dimensions</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/onlinereconvertor-movavi-zonder-kostes-vervangen-van-flac-naar-mpeg-gratis-bepaalde-stappen/"><u>Onlinereconvertor Movavi: Zonder Kostes Vervangen Van FLAC Naar MPEG - Gratis Bepaalde Stappen</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/os-melhores-10-aplicativos-de-compartilhamento-de-video-selecao-final-para-2e4-dispositivos-moveis-android-and-ios/"><u>Os Melhores 10 Aplicativos De Compartilhamento De Video: Seleção Final Para 2E4 [Dispositivos Móveis Android & iOS]</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/photomixer-pro-compiling-media-on-macos-for-2024/"><u>PhotoMixer Pro Compiling Media on macOS for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/tation-plaza-your-gateway-to-a-thousand-channels-for-2024/"><u>PlayStation Plaza Your Gateway to a Thousand Channels for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/be-splits-a-filmmakers-creative-playbook-for-2024/"><u>YouTube Splits A Filmmaker’s Creative Playbook for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/k-sub-club-joining-the-youtube-success-circles/"><u>[New] 1K Sub Club Joining the YouTube Success Circles</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-enhance-your-contents-visibility-peak-days/"><u>[New] 2024 Approved Enhance Your Content's Visibility - Peak Days</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/arnings-on-youtube-a-monthly-perspective-in-2024/"><u>[New] Earnings on YouTube A Monthly Perspective, In 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-navigating-the-marketing-landscape-essential-strategies-for-newbies/"><u>[New] Navigating the Marketing Landscape Essential Strategies for Newbies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-taking-the-leap-essential-video-gatherings-post-vidcon/"><u>[Updated] 2024 Approved Taking the Leap Essential Video Gatherings (Post-VidCon)</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-xsplit-repository-direct-gaming-analysis/"><u>[Updated] 2024 Approved XSplit Repository Direct Gaming Analysis</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-android-ios-and-pc-friendly-youtube-downloader-apps-reviewed/"><u>[Updated] In 2024, Android, iOS & PC-Friendly YouTube Downloader Apps Reviewed</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-discover-tiktoks-10-best-gamers-now/"><u>2024 Approved Discover TikTok's 10 Best Gamers Now</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-secrets-to-preventing-photo-app-problems-in-windows-11/"><u>In 2024, Secrets to Preventing Photo App Problems in Windows 11</u></a></li>
+<li><a href="https://win-premium.techidaily.com/ios-app-installation-issue-resolved-overcoming-the-estimation-of-time-hiccup/"><u>IOS App Installation Issue Resolved: Overcoming the 'Estimation of Time' Hiccup</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/lenovo-ideapad-student/"><u>Lenovo Ideapad # Student</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/g-large-with-youtube-premium-the-inside-story/"><u>Living Large with YouTube Premium The Inside Story</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-lava-blaze-2-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Lava Blaze 2? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

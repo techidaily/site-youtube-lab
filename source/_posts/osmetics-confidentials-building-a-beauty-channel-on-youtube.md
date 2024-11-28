@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Cosmetics Confidentials  Building a Beauty Channel on YouTube\""
-date: 2024-09-02T08:00:28.478Z
-updated: 2024-09-03T08:00:28.478Z
+date: 2024-11-26T16:35:54.018Z
+updated: 2024-11-28T00:45:21.735Z
 tags:
   - ai video
   - ai youtube
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/a8037b9cb425e19a9ec57f5feba58cc91bfb4e98a
 
 Beauty Vlogs are some of the most popular channels on YouTube. These vlogs are all about aesthetics, so it is important that the videos themselves are beautiful. When you are giving out tips on makeup or hair you want to use a setup that will make your results look their very best.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## YouTube Beauty Vlogger Set Up
 
 It’s easy to put together your own Beauty Vlog setup. There are four main elements; lighting, beauty supplies, backgrounds, and audio. Here are some tips on building your beauty guru set:
@@ -33,6 +37,10 @@ It’s easy to put together your own Beauty Vlog setup. There are four main elem
 #### 1\. Light It Up
 
 ![beauty vlog01](https://images.wondershare.com/filmora/article-images/beauty-vlog01.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Beauty Vlogs need to have great lighting so that everyone can clearly see what you are doing and how amazing it looks. Make sure you have even light over your whole face by ‘front lighting’ your vlog. Front lighting means having a light source right in front of you.
 
@@ -64,20 +72,21 @@ If you do not have access to an external mic then you may be able to get by with
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -86,9 +95,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-detailed-guide-to-whatsapps-audio-chat-features/"><u>[New] In 2024, Detailed Guide to WhatsApp's Audio Chat Features</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-gamers-dream-the-ultimate-compilation-of-best-yt-game-entrances/"><u>[New] In 2024, Gamer's Dream The Ultimate Compilation of Best YT Game Entrances</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-10-premium-online-vectors-image-repositories/"><u>[Updated] 10 Premium Online Vectors Image Repositories</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-adding-clear-timestamps-to-your-youtube-channels-live-streams/"><u>[Updated] 2024 Approved Adding Clear Timestamps to Your YouTube Channel's Live Streams</u></a></li>
+<li><a href="https://win-able.techidaily.com/efficient-methods-mastering-the-art-of-converting-51-surround-sound-to-stereo-in-three-straightforward-strategies/"><u>Efficient Methods: Mastering the Art of Converting 5.1 Surround Sound to Stereo in Three Straightforward Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/slice-cutter/"><u>ImageSlice Cutter</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/installing-and-integrating-codegpt-with-your-vscode-workspace-a-comprehensive-tutorial/"><u>Installing & Integrating CodeGPT with Your VSCode Workspace – A Comprehensive Tutorial</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/strategies-for-prominent-personalities-on-snapchat/"><u>Strategies for Prominent Personalities on Snapchat</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/the-essence-of-a-memorable-video-conclusion-in-vimeo/"><u>The Essence of a Memorable Video Conclusion in Vimeo</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xperts-guide-quick-removal-of-your-youtube-comments-for-2024/"><u>The Expert's Guide Quick Removal of Your Youtube Comments for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/united-reviews-the-expert-on-easeus/"><u>United Reviews The Expert on EaseUS</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->

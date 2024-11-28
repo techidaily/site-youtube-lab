@@ -1,7 +1,7 @@
 ---
 title: "Transforming YouTube Content for IGTV Success"
-date: 2024-11-17T17:19:33.205Z
-updated: 2024-11-18T17:15:41.406Z
+date: 2024-11-22T23:09:48.672Z
+updated: 2024-11-28T03:44:08.110Z
 tags:
   - ai video
   - ai youtube
@@ -43,11 +43,19 @@ YouTube videos, on the other hand, are mostly horizontally oriented. If you atte
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you don’t already have the original file of the video you’d like to upload to your IGTV channel, you can [download a video from YouTube](https://tools.techidaily.com/wondershare/filmora/download/), but keep in mind that you can’t use any content without permission from its owner.
 
 Once you have the file, you can **create a new project** in Filmora and then after the project loads you should click on the **File menu** and select the **Project Settings option**. Pick one of the **9:16** video resolution options provided by the editor and click **OK to confirm the changes**.
 
 ![Filmora  Project Settings](https://images.wondershare.com/filmora/article-images/filmora-project-settings-window.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the **Import button** to add a YouTube video to your project and then place it on the timeline. Your video will be displayed in the **Preview Panel**, and you’ll be able to see that the video is positioned at the center of the panel and that its top and bottom are black.
 
@@ -70,10 +78,7 @@ You can watch the video below to find out more information about the Auto-Refram
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Use Kapwing to Convert YouTube to IGTV Online
@@ -85,10 +90,7 @@ Click on the Resize tool and simply **copy and paste the URL** of a YouTube into
 ![Kapwing  Crop YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/kapwing-crop-youtube-to-igtv.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose the background color for your IGTV video, increase or decrease the zoom level or change the position of the video**. Click on the **Create button** when ready and wait for Kapwing to process your video. **All videos you create with the free version of this online video editor are going to be watermarked** and you have to pay a six-dollar fee for each watermark-free video you edit with Kapwing or you can opt for a $20 monthly subscription fee that enables you to export an unlimited amount of videos without watermarks each month.
@@ -96,10 +98,7 @@ Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose
 ![Kapwing  Rotate YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-convert-to-igtv.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 A growing number of IGTV users choose to rotate their videos, instead of resizing them, so if you already have a YouTube video with a 16:9 aspect ratio you can just rotate it and get a video with a 9:16 aspect ratio. Click on the **Rotate**  option and then rotate it **90 degrees clockwise or counterclockwise** and click on the **Create button**. If you opt for this method of creating a vertical video for IGTV, your video will remain the same size, but the viewers will have to hold their phones horizontally in order to view it properly.
@@ -119,13 +118,6 @@ Posting YouTube videos on your IGTV channel is still a somewhat complicated proc
 **You may also like:** [YouTube to WAV File: 4 Best Free Convert Solutions >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -148,16 +140,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-budget-enthusiasts-choices-the-right-gopro-add-ons-for-newbies/"><u>[New] 2024 Approved Budget Enthusiasts Choices The Right GoPro Add-Ons for Newbies</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-your-journey-through-the-maze-of-uploading-videos-on-youtube/"><u>[New] 2024 Approved Your Journey Through the Maze of Uploading Videos on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-explore-virtual-realms-with-these-videos/"><u>[Updated] 2024 Approved Explore Virtual Realms with These Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unlocking-viewership-on-multiple-channels-youtube-and-friends/"><u>[Updated] 2024 Approved Unlocking Viewership on Multiple Channels (YouTube & Friends)</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/2022s-guide-to-seamless-gaming-eliminating-fallout-4-latency-for-a-smoother-play/"><u>2022'S Guide to Seamless Gaming: Eliminating Fallout 4 Latency for a Smoother Play</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-top-directors-weaving-visual-auditory-tapestries/"><u>2024 Approved Top Directors Weaving Visual, Auditory Tapestries</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-lava-yuva-2-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Lava Yuva 2 Pro Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-a-beginners-guide-to-use-lunapic-photo-editor/"><u>In 2024, A Beginner's Guide to Use Lunapic Photo Editor</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-choosing-androids-favorite-freepaid-video-tile-tools-8-ranked/"><u>In 2024, Choosing Android's Favorite Free/Paid Video Tile Tools #8 Ranked</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-pinnacle-of-presence-a-strategic-approach-for-live-video-graphics/"><u>In 2024, Pinnacle of Presence A Strategic Approach for Live Video Graphics</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/leading-activity-trackers-reviewed-the-ultimate-guide/"><u>Leading Activity Trackers Reviewed: The Ultimate Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ial-back-your-playlist-quick-steps-to-reverse-order-for-2024/"><u>[New] Dial Back Your Playlist Quick Steps to Reverse Order for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-expert-picks-top-1-cookie-cutter-list-of-10-apps-for-basketball-and-rugby-streaming/"><u>[New] In 2024, Expert Picks Top 1 Cookie Cutter List of 10 Apps for Basketball and Rugby Streaming</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-understanding-your-youtube-earnings-adsense-payments-per-thousand-viewer/"><u>[New] In 2024, Understanding Your Youtube Earnings AdSense Payments per Thousand Viewer</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-essential-guide-to-youtube-video-lighting-tips/"><u>[Updated] 2024 Approved The Essential Guide to YouTube Video Lighting Tips</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-a-step-by-step-guide-for-meet-custom-filters-and-effects/"><u>[Updated] In 2024, A Step-by-Step Guide for Meet Custom Filters & Effects</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-propel-your-online-presence-via-creator-studio/"><u>[Updated] Propel Your Online Presence via Creator Studio</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-viral-hits-top-10-video-watches-in-an-hour-for-2024/"><u>[Updated] Viral Hits Top 10 Video Watches in an Hour for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-tapping-into-trending-topics-for-videography-ideas-via-google/"><u>2024 Approved Tapping Into Trending Topics for Videography Ideas via Google</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/sive-youtube-snippet-access-high-quality-free-download/"><u>Exclusive YouTube Snippet Access - High Quality, Free Download</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Samsung Galaxy Z Fold 5? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-vivo-y200e-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Vivo Y200e 5G For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-videos-from-samsung-galaxy-f34-5g-by-fonelab-android-recover-video/"><u>How to Rescue Lost Videos from Samsung Galaxy F34 5G</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-unlocking-perfect-presentation-youtubes-video-ratio-insights/"><u>In 2024, Unlocking Perfect Presentation YouTube's Video Ratio Insights</u></a></li>
+<li><a href="https://program-issues.techidaily.com/preventing-war-thunder-breakdowns-in-the-new-2024-release-expert-advice/"><u>Preventing War Thunder Breakdowns in the New 2024 Release: Expert Advice</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/simple-steps-to-add-professional-vocal-narration-to-your-videos/"><u>Simple Steps to Add Professional Vocal Narration to Your Videos</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-americas-fresh-approach-to-technology-monopoly/"><u>Understanding America's Fresh Approach to Technology Monopoly</u></a></li>
 </ul></div>
 

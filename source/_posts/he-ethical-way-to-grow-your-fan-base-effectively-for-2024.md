@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ethical Way to Grow Your Fan Base Effectively for 2024"
-date: 2024-09-02T08:02:18.867Z
-updated: 2024-09-03T08:02:18.867Z
+date: 2024-11-26T00:34:08.807Z
+updated: 2024-11-28T04:57:32.696Z
 tags:
   - ai video
   - ai youtube
@@ -54,6 +54,10 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -64,11 +68,16 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Polish Your YouTube Videos with Filmora
 
 Even with the above tricks, you may not get the subscribers as you wish unless you can make sure your videos and contents are of high quality. As YouTube is getting more and more popular and more YouTubers are competing for subscribers, you will need to polish your YouTube videos.
@@ -80,29 +89,28 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -111,4 +119,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/reaking-down-youtube-tv-must-know-aspects-for-consumers/"><u>[New] Breaking Down YouTube TV Must Know Aspects for Consumers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-breakdown-of-steps-perfecting-idevice-video-features-on-youtube/"><u>[Updated] 2024 Approved Breakdown of Steps Perfecting iDevice Video Features on YouTube</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-free-text-techniques-for-more-dynamic-video-experiences/"><u>[Updated] FREE Text Techniques for More Dynamic Video Experiences</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-evolution-of-action-cameras-from-gopro-hero4-to-hero5/"><u>2024 Approved Evolution of Action Cameras From GoPro (Hero4 to Hero5)</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-sophisticated-style-advanced-tiktok-filters/"><u>2024 Approved Sophisticated Style Advanced TikTok Filters</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/elevating-your-books-dialogues-top-gpt-ideas-to-craft-characters/"><u>Elevating Your Book's Dialogues: Top GPT Ideas to Craft Characters</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-professional-screen-grabber-for-win11/"><u>In 2024, Professional Screen Grabber for Win11</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/macos-tricks-revealed-how-to-easily-unpack-and-use-rar-archived-documents/"><u>MacOS Tricks Revealed: How to Easily Unpack and Use RAR Archived Documents</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ring-animations-and-crafting-custom-visual-impact-for-2024/"><u>Mastering Animations & Crafting Custom Visual Impact for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/optimize-call-transcription-4-proven-tips-for-fb-video-calls/"><u>Optimize Call Transcription 4 Proven Tips for FB Video Calls</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/smart-techniques-to-capture-gotomeet-participants-for-2024/"><u>Smart Techniques to Capture GoToMeet Participants for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-art-of-piecing-together-digital-images-for-2024/"><u>The Art of Piecing Together Digital Images for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ate-youtube-watch-list-highest-watched-in-24-hours-for-2024/"><u>Ultimate YouTube Watch List Highest-Watched in 24 Hours for 2024</u></a></li>
+</ul></div>
 

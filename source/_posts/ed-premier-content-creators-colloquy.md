@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Premier Content Creators Colloquy"
-date: 2024-11-14T17:49:15.206Z
-updated: 2024-11-18T19:21:44.806Z
+date: 2024-11-23T22:32:11.000Z
+updated: 2024-11-27T22:42:07.299Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,10 @@ There were some clues as to what the rest of the summit was like hiding amongst 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -69,22 +73,12 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Branded slippers
 
@@ -94,16 +88,13 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 _thinknoodles wearing his YouTube slippers._
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
@@ -120,13 +111,14 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
-  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -149,19 +141,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-easy-loop-keeping-iphone-videos-running/"><u>[New] 2024 Approved Easy Loop Keeping iPhone Videos Running</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-elite-equipment-showcasing-gameplay-innovations/"><u>[New] 2024 Approved Elite Equipment Showcasing Gameplay Innovations</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-power-play-the-most-popular-female-youtube-personalities/"><u>[New] 2024 Approved Power Play The Most Popular Female YouTube Personalities</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-decoding-the-best-free-video-apps-for-os-multiplicity/"><u>[New] In 2024, Decoding the Best Free Video Apps for OS Multiplicity</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-revisiting-radeon-review-and-restore/"><u>[New] Revisiting Radeon Review and Restore</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-unveiling-windows-media-seamless-cd-extraction/"><u>[Updated] Unveiling Windows Media Seamless CD Extraction</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/a-beginners-guide-to-use-lunapic-photo-editor-for-2024/"><u>A Beginner's Guide to Use Lunapic Photo Editor for 2024</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/fastupdateutility-efficient-and-rapid-application-patching-solution/"><u>FastUpdateUtility - Efficient and Rapid Application Patching Solution</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-from-script-to-splendor-animating-effects-unbound/"><u>In 2024, From Script to Splendor Animating Effects Unbound</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/latest-startech-usb-vga-graphic-card-drivers-get-your-free-copy/"><u>Latest StarTech USB VGA Graphic Card Drivers - Get Your Free Copy!</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-voice-changers-essentials-for-video-makers/"><u>Prime Voice Changers Essentials for Video Makers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-smartphone-lenses-and-gimbals-for-dynamic-videography/"><u>Top 9 Smartphone Lenses & Gimbals for Dynamic Videography</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/unwavering-affection-comprehensive-analysis-of-the-huawei-p30-pro-features/"><u>Unwavering Affection: Comprehensive Analysis of the Huawei P30 Pro Features</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/1728468971078-windows-11/"><u>Windows 11 検索機能不足に対する直訳的解決手順</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-elevate-your-listening-experience-with-these-6-premier-android-apps/"><u>[New] 2024 Approved Elevate Your Listening Experience with These 6 Premier Android Apps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-guide-to-equipment-selection-for-youtube-creators/"><u>[New] 2024 Approved Guide to Equipment Selection for YouTube Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ecoding-aspect-ratios-for-effective-youtube-videos-for-2024/"><u>[New] Decoding Aspect Ratios for Effective YouTube Videos for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-kodi-streaming-service-windows-media-replacement-for-2024/"><u>[New] Kodi Streaming Service Windows Media Replacement for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-tiktok-unboxers-guide-to-enhanced-video-engagement-and-likes/"><u>[New] TikTok Unboxers Guide to Enhanced Video Engagement and Likes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-effortless-entrepreneurship-top-10-easy-to-create-biz-channels-on-youtotube/"><u>[Updated] 2024 Approved Effortless Entrepreneurship Top 10 Easy-to-Create Biz Channels on YouToTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-seamless-transitions-smooth-editing-techniques-for-youtube-content/"><u>[Updated] 2024 Approved Seamless Transitions Smooth Editing Techniques for YouTube Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-8-best-wedding-videos-on-youtube-and-vimeo-for-2024/"><u>[Updated] 8 Best Wedding Videos on YouTube and Vimeo for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-cultivating-patience-with-youtube-disapproval/"><u>[Updated] Cultivating Patience with YouTube Disapproval</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-command-line-magic-opening-srt-for-windows-macos/"><u>[Updated] In 2024, Command Line Magic Opening SRT for Windows, MacOS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-triple-points-tracker-the-effective-pathway-to-analyzing-youtube-profitability/"><u>2024 Approved Triple Points Tracker The Effective Pathway to Analyzing YouTube Profitability</u></a></li>
+<li><a href="https://common-error.techidaily.com/effective-fixes-for-unidentified-usb-hardware-problems-and-port-issues-on-windows-11/"><u>Effective Fixes for Unidentified USB Hardware Problems & Port Issues on Windows 11</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Tecno Phantom V Flip? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/resolving-issues-with-the-absent-msvcrtdll-file-a-comprehensive-guide/"><u>Resolving Issues with the Absent msvcrt.dll File: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/oung-entrepreneurs-guide-creating-elevating-and-earning/"><u>The Young Entrepreneur's Guide Creating, Elevating & Earning</u></a></li>
 </ul></div>
 

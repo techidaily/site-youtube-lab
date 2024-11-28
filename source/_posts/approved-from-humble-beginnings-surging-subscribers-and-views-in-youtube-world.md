@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  From Humble Beginnings  Surging Subscribers & Views in Youtube World\""
-date: 2024-09-02T07:57:40.341Z
-updated: 2024-09-03T07:57:40.341Z
+date: 2024-11-26T02:32:23.789Z
+updated: 2024-11-28T09:41:16.112Z
 tags:
   - ai video
   - ai youtube
@@ -30,9 +30,17 @@ You’ve probably heard of stories about individuals who managed to find financi
 
 Jesse Ridgway is the owner of the vlog [McJuggerNuggets](https://www.youtube.com/user/McJuggerNuggets), which has grown to over 3.4 million subscribers. He makes enough money to live off of YouTube alone. Here is a case study of how he made his first $10,000 on YouTube:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Case Study of McJuggerNuggets
 
 ![Case Study McJugger Nuggets](https://images.wondershare.com/filmora/article-images/case-study-mcjugger-nuggets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Jesse was one of the earliest YouTubers. He started his channel on December 9, 2006\. Jesse never guessed that he would make enough money to live off of the videos he was creating. Here are some of the ways that he monetized his channel:
 
@@ -82,11 +90,23 @@ Regular research into your target market will help you to create the trendiest n
 
 Timing and luck are definitely two of the biggest factors in becoming a success on YouTube. If you are willing to keep working and don’t get discouraged you will eventually earn profits.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit Your Videos with High-Quality Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -94,14 +114,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -110,8 +127,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-growth-hacks-for-youtubers-short-form-content-boosting-view-counts-effectively/"><u>[New] In 2024, Growth Hacks for YouTuber's Short Form Content Boosting View Counts Effectively</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-selective-alert-tunes-prime-audio-spots/"><u>[New] In 2024, Selective Alert Tunes Prime Audio Spots</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/oundtrack-your-youtube-videos-7-free-audio-selections/"><u>[New] Soundtrack Your YouTube Videos 7 Free Audio Selections</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tep-up-your-content-quality-with-these-8-mirrorless-cams-for-2024/"><u>[New] Step Up Your Content Quality with These 8 Mirrorless Cams for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-home-studio-ready-essential-webcam-recorders-reviewed/"><u>[Updated] 2024 Approved Home Studio Ready Essential WebCam Recorders Reviewed</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-rotation-revelation-manual-transform-your-visual-content-on-social-media-sites/"><u>[Updated] 2024 Approved The Rotation Revelation Manual Transform Your Visual Content on Social Media Sites</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-mastering-vector-graphics-our-top-10-pics-stores/"><u>[Updated] In 2024, Mastering Vector Graphics Our Top 10 Pics Stores</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-exploring-the-best-free-youtube-video-editors-for-ios/"><u>2024 Approved Exploring the Best Free YouTube Video Editors for iOS</u></a></li>
+<li><a href="https://extra-information.techidaily.com/basic-understanding-of-animate-graphic-content/"><u>Basic Understanding of Animate Graphic Content</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-motorola-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Motorola Phone that is Locked?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-discovering-your-customized-youtube-playlist/"><u>In 2024, Discovering Your Customized YouTube Playlist</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-oppo-a78-5g-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Oppo A78 5G? Fixed | Dr.fone</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-in-2024-free-methods-to-embed-songs-within-video-content-creation-processes/"><u>Updated In 2024, Free Methods to Embed Songs Within Video Content Creation Processes</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->

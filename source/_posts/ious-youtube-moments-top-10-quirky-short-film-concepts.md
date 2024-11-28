@@ -1,7 +1,7 @@
 ---
 title: "\"Hilarious YouTube Moments  Top 10 Quirky Short Film Concepts\""
-date: 2024-08-28T16:44:19.144Z
-updated: 2024-08-29T16:44:19.144Z
+date: 2024-11-23T23:32:07.651Z
+updated: 2024-11-28T04:41:18.792Z
 tags:
   - ai video
   - ai youtube
@@ -29,6 +29,10 @@ YouTube is a well-known brand for videos globally. This time, it comes with its 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-1.jpg)
 
 That sounds great, doesn’t it? Let’s move ahead to get a good grab over some funny, engaging, and eye-catching ideas to have YouTube Shorts videos here. No need for a lengthy tutorial to become the real YouTube Shorts champion with the following tips. Let’s roll on, guys!
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Top 10 Funny YouTube Shorts Video Ideas
 
@@ -84,6 +88,10 @@ Competition creates a zeal to lead, and if you add some flavor to it. Then, peop
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Funny competition can vary from a weird hairstyle, odd season festival celebration, or anything that you think of interesting, different, and eye-catching.
 
 #### Idea 7: Quirky Music
@@ -99,6 +107,10 @@ Just give it a try and dance with the music you create with all the worldwide li
 Kids love cartoons, but the hidden fact is that everyone enjoys watching cartoon or cartoon characters to a certain extent. Then why not try mimicking some cartoon characters. If you are a fun-loving person, and in your life, you mimic any person’s character, then try mimicking cartoon characters under YouTube Short Video ideas.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Mixing some comedy flavor to life will add more fun and enjoyment to all those seeking funny moments to reflect their days. Come on; show up your humor with this unique style.
 
@@ -116,9 +128,17 @@ Everybody holds some unique talent. You just need to identify it. If you have so
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-11.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Choose the one that fits you and start creating YouTube Shorts Channel with these ideas.
 
 Wait, there is much more than these best YouTube Shorts ideas. Yes, you heard that right! The following paragraph will lead you to get some important tips, with the help of which you can raise YouTube Short Videos views. So, without waiting anymore, move on to the next paragraph to get a glimpse of it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Tips to Get More Views for Your YouTube Shorts Videos
 
@@ -172,14 +192,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -188,8 +205,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-definitive-guide-for-effective-and-smooth-youtube-video-uploads/"><u>[New] 2024 Approved The Definitive Guide for Effective and Smooth YouTube Video Uploads</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-unlisted-conundrum-dissecting-non-indexed-youtube-videos/"><u>[New] 2024 Approved The Unlisted Conundrum Dissecting Non-Indexed YouTube Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-uncover-8-proven-services-for-effective-content-marketing/"><u>[New] 2024 Approved Uncover 8 Proven Services for Effective Content Marketing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unlock-youtubes-small-screen-image-magic/"><u>[New] 2024 Approved Unlock YouTube's Small Screen Image Magic</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-who-holds-sway-over-youtube-subscribers/"><u>[New] 2024 Approved Who Holds Sway Over YouTube Subscribers?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-your-complimentary-access-to-50-premium-youtube-banners/"><u>[New] 2024 Approved Your Complimentary Access to 50 Premium YouTube Banners</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-your-guide-to-instantaneously-add-closed-captions-to-youtube-clips/"><u>[New] 2024 Approved Your Guide to Instantaneously Add Closed Captions to YouTube Clips</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-laughs-teardrops-and-snickers-in-10-best-ig-memes-groups-for-2024/"><u>[New] Laughs, Teardrops & Snickers in 10 Best IG Memes Groups for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-capturing-and-saving-your-favorite-facebook-stories-pcmobile/"><u>[Updated] 2024 Approved Capturing & Saving Your Favorite Facebook Stories (PC/Mobile)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-mastery-in-motion-an-in-depth-look-at-polarrs-toolset/"><u>[Updated] 2024 Approved Mastery in Motion An In-Depth Look at Polarr’s Toolset</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/find-all-necessary-software-to-operate-your-logiteche-g402-controller-smoothly/"><u>Find All Necessary Software to Operate Your Logiteche G402 Controller Smoothly</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/masterful-mixers-free-lut-compendium-for-2024/"><u>Masterful Mixers' Free LUT Compendium for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/passfab-apple-iphone-12-pro-backup-unlocker-top-4-alternatives-drfone-by-drfone-ios/"><u>PassFab Apple iPhone 12 Pro Backup Unlocker Top 4 Alternatives | Dr.fone</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/protokolle-fur-die-wiederherstellung-von-bitlocker-verschlusselungsdaten-auf-der-festplatte/"><u>Protokolle Für Die Wiederherstellung Von BitLocker-Verschlüsselungsdaten Auf Der Festplatte</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-fixes-for-green-screen-glitches-on-mac-video-editing-platform-for-2024/"><u>Quick Fixes for Green Screen Glitches on Mac Video Editing Platform for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->

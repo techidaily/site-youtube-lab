@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Quick Guide to Softening YouTube Videos' Surroundings\""
-date: 2024-09-02T07:57:29.521Z
-updated: 2024-09-03T07:57:29.521Z
+date: 2024-11-26T20:59:27.367Z
+updated: 2024-11-28T08:06:08.346Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Even if your set is clean, there could be things like books behind you, which wi
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Blur Background of Your YouTube Video in Shooting Videos
 
 Blurring your background is also how you create a beautiful bokeh lighting effect. Bokeh is when you blur lights in the background of your shot, creating halo-like circles of light. By attaching a filter with a shape cut out to the camera lens, you can even generate bokeh lights in other shapes, like hearts or stars.
@@ -60,6 +64,10 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
@@ -67,8 +75,9 @@ If you need to blur the video background after shooting, you can use some video 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Add Bokeh Filter to Video in Filmora
 
 There are about 20 bokeh effects available in filters and overlays. You can find them easily by typing bokeh in the search bar in Effects.
@@ -77,14 +86,12 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
 
 Filmora features two tilt effects, tilt-shift circle and tilt-shift linear, which allows you to highlight people in the video, blur, and conceal the video background.
@@ -94,8 +101,9 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
@@ -104,28 +112,19 @@ You see, the video background is blurred, and the people are highlighted. Now it
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,4 +133,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/avigating-youtube-for-ultimate-virtual-reality-adventures-for-2024/"><u>[New] Navigating YouTube for Ultimate Virtual Reality Adventures for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-rapidly-rendering-fortnite-cover-images/"><u>[Updated] 2024 Approved Rapidly Rendering Fortnite Cover Images</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-change-youtube-playback-speed-to-speed-up-or-slow-down-video/"><u>[Updated] How to Change YouTube Playback Speed to Speed Up or Slow Down Video</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-immortalize-gameplay-glories-with-samsung-devices/"><u>[Updated] Immortalize Gameplay Glories with Samsung Devices</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-5-tips-to-get-more-views-with-youtube-optimization-free-checklist/"><u>[Updated] In 2024, 5 Tips to Get More Views with YouTube Optimization [Free Checklist]</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/1-top-rated-free-ogg-media-player-download-compatible-with-macos-and-windows-systems/"><u>1. Top Rated Free Ogg Media Player Download: Compatible with macOS & Windows Systems</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-no-more-youtube-shorts-a-detailed-breakdown/"><u>2024 Approved No More YouTube Shorts A Detailed Breakdown</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-top-artisans-in-sound-and-video-craftsminas-online/"><u>2024 Approved The Top Artisans in Sound and Video Craftsminas Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-uncompromised-quality-activate-av1-for-youtube-streams/"><u>2024 Approved Uncompromised Quality Activate AV1 for YouTube Streams</u></a></li>
+<li><a href="https://win-trending.techidaily.com/comprehensive-tutorial-for-gratis-total-pc-data-backup-in-various-windows-versions/"><u>Comprehensive Tutorial for Gratis Total PC Data Backup in Various Windows Versions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/te-your-youtube-content-with-7-premium-free-audio-sounds/"><u>Elevate Your YouTube Content With 7 Premium, Free Audio Sounds</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-your-non-responsive-dell-bluetooth-mouse-or-wireless-keyboard/"><u>Fixing Your Non-Responsive Dell Bluetooth Mouse or Wireless Keyboard</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-infinix-hot-30-5g-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Infinix Hot 30 5G Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-decipher-high-impact-content-selecting-premier-rank-trackers-for-youtubers/"><u>In 2024, Decipher High-Impact Content Selecting Premier Rank Trackers for YouTubers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-mastering-video-thumbnail-creation-for-maximum-clicks/"><u>In 2024, Mastering Video Thumbnail Creation for Maximum Clicks</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Infinix Hot 40 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-top-ten-historical-educational-video-streams-for-students/"><u>In 2024, Top Ten Historical Educational Video Streams (For Students)</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-whimsy-weaver-photo-tapestry/"><u>In 2024, Whimsy Weaver Photo Tapestry</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/m3-max-what-buyers-need-to-understand/"><u>M3 Max - What Buyers Need to Understand</u></a></li>
+</ul></div>
 
