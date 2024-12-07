@@ -1,7 +1,7 @@
 ---
 title: "\"From Long to Brief  How to Shorten YouTube Footage for 2024\""
-date: 2024-08-28T16:43:04.126Z
-updated: 2024-08-29T16:43:04.126Z
+date: 2024-12-06T17:57:13.411Z
+updated: 2024-12-07T18:04:14.469Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ For instance, the application is offering non-linear ripple video editing. This 
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Edit YouTube Video Length Using the built-in Video Editor
 
 The YouTube video editor is easy to use, and you can easily learn how to do all sorts of changes to your video. Let's see the things that you need to go through in order to edit the length.
@@ -46,6 +50,10 @@ The YouTube video editor is easy to use, and you can easily learn how to do all 
 
 ![Locate YouTube Video Editor](https://images.wondershare.com/filmora/article-images/add-music-to-youtube-video-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In order to do so, you would have to go ahead and login into your account. Then, go to the “My Channel” panel and select the video that you want to cut. Once you've done this, click on the “Video manager” option and click on the “create” tab which should be located on the right side for the page. There, you will be able to find the “Video Editor”. Of course, you can also add “/editor” to YouTube's URL, and you would be good to go.
 
 #### Step 2 Import Your Video
@@ -54,11 +62,19 @@ Once you've done all of the above, you would have to drag your video in order to
 
 ![drag video to YouTube timeline](https://images.wondershare.com/filmora/article-images/drag-video-to-youtube-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 3 Edit the Length
 
 This is the part where you actually get to edit the length of your video. In order to do so effectively, you have to drag the bar at either end of your clip towards the other end in order to shorten the clip conveniently.
 
 ![edit video length in youtube](https://images.wondershare.com/filmora/article-images/edit-video-length-in-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 What is more, if you want to increase the length, you have to drag the bar to the opposite end – outwards. There is going to be an indicator which is going to appear at the bottom of the clip, and it's going to show you the overall duration of the file, and it's going to adjust itself as you slide the bars accordingly.
 
@@ -68,20 +84,21 @@ Of course, you would have to save the clip in order for the changes to reflect. 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -90,8 +107,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-youtube-shorts-monetization-how-to-make-money-on-youtube-shorts/"><u>[New] 2024 Approved YouTube Shorts Monetization How to Make Money on YouTube Shorts?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-discovering-innovation-in-tiktok-a-complete-backdrop-transformation-handbook-for-2024/"><u>[New] Discovering Innovation in TikTok A Complete Backdrop Transformation Handbook for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-subtitle-extraction-top-10-free-apps-rated/"><u>[Updated] In 2024, Subtitle Extraction Top 10 Free Apps Rated</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-optimizing-your-workflow-efficiently-editing-360-degree-videos-in-premiere-pro/"><u>[Updated] Optimizing Your Workflow Efficiently Editing 360 Degree Videos in Premiere Pro</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-secure-online-methods-convert-youtube-audio-to-mp3-effortlessly-and-safely-for-2024/"><u>[Updated] Secure Online Methods Convert YouTube Audio to MP3 Effortlessly & Safely for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-strategic-playlist-formation-your-guide-to-youtube-mastery-for-2024/"><u>[Updated] Strategic Playlist Formation Your Guide to YouTube Mastery for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-10-unique-video-reaction-strategies-for-online-enthusiasts/"><u>2024 Approved 10 Unique Video Reaction Strategies for Online Enthusiasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-thumbnail-scaling-techniques-for-youtube/"><u>2024 Approved Thumbnail Scaling Techniques for YouTube</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-top-10-best-photo-watermarking-software/"><u>2024 Approved Top 10 Best Photo Watermarking Software</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/chatgpt-and-academia-are-conventional-essay-assignments-becoming-a-thing-of-the-past/"><u>ChatGPT and Academia: Are Conventional Essay Assignments Becoming a Thing of the Past?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easy-steps-to-transform-avi-videos-into-iphone-compatible-formats/"><u>Easy Steps to Transform AVI Videos Into iPhone-Compatible Formats</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-locked-oneplus-12-phone-by-drfone-android/"><u>How to Reset a Locked OnePlus 12 Phone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/de-your-content-presentation-with-top-tier-templates/"><u>Upgrade Your Content Presentation with Top-Tier Templates</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/zdnet-reports-apple-may-add-breathing-monitor-feature-to-future-vision-pro-models/"><u>ZDNet Reports: Apple May Add Breathing Monitor Feature to Future Vision Pro Models</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->

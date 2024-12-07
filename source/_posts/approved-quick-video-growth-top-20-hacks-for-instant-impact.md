@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Quick Video Growth  Top 20 Hacks for Instant Impact\""
-date: 2024-11-22T07:29:02.973Z
-updated: 2024-11-28T04:55:03.124Z
+date: 2024-12-04T18:06:00.472Z
+updated: 2024-12-07T17:16:36.067Z
 tags:
   - ai video
   - ai youtube
@@ -38,7 +38,7 @@ With that said, the following two-columned tables give you detailed information 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 1: YouTube Playback Hotkeys
@@ -90,10 +90,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -103,6 +99,10 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -118,6 +118,10 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -129,10 +133,6 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Numpad)   | Zoom out                                              |
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
@@ -146,10 +146,6 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -159,10 +155,14 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -185,17 +185,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ehind-the-scenes-how-ajey-monetizes-content-for-2024/"><u>[New] Behind the Scenes How Ajey Monetizes Content for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/new-create-digital-humor-kapwings-meme-builder/"><u>[New] Create Digital Humor Kapwing's Meme Builder</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-unraveling-the-art-of-screencasts-a-step-by-step-approach-for-2024/"><u>[New] Unraveling the Art of Screencasts A Step-by-Step Approach for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-mastering-gradual-audio-silence-with-audacity/"><u>[Updated] 2024 Approved Mastering Gradual Audio Silence with Audacity</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-first-steps-into-the-world-of-av1/"><u>[Updated] First Steps Into the World of AV1</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-gamers-nexus-1000plus-game-sessions/"><u>[Updated] Gamers' Nexus 1,000+ Game Sessions</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-filmora-tutorials-simple-steps-to-a-dynamic-youtube-subscribe-button/"><u>[Updated] In 2024, Filmora Tutorials Simple Steps to a Dynamic YouTube Subscribe Button</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Oppo A59 5G | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-realme-12plus-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Realme 12+ 5G</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-meditative-playlist-top-10-free-tracks-for-serenity/"><u>In 2024, Meditative Playlist Top 10 Free Tracks for Serenity</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-itel-a60-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Itel A60 without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ring-youtube-live-top-webcam-selection-tips/"><u>Mastering YouTube Live Top Webcam Selection Tips</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-how-to-add-chapters-to-vimeo-video/"><u>[New] 2024 Approved How to Add Chapters to Vimeo Video?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ssential-skills-for-youtube-gamers-for-2024/"><u>[New] Essential Skills for YouTube Gamers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-analyzing-youtubes-creator-rewards-regularity/"><u>[Updated] 2024 Approved Analyzing YouTube's Creator Rewards Regularity</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-highlighted-best-free-efficient-3d-videos-player-software/"><u>2024 Approved Highlighted Best Free, Efficient 3D Videos Player Software</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-stream-to-success-obs-youtube-broadcast-basics/"><u>2024 Approved Stream to Success OBS Youtube Broadcast Basics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-top-software-for-game-recordings/"><u>2024 Approved Top Software for Game Recordings</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/fast-start-bespoke-solutions-explore-these-8-gpt-innovations-today/"><u>Fast Start, Bespoke Solutions: Explore These 8 GPT Innovations Today</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-iphone-15-pro-max-from-backup-when-itunes-backup-is-corrupt-or-not-compatible-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Restore iPhone 15 Pro Max from Backup when iTunes Backup is Corrupt or not compatible | Stellar</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/optimizing-videos-for-mobile-viewing-and-sharing-on-platforms-like-youtube-and-via-email/"><u>Optimizing Videos for Mobile Viewing and Sharing on Platforms Like YouTube & Via Email</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-solution-for-audio-dropouts-on-the-logitech-g930-microphone-setup/"><u>Step-by-Step Solution for Audio Dropouts on the Logitech G930 Microphone Setup</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-novel-creation-the-power-of-chatgpt-as-a-co-author/"><u>Unlocking Novel Creation: The Power of ChatGPT as a Co-Author</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Techno Gamers' Income Revolution for 2024"
-date: 2024-11-26T23:41:44.351Z
-updated: 2024-11-28T10:26:37.080Z
+date: 2024-12-02T18:25:38.855Z
+updated: 2024-12-07T18:03:30.818Z
 tags:
   - ai video
   - ai youtube
@@ -52,10 +52,6 @@ Ujjwal Chaurasia, alias Techno Gamerz, was born and grew up in New Delhi, India.
 
 ![techno gamerz youtube marketing](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 But after seeing potential in what Techno Gamerz was doing, his brother encouraged him to post more often. His first viral video was for Dragon Ball Z, a downloading tutorial. This video garnered a massive 250K views, boosting his channel's profile. The young YouTube star has never looked back since then.
 
 Meantime, you must be asking yourself how YouTube generates income in India. It's simple; via AdSense! YouTube's RPM (Revenue Per Mile) metric per 1,000 views varies between countries. In India, the video-sharing platform pays $0.50 per 1,000 views. This means that Indian YouTube teachers and influencers can earn $500 after garnering 1 million views.
@@ -79,13 +75,13 @@ As expected, Ujjwal Chaurasia has a massive following on other social media plat
 
 ![techno gamerz instagram](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 He also has another Instagram account called "[Techno\_Gamerz](https://www.instagram.com/techno%5Fgamerz/)," which has over 1M followers and over 120K likes. Ujjwal uses this account to keep his followers abreast of what's happening on his YouTube channel and give hints of future releases. He also posts subscriber milestones. His Twitter account is "[Ujjwal Chaurasia](https://twitter.com/UjjwalGamer)," with over 116K followers and around 290 posts.
 
 ![techno gamerz instagram and twitter homepage](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ujjwal is also venturing into music lately, specifically Hip Hop. He partnered with one of India's most prominent producers, Sez on the Beat, to release Game On. This music tells a tale of how Chaurasia started from zero subscribers to more than 10 million. Currently, this single boasts over 62 million views.
 
@@ -114,7 +110,7 @@ But to be one of the most popular YouTubers, you'll need diversity. Techno Gamer
 His other videos, "BeamNG" and "Just Draw," have more than 12 million and 13 million views, respectively. GTA V is the most loved by his audience, with over 30 million views.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus Tip: How To Be a YouTuber and Make Videos Like Techno Gamerz
@@ -133,17 +129,29 @@ Let's learn how to create and edit a YouTube video on Filmora 11:
 
 ![techno gamerz income start a new video project](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Install and run Filmora 11 on your computer and choose the 16:9 aspect ratio for YouTube videos. Then, start a **New Project**.
 
 ##### Step2 Import the YouTube video tutorial
 
 ![techno gamerz income upload video](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now click the **Import Media** button to open a video file from your local storage. You can add multiple media files before moving them to the storyboard.
 
 ##### Step3 Edit your gaming video
 
 ![techno gamerz income trim and split video](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Start by trimming your video to remove the noisy or unwanted parts. To trim and split a video, place the playhead where you want to cut and press the **Split** button. Repeat the same procedure to cut out a clip and delete it.
 
@@ -164,6 +172,10 @@ Techno Gamerz is not alone in Indian YouTube vlogging. CarryMinati is another to
 ### 2\. How much does Techno Gamerz earn from one video?
 
 It depends on the number of views. According to reports, this popular Indian YouTuber earns over $1.21 per 1,000 views. He has over 7.5 billion views currently.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. What does Techno Gamerz do for a living?
 
@@ -186,7 +198,7 @@ Ujjwal Chaurasia, alias Techno Gamerz, was born and grew up in New Delhi, India.
 ![techno gamerz youtube marketing](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 But after seeing potential in what Techno Gamerz was doing, his brother encouraged him to post more often. His first viral video was for Dragon Ball Z, a downloading tutorial. This video garnered a massive 250K views, boosting his channel's profile. The young YouTube star has never looked back since then.
@@ -212,19 +224,15 @@ As expected, Ujjwal Chaurasia has a massive following on other social media plat
 
 ![techno gamerz instagram](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 He also has another Instagram account called "[Techno\_Gamerz](https://www.instagram.com/techno%5Fgamerz/)," which has over 1M followers and over 120K likes. Ujjwal uses this account to keep his followers abreast of what's happening on his YouTube channel and give hints of future releases. He also posts subscriber milestones. His Twitter account is "[Ujjwal Chaurasia](https://twitter.com/UjjwalGamer)," with over 116K followers and around 290 posts.
 
 ![techno gamerz instagram and twitter homepage](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Ujjwal is also venturing into music lately, specifically Hip Hop. He partnered with one of India's most prominent producers, Sez on the Beat, to release Game On. This music tells a tale of how Chaurasia started from zero subscribers to more than 10 million. Currently, this single boasts over 62 million views.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Why Is Techno Gamerz Trending on YouTube?
 
@@ -250,6 +258,10 @@ But to be one of the most popular YouTubers, you'll need diversity. Techno Gamer
 
 His other videos, "BeamNG" and "Just Draw," have more than 12 million and 13 million views, respectively. GTA V is the most loved by his audience, with over 30 million views.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus Tip: How To Be a YouTuber and Make Videos Like Techno Gamerz
 
 Evidently, you need to create compelling videos to increase your chances of getting over 1 million views and matching the **Techno Gamerz salary**. So, what makes a great YouTube video? The perfect YouTube videos should have a catchy intro, voice overlays, picture-in-picture effects, background audio, and more. You can also include elements like timers, subtitles, and effect overlays.
@@ -272,19 +284,11 @@ Install and run Filmora 11 on your computer and choose the 16:9 aspect ratio for
 
 ![techno gamerz income upload video](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now click the **Import Media** button to open a video file from your local storage. You can add multiple media files before moving them to the storyboard.
 
 ##### Step3 Edit your gaming video
 
 ![techno gamerz income trim and split video](https://images.wondershare.com/filmora/article-images/2022/11/techno-gamerz-youtube-income-2022-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Start by trimming your video to remove the noisy or unwanted parts. To trim and split a video, place the playhead where you want to cut and press the **Split** button. Repeat the same procedure to cut out a clip and delete it.
 
@@ -298,21 +302,17 @@ If you're satisfied with the edited video, click the **Export** button, then sel
 
 ## Hot FAQs on Techno Gamerz
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Who earns more between Techno Gamerz and Carry Minati?
 
 Techno Gamerz is not alone in Indian YouTube vlogging. CarryMinati is another top YouTuber in India, with 36.90 million followers. This YouTuber earns more than 25 Lakhs per month with annual revenue of at least 3 Crore Rupees. According to reports, Carry Minati (Ajey Nagar) has over $5 million in net worth.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. How much does Techno Gamerz earn from one video?
 
 It depends on the number of views. According to reports, this popular Indian YouTuber earns over $1.21 per 1,000 views. He has over 7.5 billion views currently.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. What does Techno Gamerz do for a living?
 
@@ -347,19 +347,22 @@ YouTubing can pay top money as long as you do it professionally. But it may need
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-create-the-loop-instagrams-boomerang-mastery/"><u>[New] 2024 Approved Create the Loop Instagram's Boomerang Mastery</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-building-a-powerhouse-business-channel-in-under-5-minutes-for-2024/"><u>[Updated] Building a Powerhouse Business Channel in Under 5 Minutes for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-elevate-your-video-presence-mastery-of-channel-art-and-banner-sizes-for-2024/"><u>[Updated] Elevate Your Video Presence Mastery of Channel Art and Banner Sizes for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-superior-streaming-made-simple-enabling-av1-in-youtube-for-2024/"><u>[Updated] Superior Streaming Made Simple Enabling AV1 in YouTube for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-hot-takes-dailys-most-popular-video-tracks/"><u>2024 Approved Hot Takes Daily's Most Popular Video Tracks</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-honor-x8b-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Honor X8b Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/free-iphone-and-ipod-touch-texting-apps/"><u>Free iPhone & iPod Touch Texting Apps</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-nokia-130-music-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Nokia 130 Music | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/how-to-embed-facebook-live-on-a-website-for-2024/"><u>How to Embed Facebook Live on a Website for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-samsung-galaxy-s21-fe-5g-2023-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Samsung Galaxy S21 FE 5G (2023) without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-custom-soundtracks-simplified-converting-from-spotify-playlists-to-youtube-music/"><u>In 2024, Custom Soundtracks Simplified Converting From Spotify Playlists to YouTube Music</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/perfect-your-titling-skills-with-our-best-practices-for-2024/"><u>Perfect Your Titling Skills with Our Best Practices for 2024</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-motorola-edge-40-neo-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Motorola Edge 40 Neo</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ng-and-title-strategies-for-youtube-success-stories/"><u>Tagging and Title Strategies for YouTube Success Stories</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-boosting-channels-growth-strategies-for-effective-trailers/"><u>[Updated] Boosting Channels' Growth Strategies for Effective Trailers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-conquering-the-fan-base-youtubes-pathway-to-more-followers-for-2024/"><u>[Updated] Conquering the Fan Base YouTube's Pathway to More Followers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-subtitle-extraction-top-10-free-apps-rated/"><u>[Updated] In 2024, Subtitle Extraction Top 10 Free Apps Rated</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-reviving-retro-film-techniques-detailed-instructions-for-2024/"><u>[Updated] Reviving Retro Film Techniques Detailed Instructions for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-10-unique-video-reaction-strategies-for-online-enthusiasts/"><u>2024 Approved 10 Unique Video Reaction Strategies for Online Enthusiasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-rise-on-youtube-initiating-your-chanel-and-earning-pathway/"><u>2024 Approved Rise on YouTube Initiating Your Chanel & Earning Pathway</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-thumbnail-scaling-techniques-for-youtube/"><u>2024 Approved Thumbnail Scaling Techniques for YouTube</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/augmented-gameplay-ai-assisted-strategies-for-dandd-enthusiasts/"><u>Augmented Gameplay: AI-Assisted Strategies for D&D Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/effective-methods-share-twitch-stream-on-facebook-for-2024/"><u>Effective Methods | Share Twitch Stream on Facebook for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/end-of-unprintable-axes-hp-printer-functioning-properly/"><u>End of Unprintable Axes: HP Printer Functioning Properly</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/from-raw-recordings-to-professional-vids-webcam-edition/"><u>From Raw Recordings to Professional Vids - Webcam Edition</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-discreetly-discover-anonymously-observe/"><u>In 2024, Discreetly Discover, Anonymously Observe</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-from-the-apple-iphone-6-plus-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock From the Apple iPhone 6 Plus Without Previous Owner?</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-navigating-youtubes-queue-with-precision-a-comprehensive-tutorial/"><u>In 2024, Navigating YouTube's Queue with Precision A Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-streamlining-success-strategies-for-daily-vlog-authenticity/"><u>In 2024, Streamlining Success Strategies for Daily Vlog Authenticity</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/instant-access-to-compatible-usb-camera-driver-packs-hassle-free-download/"><u>Instant Access to Compatible USB Camera Driver Packs | Hassle-Free Download</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/de-your-content-presentation-with-top-tier-templates/"><u>Upgrade Your Content Presentation with Top-Tier Templates</u></a></li>
 </ul></div>
 

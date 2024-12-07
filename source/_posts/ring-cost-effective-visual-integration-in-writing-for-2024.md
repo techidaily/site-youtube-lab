@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Cost-Effective Visual Integration in Writing for 2024\""
-date: 2024-08-28T16:39:36.166Z
-updated: 2024-08-29T16:39:36.166Z
+date: 2024-11-30T17:52:18.063Z
+updated: 2024-12-07T16:17:19.091Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -50,6 +54,10 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
@@ -64,11 +72,19 @@ Set the preferred duration of the title by dragging one of its ends to the left 
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -82,20 +98,21 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,8 +121,24 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-advanced-color-techniques-incorporating-luts-for-cinematic-flair/"><u>[New] Advanced Color Techniques Incorporating Luts for Cinematic Flair</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/udiovisual-innovators-best-portable-devices-for-editors/"><u>[New] Audiovisual Innovators Best Portable Devices for Editors</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/apture-youtubes-subtitles-on-no-cost-platforms-for-2024/"><u>[New] Capture YouTube's Subtitles on No-Cost Platforms for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-leveraging-youtube-comments-for-content-improvement/"><u>[New] Leveraging YouTube Comments for Content Improvement</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-overcoming-windows-10-photo-viewer-challenges-quick-fixes/"><u>[Updated] 2024 Approved Overcoming Windows 10 Photo Viewer Challenges Quick Fixes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-power-of-politeness-in-growing-your-audience/"><u>[Updated] 2024 Approved The Power of Politeness in Growing Your Audience</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-enhancing-engagement-through-thoughtful-youtube-tags/"><u>[Updated] In 2024, Enhancing Engagement Through Thoughtful YouTube Tags</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-windows-11-game-recordings-the-ultimate-guide-to-successful-techniques/"><u>[Updated] In 2024, Windows 11 Game Recordings The Ultimate Guide to Successful Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-maximize-views-with-these-top-rated-keyword-analysis-tools-for-2024/"><u>[Updated] Maximize Views with These Top-Rated Keyword Analysis Tools for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-bridging-photos-and-video-in-pixiz-a-comprehensive-guide/"><u>2024 Approved Bridging Photos & Video in Pixiz A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-ultimate-list-templates-for-youtube-previews/"><u>2024 Approved Ultimate List Templates for YouTube Previews</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-into-livestrances-a-gamers-guide-to-youtube-success-for-2024/"><u>Breaking Into Livestrances A Gamers' Guide to YouTube Success for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-captivating-youtube-presence-the-ultimate-guide-to-making-thumbnails-on-phones/"><u>Crafting Captivating YouTube Presence The Ultimate Guide to Making Thumbnails on Phones</u></a></li>
+<li><a href="https://article-files.techidaily.com/first-film-experience-selecting-best-gopro-gear-for-2024/"><u>First Film Experience Selecting Best GoPro Gear for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/optimizing-ios-efficiency-seamlessly-integrate-chatgpt-and-siri-for-smarter-interactions/"><u>Optimizing iOS Efficiency: Seamlessly Integrate ChatGPT and Siri for Smarter Interactions</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-methods-to-detect-if-your-location-is-being-monitored-by-apples-airtag/"><u>Unveiling the Methods to Detect If Your Location Is Being Monitored by Apple's AirTag</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138621310-9781601634962-viral-mythology/"><u>Viral Mythology | Free Book</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

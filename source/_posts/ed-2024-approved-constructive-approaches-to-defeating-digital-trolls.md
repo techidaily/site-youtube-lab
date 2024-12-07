@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Constructive Approaches to Defeating Digital Trolls\""
-date: 2024-11-23T18:48:22.897Z
-updated: 2024-11-27T22:36:43.810Z
+date: 2024-11-30T18:00:13.944Z
+updated: 2024-12-07T18:17:51.913Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/024ced9c2dfad0404f5ee91e1efddba3dce2978ad
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/024ced9c2dfad0404f5ee91e1efddba3dce2978ad
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,22 +83,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-a-deep-dive-into-youtube-writers-workshop-space/"><u>[New] In 2024, A Deep Dive Into YouTube’ Writers' Workshop Space</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-seamlessly-download-youtube-thumbnails-online/"><u>[New] In 2024, Seamlessly Download YouTube Thumbnails Online</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-the-path-to-profitable-videography-starting-strong/"><u>[New] In 2024, The Path to Profitable Videography Starting Strong</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-the-unfiltered-guide-to-everyday-video-content/"><u>[New] In 2024, The Unfiltered Guide to Everyday Video Content</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/aximize-video-reach-in-youtubes-seo-arena/"><u>[New] Maximize Video Reach in YouTube's SEO Arena</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/eamless-webm-creation-from-youtube-videos/"><u>[New] Seamless WebM Creation From YouTube Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-cultivating-lasting-partnerships-with-brands-in-youtube-land-for-2024/"><u>[Updated] Cultivating Lasting Partnerships with Brands in Youtube Land for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-elevate-views-not-video-length-expert-guide-to-yt-desc-templates/"><u>2024 Approved Elevate Views, Not Video Length Expert Guide to YT Desc Templates</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-navigating-thumbnail-sizes-for-youtube-content-excellence/"><u>2024 Approved Navigating Thumbnail Sizes for YouTube Content Excellence</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ing-the-payment-structure-on-youtube/"><u>Decoding the Payment Structure on YouTube</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-oppo-find-x6-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Methods to Turn off Life 360 On Oppo Find X6 Pro without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-unraveling-youtubes-platform-for-content-crafting/"><u>In 2024, Unraveling YouTube’s Platform for Content Crafting</u></a></li>
-<li><a href="https://article-helps.techidaily.com/inside-the-metaverse-discovering-6-in-depth-models/"><u>Inside the Metaverse Discovering 6 In-Depth Models</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ness-set-to-sound-10-hilarious-hits-for-2024/"><u>Silliness Set to Sound 10 Hilarious Hits for 2024</u></a></li>
-<li><a href="https://win-web.techidaily.com/step-by-step-tutorial-on-how-to-download-and-convert-basketball-coaching-videos-into-common-file-types-mp4-avi-flv-mov/"><u>Step-by-Step Tutorial on How to Download and Convert Basketball Coaching Videos Into Common File Types (MP4, AVI, FLV, MOV)</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unlocking-creativity-with-ai-9-methods-for-using-chatgpt-to-craft-novels/"><u>Unlocking Creativity with AI: 9 Methods for Using ChatGPT to Craft Novels</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unlocking-the-secrets-to-identifying-your-macbook-serial-and-model-number/"><u>Unlocking the Secrets to Identifying Your MacBook Serial and Model Number</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-hds-finest-picks-reviewing-top-screen-recorders/"><u>[New] HD's Finest Picks Reviewing Top Screen Recorders</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-4-ways-to-set-up-your-talking-head-shots-for-youtube-for-2024/"><u>[Updated] 4 Ways To Set Up Your Talking-Head Shots For YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-shots-a-vloggers-lens-compendium/"><u>[Updated] In 2024, Mastering Shots A Vlogger’s Lens Compendium</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-navigating-youtube-video-production-tools/"><u>[Updated] In 2024, Navigating YouTube Video Production Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-instantaneous-video-downloader-selection-guide-for-2024/"><u>[Updated] Instantaneous Video Downloader Selection Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-asmr-mastery-in-action-strategies-for-dynamic-and-effective-videos/"><u>2024 Approved ASMR Mastery in Action Strategies for Dynamic and Effective Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-client-visionaries-shaping-brand-narratives-through-video/"><u>2024 Approved Client Visionaries Shaping Brand Narratives Through Video</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-whats-youtube-creative-commons-and-how-to-use-cc-to-make-video/"><u>2024 Approved What's YouTube Creative Commons and How to Use CC to Make Video</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cost-effective-choice-evaluation-6-sheet-amazon-basics-paper-cutter-a-detailed-look/"><u>Cost-Effective Choice Evaluation: 6-Sheet Amazon Basics Paper Cutter - A Detailed Look</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-easily-disableremove-youtube-shorts-permanently-in-2024/"><u>How to Easily Disable/Remove YouTube Shorts Permanently, In 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-your-amazon-prime-experience-with-toshibas-55lf711u20-fire-tv-reviewed/"><u>Maximizing Your Amazon Prime Experience with Toshiba's 55LF711U20 Fire TV Reviewed!</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolve-the-persistent-blinking-a-complete-guide/"><u>Resolve the Persistent Blinking: A Complete Guide</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-solving-plugged-in-issues-with-realtek-ads/"><u>Troubleshooting Guide: Solving 'Plugged In' Issues with Realtek ADS</u></a></li>
+<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-realme-12-pro-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Realme 12 Pro 5G Hard Reset | Dr.fone</u></a></li>
 </ul></div>
 

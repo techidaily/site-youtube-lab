@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Building Mental Armor Against Online Critics for 2024"
-date: 2024-11-23T09:37:25.247Z
-updated: 2024-11-28T03:26:24.528Z
+date: 2024-11-30T16:37:56.832Z
+updated: 2024-12-07T18:15:54.636Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/9a9907ac5dbaa04f31e369bac93b279f477635cd1
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/9a9907ac5dbaa04f31e369bac93b279f477635cd1
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,18 +83,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/utting-edge-voice-altering-apps-for-vloggers/"><u>[New] Cutting-Edge Voice Altering Apps for Vloggers</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-triumph-through-battle-the-supreme-selection-of-top-7-total-wars-for-2024/"><u>[New] Triumph Through Battle The Supreme Selection of Top 7 Total Wars for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-pioneering-your-way-up-on-youtube-26-key-strategies/"><u>[Updated] 2024 Approved Pioneering Your Way Up on YouTube 26 Key Strategies</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-the-hidden-pathway-to-logging-in-depth-whatsapp-chats/"><u>[Updated] 2024 Approved The Hidden Pathway to Logging In-Depth WhatsApp Chats</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-the-ultimate-checklist-for-efficiently-uploading-tracks-on-youtube/"><u>[Updated] 2024 Approved The Ultimate Checklist for Efficiently Uploading Tracks on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-amplify-your-channel-effortless-tactics-for-more-views-for-2024/"><u>[Updated] Amplify Your Channel Effortless Tactics for More Views for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-narrative-mastery-essential-tactics-for-youtube-success/"><u>[Updated] In 2024, Narrative Mastery Essential Tactics for YouTube Success</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-top-gear-helmet-cams-the-most-trusted-choice-riders-for-2024/"><u>[Updated] Top Gear Helmet Cams - The Most Trusted Choice Riders for 2024</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/1728494278079-aomei/"><u>全デバイス対応の簡単操作で完璧なバックアップとリカバリ: AOMEIソフトウェアの守護者</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/es-unveiled-exploring-youtubes-curious-numbers-2017/"><u>Figures Unveiled! Exploring YouTube's Curious Numbers (2017)</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-do-you-unlock-your-iphone-12-learn-all-4-methods-drfone-by-drfone-ios/"><u>How Do You Unlock your iPhone 12? Learn All 4 Methods | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-tecno-camon-20-premier-5g-s-lock-screen-pattern-pin-or-password-by-drfone-android-unlock-android-unlock/"><u>How to bypass Tecno Camon 20 Premier 5G’s lock screen pattern, PIN or password</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/stay-secure-dont-get-hooked-by-googles-deceptive-bard/"><u>Stay Secure, Don't Get Hooked by Google's Deceptive Bard</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/aughing-along-to-mimicked-melodies-for-2024/"><u>[New] Laughing Along to Mimicked Melodies for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-navigating-the-world-of-audio-editing-in-audacity-for-mac-devices/"><u>[New] Navigating the World of Audio Editing in Audacity for Mac Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/yan-kaji-youthful-wealth-through-internet-popularity-for-2024/"><u>[New] Ryan Kaji Youthful Wealth Through Internet Popularity for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/treamlining-your-filming-setup-the-beginners-companion-for-2024/"><u>[New] Streamlining Your Filming Setup The Beginner's Companion for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-bend-reality-with-your-own-animated-craftsmanship/"><u>[Updated] 2024 Approved Bend Reality with Your Own Animated Craftsmanship</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-elevating-user-engagement-with-detailed-video-chapters-in-youtube/"><u>[Updated] In 2024, Elevating User Engagement with Detailed Video Chapters in YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-instant-classics-days-highest-youtube-rankings/"><u>[Updated] In 2024, Instant Classics Day’s Highest YouTube Rankings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-quick-video-growth-top-20-hacks-for-instant-impact/"><u>2024 Approved Quick Video Growth Top 20 Hacks for Instant Impact</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Vivo Y78 5G | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/easy-steps-transforming-au-audio-files-into-mp3-format-with-simple-tools/"><u>Easy Steps: Transforming AU Audio Files Into MP3 Format with Simple Tools</u></a></li>
+<li><a href="https://video-capture.techidaily.com/effortlessly-record-macos-content-and-display-for-2024/"><u>Effortlessly Record macOS Content & Display for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-resolve-cod-modern-warfare-error-6-issue-for-a-smooth-pc-gaming-experience/"><u>How to Resolve COD: Modern Warfare Error 6 Issue for a Smooth PC Gaming Experience</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/navigating-the-best-freefire-tips-online/"><u>Navigating the Best FreeFire Tips Online</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/seamless-video-conferencing-with-zoom-and-gmail-for-2024/"><u>Seamless Video Conferencing with Zoom & Gmail for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/by-step-guide-to-music-insertion-in-youtube-editing-tools/"><u>Step-by-Step Guide to Music Insertion in YouTube Editing Tools</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/top-rated-applications-for-retrieving-lost-iphone-contacts/"><u>Top Rated Applications for Retrieving Lost iPhone Contacts</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/tga-bmp/"><u>무료 인터넷 용인 - TGA 폴리스타일을 BMP으로 전환하기</u></a></li>
 </ul></div>
 

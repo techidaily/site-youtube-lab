@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Premiere Guide  Uploading Vids for YouTube\""
-date: 2024-08-28T16:42:16.592Z
-updated: 2024-08-29T16:42:16.592Z
+date: 2024-12-03T17:08:25.356Z
+updated: 2024-12-07T17:37:46.968Z
 tags:
   - ai video
   - ai youtube
@@ -68,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/b2e687db976d53413ad200065943dddbaf2bd03eb
 
 ![choosing-format](https://images.wondershare.com/multimedia/choosing-format.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once you select  you can check the 'output name' field and see that premiere is automatically set the output file to .mp4 which is exactly what we need.
 
 #### 4\. Preset
@@ -81,6 +85,10 @@ thumbnail: https://thmb.techidaily.com/b2e687db976d53413ad200065943dddbaf2bd03eb
  Once a preset is selected a summary of the settings is displayed below, normally these will be well suited to your project, however you can fine tune anything you wish by selecting the video or audio tabs at the bottom which give you the chance to adjust each parameter individually. If you do this, you can save these changes as a custom preset by clicking the button at the side of the Preset dropdown menu and simply use it on later projects by selecting it from the list the same as any other, a great time saving tool.
 
 ![finetuning](https://images.wondershare.com/multimedia/finetuning.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 5\. Rendering
 
@@ -108,11 +116,19 @@ thumbnail: https://thmb.techidaily.com/b2e687db976d53413ad200065943dddbaf2bd03eb
 
 ![upload-menu](https://images.wondershare.com/multimedia/upload-menu.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  You can either drag your file into the window or click on it to open a standard file browser to locate the desired file, click and the upload will begin. The dropdown underneath allows you to set the video as Public, Unlisted or Private. You can change this at any time once the video is uploaded as well.
 
  This opens the upload progress window, where you can add in a name, description and tags as well as add the video to a playlist or adjust the privacy settings as the video is uploading.
 
 ![upload-progress](https://images.wondershare.com/multimedia/upload-progress.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Once the upload as finished, you can do final adjustments to settings and choose a thumbnail for the video. The final step is to click the 'Publish' button and your video will be processed and go live.
 
@@ -120,20 +136,21 @@ thumbnail: https://thmb.techidaily.com/b2e687db976d53413ad200065943dddbaf2bd03eb
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
 
 Follow @Benjamin Arango
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +159,26 @@ Follow @Benjamin Arango
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-mastery-over-multiple-tiktok-video-harvest/"><u>[New] 2024 Approved Mastery Over Multiple TikTok Video Harvest</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-reliving-fun-the-vhs-era-of-goof-troop-comedy-for-2024/"><u>[New] Reliving Fun The VHS Era of 'Goof Troop' Comedy for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-top-quality-video-uplift-immaculate-resolution-for-2024/"><u>[New] Top Quality Video Uplift Immaculate Resolution for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-tricks-to-flawless-screen-casting-on-mobile-and-desktop/"><u>[New] Tricks to Flawless Screen Casting on Mobile and Desktop</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ules-magic-unfolds-access-nine-premium-whole-film-holiday-movies-for-free/"><u>[New] Yule's Magic Unfolds Access Nine Premium, Whole-Film Holiday Movies for Free</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-discovering-the-leading-speech-to-text-apps-for-ipads-3/"><u>[Updated] In 2024, Discovering the Leading Speech-to-Text Apps for iPads #3</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-navigate-easily-through-youtube-channel-disabling-on-devices/"><u>[Updated] In 2024, Navigate Easily Through YouTube Channel Disabling on Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-steps-to-restore-your-youtube-shorts-thumbnails/"><u>[Updated] In 2024, Steps to Restore Your YouTube Shorts' Thumbnails</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-revealing-hidden-group-sharing-in-chat-space-for-2024/"><u>[Updated] Revealing Hidden Group Sharing in Chat Space for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unraveling-the-process-of-uploading-360-footage-to-youtube-for-2024/"><u>[Updated] Unraveling the Process of Uploading 360° Footage to YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-tracing-view-count-to-cash-flow-on-youtube-platform/"><u>2024 Approved Tracing View Count to Cash Flow on YouTube Platform</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/mize-your-youtube-watch-experience-speed-settings/"><u>Customize Your YouTube Watch Experience (Speed Settings)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/through-engagement-securing-youtube-partnership-membership-for-2024/"><u>Earn Through Engagement Securing YouTube Partnership Membership for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixes-and-tips-how-to-stop-genshin-impact-from-continuously-crashing-on-your-pc/"><u>Fixes & Tips: How to Stop Genshin Impact From Continuously Crashing on Your PC</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/groundbreaking-release-discover-the-global-innovation-in-photo-restoration-by-stellar/"><u>Groundbreaking Release: Discover the Global Innovation in Photo Restoration by Stellar</u></a></li>
+<li><a href="https://win-able.techidaily.com/halo-infinite-pc-stability-fixes-for-continuous-crashes-and-freezes/"><u>Halo Infinite PC Stability: Fixes for Continuous Crashes and Freezes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-expert-speaker-change-devices-for-youtube-gurus/"><u>In 2024, Expert Speaker Change Devices for YouTube Gurus</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-how-does-youtube-pay-you/"><u>In 2024, How Does YouTube Pay You?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-streamline-your-youtube-channel-url-with-these-tips/"><u>In 2024, Streamline Your YouTube Channel URL with These Tips</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->

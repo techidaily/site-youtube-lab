@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Ahead of Tomorrow  Key Youtube Gatherings (Post-VidCon)\""
-date: 2024-11-21T04:53:13.920Z
-updated: 2024-11-28T01:08:09.978Z
+date: 2024-11-30T17:09:11.989Z
+updated: 2024-12-07T17:29:17.022Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 7. [Summer in the City (UK)](#sitc)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **The Most Important YouTube Events**
@@ -45,6 +45,10 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
 
@@ -57,7 +61,7 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
@@ -87,6 +91,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -122,10 +130,6 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -149,10 +153,6 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
@@ -204,6 +204,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -228,10 +232,6 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -253,19 +253,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ringing-bygone-era-filmmaking-to-life-today/"><u>[New] Bringing Bygone Era Filmmaking to Life Today</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-convenient-viewing-setting-up-youtube-on-large-tv-panels/"><u>[New] In 2024, Convenient Viewing Setting Up YouTube on Large TV Panels</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-simplifying-complexities-in-youtube-shorts/"><u>[New] In 2024, Simplifying Complexities in YouTube Shorts</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-ultimate-toolkit-capture-windows-11-displays/"><u>[New] In 2024, Ultimate Toolkit Capture Windows 11 Displays</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-precision-editing-made-simple-with-youtube-studio-tools/"><u>[Updated] In 2024, Precision Editing Made Simple with YouTube Studio Tools</u></a></li>
-<li><a href="https://extra-information.techidaily.com/becoming-a-true-connoisseur-of-srt-text-creation-for-2024/"><u>Becoming a True Connoisseur of SRT Text Creation for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/deep-dive-into-toms-digital-hardware-solutions/"><u>Deep Dive Into Tom's Digital Hardware Solutions</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/rs-workshop-enhancing-your-youtube-video-visibility-for-2024/"><u>Editor's Workshop Enhancing Your Youtube Video Visibility for 2024</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/essential-troubleshooting-for-predominant-video-blunders/"><u>Essential Troubleshooting for Predominant Video Blunders</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-gaming-recordings-software/"><u>Focused Gaming Recordings Software</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/from-concept-to-canvas-how-to-harness-microsofte-ai-image-creation-capabilities-for-unique-visuals/"><u>From Concept to Canvas: How to Harness Microsoft'e AI Image Creation Capabilities for Unique Visuals</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-it-honor-x50i-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Honor X50i Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-x7b-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Honor X7b Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/unlocking-security-installing-kali-on-a-windows-machine/"><u>Unlocking Security: Installing Kali on a Windows Machine</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-exclusive-look-top-5-value-for-money-gaming-mice-and-keyboards/"><u>[New] Exclusive Look Top 5 Value-for-Money Gaming Mice & Keyboards</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-does-youtube-offer-frequent-payments-to-you/"><u>[New] In 2024, Does YouTube Offer Frequent Payments to You?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/erfect-your-presence-with-solo-video-setups-and-techniques/"><u>[New] Perfect Your Presence with Solo Video Setups and Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tep-by-step-guide-to-emoji-usage-in-yt-feedback/"><u>[New] Step-by-Step Guide to Emoji Usage in YT Feedback</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-blueprint-composing-a-hit-mukbang-video/"><u>[Updated] 2024 Approved The Blueprint Composing a Hit Mukbang Video</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-boosting-your-channels-income-the-optimal-view-count-quotient/"><u>[Updated] Boosting Your Channel's Income The Optimal View Count Quotient</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-optimal-visual-branding-best-practices-for-youtube-channel-size/"><u>[Updated] In 2024, Optimal Visual Branding Best Practices for YouTube Channel Size</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-infinix-note-30i-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Infinix Note 30i | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/dispentic-tools-to-launch-your-youtube-career-for-2024/"><u>15 Indispentic Tools to Launch Your YouTube Career for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/effortless-viewing-top-free-compatible-player-software/"><u>Effortless Viewing Top Free, Compatible Player Software</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/fans-choice-cutting-edge-youtube-channels/"><u>Film Fan's Choice Cutting-Edge YouTube Channels</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-honor-x50-contacts-an-easy-method-explained-by-fonelab-android-recover-contacts/"><u>How to Restore Deleted Honor X50 Contacts An Easy Method Explained.</u></a></li>
+<li><a href="https://techtrends.techidaily.com/iphone-tutorial-easily-insert-subtitles-and-closed-captions-into-any-video-content/"><u>IPhone Tutorial: Easily Insert Subtitles and Closed Captions Into Any Video Content</u></a></li>
+<li><a href="https://win-forum.techidaily.com/leading-online-platforms-connect-on-facebook-tweet-with-twitter-share-via-instagram-and-stream-on-youtube/"><u>Leading Online Platforms: Connect on Facebook, Tweet with Twitter, Share via Instagram & Stream on YouTube</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/prime-day-savings-alert-discover-the-ultimate-top-36-apple-bargains-still-up-for-grabs/"><u>Prime Day Savings Alert: Discover the Ultimate Top 36 Apple Bargains Still Up for Grabs!</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/strategic-health-planning-crafting-successful-objectives-using-chatgpt/"><u>Strategic Health Planning: Crafting Successful Objectives Using ChatGPT</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unlocking-the-secrets-perfecting-your-tiktok-duet-skills/"><u>Unlocking the Secrets: Perfecting Your TikTok Duet Skills</u></a></li>
 </ul></div>
 
