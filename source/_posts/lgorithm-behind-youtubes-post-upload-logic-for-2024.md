@@ -1,7 +1,7 @@
 ---
 title: "\"The Algorithm Behind YouTube's Post-Upload Logic for 2024\""
-date: 2024-08-28T16:30:57.981Z
-updated: 2024-08-29T16:30:57.981Z
+date: 2024-12-12T18:50:36.482Z
+updated: 2024-12-13T17:16:53.083Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ You use YouTube to watch videos, post your own content, and build up a following
 
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does YouTube Work
 
 #### 1\. What Happens When You Upload?
@@ -40,9 +44,17 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
 
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
 
@@ -54,20 +66,21 @@ If videos take a long time to load for you then there are a few things you can d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +89,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-streamline-searchability-expert-techniques-for-tag-application/"><u>[New] In 2024, Streamline Searchability Expert Techniques for Tag Application</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/apid-views-hourlys-youtube-hit-list-for-2024/"><u>[New] Rapid Views Hourly's YouTube Hit List for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-fix-hidden-suggested-youtube-and-facebook-videos-explained/"><u>[Updated] 2024 Approved Fix Hidden Suggested YouTube & Facebook Videos Explained</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-guide-to-producing-impactful-lifestyle-motivational-content/"><u>[Updated] Guide to Producing Impactful Lifestyle Motivational Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-secrets-of-content-creators-finding-free-music/"><u>[Updated] In 2024, Secrets of Content Creators Finding Free Music</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/beware-of-malicious-extensions-how-a-fake-chatgpt-plugin-compromises-social-media-security/"><u>Beware of Malicious Extensions: How a Fake ChatGPT Plugin Compromises Social Media Security</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-decoding-youtube-income-how-much-does-each-1000-viewer-earn/"><u>In 2024, Decoding YouTube Income How Much Does Each 1,000 Viewer Earn?</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-learn-the-best-monitors-for-xbox-series-x-here/"><u>In 2024, Learn The Best Monitors for Xbox Series X Here</u></a></li>
+<li><a href="https://driver-install.techidaily.com/next-gen-amd-hd-audio-system/"><u>Next-Gen AMD HD Audio System</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210777230-9798889130314-optimal-living-transform-your-life-and-achieve-true-happiness/"><u>Optimal Living: Transform Your Life and Achieve True Happiness | Free Book</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-ultimate-seventh-selection-of-aquatic-cameras-for-2024/"><u>The Ultimate Seventh Selection of Aquatic Cameras for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Delve Into YouTube Metrics Using the Power of Social Blade"
-date: 2024-08-28T16:32:58.010Z
-updated: 2024-08-29T16:32:58.010Z
+date: 2024-12-11T18:09:52.719Z
+updated: 2024-12-13T17:26:26.424Z
 tags:
   - ai video
   - ai youtube
@@ -33,9 +33,17 @@ While many of the stats you can find on Social Blade are also available right on
 1. [**Your YouTube Analytics**](#yourstats)
 2. [**Spying on Other Channels**](#spy)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Your YouTube Analytics
 
 ![Social Blade for YouTube Analytics](https://images.wondershare.com/filmora/article-images/social-blade-youtube-analytics.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Social Blade is an excellent place to gauge the growth of your channel. It provides statistics on our subscribers, views, and estimated revenue.
 
@@ -55,6 +63,10 @@ If you scroll down to the second section you will be able to see your views, sub
 
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Spying on Other Channels
 
 When you check your stats, you type your channel name into the search bar. If you want to use Social Blade to monitor somebody else’s stats, type their channel name instead.
@@ -68,34 +80,30 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
  That's how you can use Social Blade for YouTube - have you ever used it?
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Make Your Videos Stand Out with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,4 +112,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-10-premier-travel-blogs-to-watch-online/"><u>[New] In 2024, 10 Premier Travel Blogs to Watch Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-revolutionize-your-room-strategies-to-record-clear-sound/"><u>[New] In 2024, Revolutionize Your Room Strategies to Record Clear Sound</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ncrease-your-channels-reach-with-these-2-tricks/"><u>[New] Increase Your Channel's Reach with These 2 Tricks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-controlling-comment-visibility-on-youtube-videos/"><u>[Updated] Controlling Comment Visibility on YouTube Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-essential-tips-enhancing-focus-in-your-youtube-video/"><u>[Updated] In 2024, Essential Tips Enhancing Focus in Your YouTube Video</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-secrets-to-superior-youtube-videos-mastering-post-upload-editing/"><u>2024 Approved Secrets to Superior YouTube Videos Mastering Post-Upload Editing</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-step-by-step-save-youtube-sounds-directly/"><u>2024 Approved Step-by-Step Save YouTube Sounds Directly</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-stream-masters-list-elite-software-and-devices-for-youtubers/"><u>2024 Approved Stream Masters List Elite Software & Devices for Youtubers</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparative-analysis-of-the-pioneer-bdr-xs06-burner-for-blu-ray-discs-featuring-ease-of-use-and-high-output-quality/"><u>Comparative Analysis of the Pioneer BDR-XS06 Burner for Blu-Ray Discs: Featuring Ease of Use & High Output Quality</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-guide-to-downloading-and-installing-the-logiteche-g602-mouse-software-for-windows-users/"><u>Easy Guide to Downloading and Installing the Logiteche G602 Mouse Software for Windows Users</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/effective-techniques-for-transferring-your-data-from-system-to-boot-drive/"><u>Effective Techniques for Transferring Your Data From System to Boot Drive</u></a></li>
+<li><a href="https://techidaily.com/fix-superfetchs-full-disk-utilization-issue-a-complete-guide/"><u>Fix Superfetch's Full Disk Utilization Issue: A Complete Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/cting-data-while-transforming-youtube-videos-into-mp3-files-for-2024/"><u>Protecting Data While Transforming YouTube Videos Into MP3 Files for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-installation-of-the-nexiq-usb-link-driver-v2/"><u>Step by Step Installation of the Nexiq USB Link Driver V2</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-review-in-depth-analysis-and-comparisons/"><u>Tom's Tech Review: In-Depth Analysis and Comparisons</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/top-5-kid-friendly-flying-toys/"><u>Top 5 Kid-Friendly Flying Toys</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/troubleshooting-a-stuck-or-unresponsive-media-player-on-win11/"><u>Troubleshooting a Stuck or Unresponsive Media Player on Win11</u></a></li>
+</ul></div>
 

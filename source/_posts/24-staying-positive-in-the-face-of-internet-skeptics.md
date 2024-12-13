@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Staying Positive in the Face of Internet Skeptics"
-date: 2024-08-28T16:37:05.580Z
-updated: 2024-08-29T16:37:05.580Z
+date: 2024-12-06T16:29:03.192Z
+updated: 2024-12-13T18:20:33.889Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/4e831fd04562f2cd6825c32accd78b3641cb3be2e
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/4e831fd04562f2cd6825c32accd78b3641cb3be2e
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,13 +81,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-unleash-the-power-of-zoom-your-win10-journey-begins-here/"><u>[New] Unleash the Power of Zoom Your Win10 Journey Begins Here</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/inters-chill-and-your-videos-selecting-heated-backdrops-for-2024/"><u>[New] Winter's Chill & Your Videos Selecting Heated Backdrops for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-quirky-quotables-tailoring-hilarious-content-for-brief-videography/"><u>[Updated] 2024 Approved Quirky Quotables Tailoring Hilarious Content for Brief Videography</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-clear-cut-content-how-to-minimize-unwanted-elements-in-video-for-2024/"><u>[Updated] Clear Cut Content How to Minimize Unwanted Elements in Video for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-echoes-of-exploration-in-role-playing-history/"><u>[Updated] Echoes of Exploration in Role-Playing History</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-top-8-strategies-for-striking-thumbnails-in-youtube-circles/"><u>[Updated] In 2024, Top 8 Strategies for Striking Thumbnails in YouTube Circles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-save-money-save-time-the-best-22-audio-crackers-for-youtube-downloads/"><u>[Updated] Save Money, Save Time The Best 22 Audio Crackers for YouTube Downloads</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-step-by-step-adding-tracks-to-youtubes-playlist-for-2024/"><u>[Updated] Step-by-Step Adding Tracks to YouTube's Playlist for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-ultimate-blueprint-to-thrive-in-youtubes-gaming-domain-with-hashes/"><u>2024 Approved The Ultimate Blueprint to Thrive in YouTube's Gaming Domain with Hashes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-the-grid-paving-the-way-for-sustainable-metropolises/"><u>Greening the Grid Paving the Way for Sustainable Metropolises</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-vocal-variations-for-stories-and-reels-an-instagram-expertise/"><u>In 2024, Vocal Variations for Stories and Reels – An Instagram Expertise</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/latest-amd-radeon-hd-7870-driver-downloads-and-update-information-for-windows-11-systems/"><u>Latest AMD Radeon HD 7870 Driver Downloads & Update Information for Windows 11 Systems</u></a></li>
+<li><a href="https://win-able.techidaily.com/no-more-quiet-twitch-streams-a-simple-fix-for-audio-problems-on-live-video/"><u>No More Quiet Twitch Streams: A Simple Fix for Audio Problems on Live Video</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshoot-and-play-effective-ways-to-fix-overwatch-2s-launch-glitches-of-2024/"><u>Troubleshoot and Play: Effective Ways to Fix Overwatch 2'S Launch Glitches of 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-the-ultimate-fcp-voice-over-guide-tips-tricks-and-best-practices/"><u>Updated 2024 Approved The Ultimate FCP Voice Over Guide Tips, Tricks, and Best Practices</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

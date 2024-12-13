@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Yule's Magic Unfolds  Access Nine Premium, Whole-Film Holiday Movies for Free\""
-date: 2024-12-06T18:10:26.773Z
-updated: 2024-12-07T17:01:21.203Z
+date: 2024-12-06T17:35:07.424Z
+updated: 2024-12-13T17:07:20.588Z
 tags:
   - ai video
   - ai youtube
@@ -32,44 +32,48 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7. Santa Who?
 
@@ -78,10 +82,6 @@ Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday 
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
@@ -110,21 +110,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/rafting-youtube-masterpieces-with-powerful-hashtag-strategies-for-2024/"><u>[New] Crafting YouTube Masterpieces with Powerful Hashtag Strategies for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-discovering-chromium-phone-sonics-online-for-2024/"><u>[New] Discovering Chromium Phone Sonics Online for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ootball-inscriptions-premier-fifa-youtube-insights-for-2024/"><u>[New] Football Inscriptions Premier FIFA YouTube Insights for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-embrace-the-pause-button-3-techniques-for-decelerating-youtube-video-playback-59-chars-slight-overage-with-rich-content-justification/"><u>[New] In 2024, Embrace the Pause Button 3 Techniques for Decelerating YouTube Video Playback (59 Chars, Slight Overage with Rich Content Justification)</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-unleash-potential-creating-a-youtube-channel-that-shines-in-games/"><u>[New] In 2024, Unleash Potential Creating a YouTube Channel that Shines in Games</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-charting-your-course-in-the-world-of-youtube-tracking-success-and-monetary-value/"><u>[Updated] Charting Your Course in the World of YouTube Tracking Success & Monetary Value</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-how-to-upload-shorts-video-on-youtube-in-2024/"><u>[Updated] How to Upload Shorts Video on YouTube, In 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-from-concept-to-completion-crafting-your-youtube-masterpiece/"><u>[Updated] In 2024, From Concept to Completion Crafting Your YouTube Masterpiece</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-best-strategies-for-saving-igtv-videos-mobilely-for-2024/"><u>[Updated] The Best Strategies for Saving IGTV Videos Mobilely for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-ultimate-hack-swiftly-delete-your-youtube-comments/"><u>2024 Approved The Ultimate Hack Swiftly Delete Your YouTube Comments</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/abbyy-japankddiocr/"><u>ABBYY JapanとKDDIがOCR技術で力を合わせる:最新情報解禁！|業界初の協同製品</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/exclusive-apples-development-of-innovative-smart-display-and-enhanced-airpods-pro-insights-from-zdnet/"><u>Exclusive: Apple's Development of Innovative Smart Display and Enhanced AirPods Pro - Insights From ZDNet</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-create-captivating-sports-videography/"><u>In 2024, Create Captivating Sports Videography</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-infinix-smart-8-hd-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Infinix Smart 8 HD | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-nokia-c12-pro-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Nokia C12 Pro to New Android? | Dr.fone</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-master-youtube-management-a-detailed-plan-for-watch-later-and-playlists/"><u>In 2024, Master YouTube Management A Detailed Plan for Watch Later and Playlists</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rief-snippet-analysis-for-beginners/"><u>[New] Brief Snippet Analysis for Beginners</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/iscover-the-top-10-historically-rich-youtube-tutorials-for-2024/"><u>[New] Discover the Top 10 Historically Rich YouTube Tutorials for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-10-stellar-tools-that-amplify-your-videos-youtube-presence-for-2024/"><u>[Updated] 10 Stellar Tools That Amplify Your Video's YouTube Presence for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-leading-ladies-of-livestreams-top-10-female-youtubers-unveiled/"><u>[Updated] 2024 Approved Leading Ladies of Livestreams Top 10 Female YouTubers Unveiled</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-illumination-in-high-dynamic-range-a-smart-option/"><u>[Updated] Illumination in High-Dynamic Range A Smart Option?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-camstudio-live-streaming-and-screen-capturing-review/"><u>[Updated] In 2024, CamStudio Live Streaming & Screen Capturing Review</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-transforming-social-media-nostalgia-how-to-edit-lookback/"><u>[Updated] In 2024, Transforming Social Media Nostalgia How to Edit Lookback</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unveiling-youtubes-behind-the-scenes-editor-space/"><u>2024 Approved Unveiling YouTube's Behind-the-Scenes Editor Space</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-virtual-expeditions-youtubes-top-immersive-titles/"><u>2024 Approved Virtual Expeditions YouTube's Top Immersive Titles</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/comprehensive-guide-to-free-os-compatible-players-for-2024/"><u>Comprehensive Guide to Free OS Compatible Players for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/effective-ways-to-boost-fps-and-reduce-lag-in-naraka-bladepoint/"><u>Effective Ways to Boost FPS & Reduce Lag in Naraka: Bladepoint</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-counteract-fake-views-boosting-genuine-audience-size/"><u>In 2024, Counteract Fake Views Boosting Genuine Audience Size</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovating-audio-visuals-podcast-covers-explained/"><u>In 2024, Innovating Audio Visuals Podcast Covers Explained</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-interactive-television-take-pot-perspectives/"><u>In 2024, INTERACTIVE TELEVISION TAKE Pot Perspectives</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-ultimate-guide-to-free-online-video-tools-for-all/"><u>In 2024, The Ultimate Guide to Free Online Video Tools for All</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/g-text-dance-2-creative-animation-strategies-for-2024/"><u>Making Text Dance 2 Creative Animation Strategies for 2024</u></a></li>
 </ul></div>
 

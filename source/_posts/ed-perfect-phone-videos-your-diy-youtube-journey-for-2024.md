@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Perfect Phone Videos  Your DIY YouTube Journey for 2024\""
-date: 2024-12-05T16:10:35.037Z
-updated: 2024-12-07T16:05:16.070Z
+date: 2024-12-07T16:48:45.453Z
+updated: 2024-12-13T18:15:23.622Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/3a57b1ddb74892f92e7ea8db98be1fa90b1375e9f
  It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How To Make YouTube Videos on Your Smartphone
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/3a57b1ddb74892f92e7ea8db98be1fa90b1375e9f
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -85,24 +85,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-docs.techidaily.com/anner-bliss-get-a-peek-at-our-library-of-50-free-youtube-banners/"><u>[New] Banner Bliss Get a Peek at Our Library of 50 Free YouTube Banners!</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-budget-friendly-hd-desktop-recording-tools-roundup/"><u>[New] In 2024, Budget-Friendly HD Desktop Recording Tools Roundup</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/tand-out-with-custom-youtube-imagery-for-2024/"><u>[New] Stand Out with Custom YouTube Imagery for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-8-free-online-instagram-reels-downloaders-that-will-save-your-day/"><u>[Updated] 2024 Approved 8 FREE Online Instagram Reels Downloaders That Will Save Your Day</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unlocking-emotional-depth-in-self-narrated-videos-yt/"><u>[Updated] 2024 Approved Unlocking Emotional Depth in Self-Narrated Videos YT</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-gaming-channel-evolution-best-14-video-ideas-on-youtube/"><u>[Updated] Gaming Channel Evolution Best 14 Video Ideas on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-directing-the-flow-of-digital-storytelling-through-youtube-fusion/"><u>[Updated] In 2024, Directing the Flow of Digital Storytelling Through Youtube Fusion</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-novices-route-to-revenue-in-the-youtube-realm/"><u>[Updated] In 2024, The Novice's Route to Revenue in the YouTube Realm</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-virtual-victory-channel-over-a-hundred-heroes-rise/"><u>[Updated] In 2024, Virtual Victory Channel Over a Hundred Heroes Rise</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-maximizing-your-channels-earnings-a-guide-to-creating-impactful-trailers-for-2024/"><u>[Updated] Maximizing Your Channel's Earnings A Guide to Creating Impactful Trailers for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-confirmation-procedures-for-youtube-users/"><u>2024 Approved Confirmation Procedures for YouTube Users</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/l-roundup-top-no-money-video-editing-software-reviewed-for-2024/"><u>Annual Roundup Top No-Money Video Editing Software Reviewed for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/enhancing-iphone-call-audio-clarity-top-tips-and-tricks-sourcezdnet/"><u>Enhancing iPhone Call Audio Clarity: Top Tips & Tricks - SourceZDNet</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-design-guide-youtube-banners-and-thumbnail-creation/"><u>In 2024, Design Guide YouTube Banners & Thumbnail Creation</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-tecno-pova-6-pro-5g-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Tecno Pova 6 Pro 5G for Parents | Dr.fone</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/myrecover-einfach-und-effektiv-komprimierte-dateien-retten-schritte-zur-wiederherstellung/"><u>MyRecover: Einfach Und Effektiv Komprimierte Dateien Retten | Schritte Zur Wiederherstellung</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/take-charge-of-your-listening-experience-disabling-autoplay-in-apple-music/"><u>Take Charge of Your Listening Experience: Disabling Autoplay in Apple Music</u></a></li>
-<li><a href="https://win11.techidaily.com/title-customize-icon-spacing-on-modern-and-classic-windows-oses/"><u>Title: Customize Icon Spacing on Modern & Classic Windows OSes</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95783149-9781620552155-transmutacion/"><u>Transmutación | Free Book</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-disseminate-your-tiktok-on-twitter-effectively/"><u>[New] 2024 Approved Disseminate Your TikTok on Twitter Effectively</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ree-video-wizardry-top-8-editing-programs-for-youtube-enthusiasts/"><u>[New] Free Video Wizardry Top 8 Editing Programs for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rom-footage-to-feature-making-youtube-thumbnails-mobile/"><u>[New] From Footage to Feature Making YouTube Thumbnails (Mobile)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rom-game-day-to-hollywood-sports-video-success-story-for-2024/"><u>[New] From Game Day to Hollywood Sports Video Success Story for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-revolutionize-your-feed-with-these-10-insta-tools/"><u>[New] In 2024, Revolutionize Your Feed with These 10 Insta-Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rime-edition-best-video-editing-apps-unveiled/"><u>[New] Prime Edition Best Video Editing Apps Unveiled</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-the-ultimate-screencapture-guide-for-laptop-techies-for-2024/"><u>[New] The Ultimate ScreenCapture Guide for Laptop Techies for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-direct-capture-screen-record-on-pcmac-plus-youtube-upload/"><u>[Updated] In 2024, Direct Capture Screen Record on PC/Mac + YouTube Upload</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-maximum-videos-on-a-64gb-drive/"><u>2024 Approved Maximum Videos on a 64GB Drive</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1726027583935-pc-4/"><u>最適なPC画面録画ソフト件別レビュー: お得な4つの選択肢</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/track-channel-growth-to-partner-status-aim-for-10000-views/"><u>Fast-Track Channel Growth to Partner Status – Aim for 10,000 Views</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-samsung-galaxy-a34-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Samsung Galaxy A34 5G</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/pro-tips-for-video-conference-recordings-desktop-edition-for-2024/"><u>Pro Tips for Video Conference Recordings Desktop Edition for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/regain-default-windows-options-after-restart/"><u>Regain Default Windows Options After Restart</u></a></li>
 </ul></div>
 

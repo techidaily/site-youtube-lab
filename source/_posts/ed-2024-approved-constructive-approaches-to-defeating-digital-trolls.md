@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Constructive Approaches to Defeating Digital Trolls\""
-date: 2024-11-30T18:00:13.944Z
-updated: 2024-12-07T18:17:51.913Z
+date: 2024-12-11T19:13:55.726Z
+updated: 2024-12-13T17:19:41.260Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/024ced9c2dfad0404f5ee91e1efddba3dce2978ad
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/024ced9c2dfad0404f5ee91e1efddba3dce2978ad
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,19 +83,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-hds-finest-picks-reviewing-top-screen-recorders/"><u>[New] HD's Finest Picks Reviewing Top Screen Recorders</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-4-ways-to-set-up-your-talking-head-shots-for-youtube-for-2024/"><u>[Updated] 4 Ways To Set Up Your Talking-Head Shots For YouTube for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-shots-a-vloggers-lens-compendium/"><u>[Updated] In 2024, Mastering Shots A Vlogger’s Lens Compendium</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-navigating-youtube-video-production-tools/"><u>[Updated] In 2024, Navigating YouTube Video Production Tools</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-instantaneous-video-downloader-selection-guide-for-2024/"><u>[Updated] Instantaneous Video Downloader Selection Guide for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-asmr-mastery-in-action-strategies-for-dynamic-and-effective-videos/"><u>2024 Approved ASMR Mastery in Action Strategies for Dynamic and Effective Videos</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-client-visionaries-shaping-brand-narratives-through-video/"><u>2024 Approved Client Visionaries Shaping Brand Narratives Through Video</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/2024-approved-whats-youtube-creative-commons-and-how-to-use-cc-to-make-video/"><u>2024 Approved What's YouTube Creative Commons and How to Use CC to Make Video</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/cost-effective-choice-evaluation-6-sheet-amazon-basics-paper-cutter-a-detailed-look/"><u>Cost-Effective Choice Evaluation: 6-Sheet Amazon Basics Paper Cutter - A Detailed Look</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/o-easily-disableremove-youtube-shorts-permanently-in-2024/"><u>How to Easily Disable/Remove YouTube Shorts Permanently, In 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-your-amazon-prime-experience-with-toshibas-55lf711u20-fire-tv-reviewed/"><u>Maximizing Your Amazon Prime Experience with Toshiba's 55LF711U20 Fire TV Reviewed!</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolve-the-persistent-blinking-a-complete-guide/"><u>Resolve the Persistent Blinking: A Complete Guide</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-solving-plugged-in-issues-with-realtek-ads/"><u>Troubleshooting Guide: Solving 'Plugged In' Issues with Realtek ADS</u></a></li>
-<li><a href="https://techidaily.com/what-you-need-to-know-to-improve-your-realme-12-pro-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>What You Need To Know To Improve Your Realme 12 Pro 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-from-lurker-to-influencer-enhancing-your-facebook-experience-for-2024/"><u>[New] From Lurker to Influencer Enhancing Your Facebook Experience for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ow-to-use-google-trends-to-come-up-with-video-ideas-in-2024/"><u>[New] How to Use Google Trends to Come up with Video Ideas, In 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-invisible-spectator-of-fb-tales/"><u>[New] Invisible Spectator of FB Tales</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hat-are-the-laws-around-youtube-video-capture/"><u>[New] What Are the Laws Around YouTube Video Capture?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/isdom-waves-prime-ed-channels-online/"><u>[New] Wisdom Waves Prime Ed Channels Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-deciphering-content-control-youtube-vs-creative-commons-license/"><u>[Updated] 2024 Approved Deciphering Content Control YouTube Vs. Creative Commons License</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-brief-beatcasts-role-of-the-melody/"><u>2024 Approved Brief Beatcasts Role of the Melody</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-budget-friendly-designs-for-youtube-content-creators/"><u>2024 Approved Budget-Friendly Designs for YouTube Content Creators</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/5-most-effective-methods-to-unlock-iphone-11-pro-max-in-lost-mode-drfone-by-drfone-ios/"><u>5 Most Effective Methods to Unlock iPhone 11 Pro Max in Lost Mode | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/pwise-approach-to-youtube-caption-addition/"><u>A Stepwise Approach to YouTube Caption Addition</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-tecno-spark-10-pro-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Tecno Spark 10 Pro Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Infinix Note 30 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ative-hubs-of-affordable-visual-content-sources-for-2024/"><u>Innovative Hubs of Affordable Visual Content Sources for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/learn-the-art-of-skype-voice-recording-in-mp3-free-for-2024/"><u>Learn the Art of Skype Voice Recording in MP3 (Free) for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/speed-kings-and-queens-of-2022/"><u>Speed Kings and Queens of 2022</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/stop-screen-flash-in-win7-instantly/"><u>Stop Screen Flash in Win7 Instantly</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-unanticipated-consequences-of-rtx-4090-ownership/"><u>The Unanticipated Consequences of RTX 4090 Ownership</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Free Online Offer  Enjoy a Gallery of 50 YouTube Banners Now\""
-date: 2024-11-30T18:21:36.527Z
-updated: 2024-12-07T17:23:39.492Z
+date: 2024-12-11T18:59:14.641Z
+updated: 2024-12-13T19:21:05.173Z
 tags:
   - ai video
   - ai youtube
@@ -74,10 +74,6 @@ This banner is simple, fun, and ideal for channels that have a positive message.
 
 ![YouTube Beauty Banner](https://images.wondershare.com/filmora/article-images/youtube-banner-for-beauty-channels-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Beauty Banner 4: Hello, Sunshine
 
 Bright, upbeat, and sunshiney! This cheerful banner background feels young and fresh.
@@ -122,6 +118,10 @@ Denim and funky doodles are the perfect combinations for showing off your fun, c
 
 Creative, colorful, splatters might be the best way to let your viewers know they can expect fantastical things from you. This one’s great for any type of channel, but especially great for crafts and lifestyle.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. YouTube Banners for Comedy Channels
 
 A lot of viewers go to YouTube to laugh, and the banner for a comedy channel is all about letting someone who found one of your videos funny know there’s more like it on the way. There are banners here for different styles of comedy, so you can choose the one that fits your brand of funny.
@@ -133,10 +133,6 @@ A lot of viewers go to YouTube to laugh, and the banner for a comedy channel is 
 This funny-faced cat knows what you did, and he does not approve. This banner is a great way to show viewers you don’t take things too seriously.
 
 ![youtube-banner-for-comedy-pizza](https://images.wondershare.com/filmora/article-images/youtube-banner-for-comedy-pizza.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Comedy Banner 2: Pizza Forever
 
@@ -159,10 +155,6 @@ In an endless sea of identical rubber duckies, you’re that wonderful bird that
 #### Comedy Banner 5: The Theater
 
 This is a serious business comedy banner. It’s such serious business that it might actually be good for a short film channel.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Comic-Inspired YouTube Banners
 
@@ -197,6 +189,10 @@ This skyline drawn in a comic-book style would be perfect for any channel that f
 #### Comic Banner 5: Mystical Rainbow Farts
 
 There’s not much explaining to do here. Either you look at this unicorn, filling the sky with rainbow farts and loving it, and think ‘yes, that’s me or you don’t.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. YouTube Banners for Education Channels
 
@@ -245,7 +241,7 @@ If this slightly punky banner matches your slightly edgy self then it could be p
  ![Funky Banner 2: Minty Fresh](https://images.wondershare.com/filmora/article-images/funky-youtube-banners-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Funky Banner 2: Minty Fresh
@@ -253,10 +249,6 @@ If this slightly punky banner matches your slightly edgy self then it could be p
 This cool, crisp, channel art template is great for lifestyle or vlogging channels that are just a bit outside the norm.
 
 ![Funky Banner 3: Hypno-Cloud](https://images.wondershare.com/filmora/article-images/funky-youtube-banners-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Funky Banner 3: Hypno-Cloud
 
@@ -273,6 +265,10 @@ A bright, modern, banner for bright, modern, YouTubers. It’s fun, but it’s s
 #### Funky Banner 5: Pineapple Paradise
 
 This summer-inspired banner is both very on-trend, and a great seasonal choice for any lifestyle, beauty, or vlog channel.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Galaxy YouTube Banners Featuring Outer Space
 
@@ -292,15 +288,15 @@ Whether you’re a gamer, sci-fi enthusiast, or just someone whose content is ou
 
  ![Galaxy Banner 3: Mysterious Signs](https://images.wondershare.com/filmora/article-images/galaxy-youtube-banners-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Galaxy Banner 3: Mysterious Signs
 
 Do you ever look up at the stars and just think about how tiny we are? This banner could work for almost any type of channel (besides makeup or fashion).
 
  ![Galaxy Banner 4: Space Doodles](https://images.wondershare.com/filmora/article-images/galaxy-youtube-banners-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Galaxy Banner 4: Space Doodles
 
@@ -318,6 +314,10 @@ Gaming is a huge category on YouTube! We’ve put together a selection of channe
 
 ![Gaming Banner 1: Inspired by Minecraft](https://images.wondershare.com/filmora/article-images/youtube-banners-for-gaming-channels-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Gaming Banner 1: Inspired by Minecraft
 
 Inspired by the creative, blocky, game that’s taken the internet by storm! This is a channel art template for gamers whose channels focus on Minecraft.
@@ -330,11 +330,19 @@ It’s kill or be killed out there, but your mission is important and you’re g
 
  ![Gaming Banner 3: Special Ops](https://images.wondershare.com/filmora/article-images/youtube-banners-for-gaming-channels-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Gaming Banner 3: Special Ops
 
 Mount the perfect tactical strike against YouTube viewers’ eyeballs with this gaming-themed channel art template.
 
 ![Gaming Banner 4: Firepower](https://images.wondershare.com/filmora/article-images/youtube-banners-for-gaming-channels-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Gaming Banner 4: Firepower
 
@@ -364,6 +372,10 @@ Darker colors can make viewers think about power, efficiency, and sleekness. Thi
 
 ![Minimalist Banner 3: Wood Grain](https://images.wondershare.com/filmora/article-images/minimalist-youtube-banners-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Minimalist Banner 3: Wood Grain
 
 This clean, white-painted wood, background perfectly captures the minimalist aesthetic that has become so popular in design.
@@ -380,19 +392,11 @@ This serene channel art template will be ideal for anyone who champions wellness
 
 Minimalism doesn’t have to be soft. This bold, simple, red banner is for YouTubers who want to be a bit louder.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 10\. YouTube Banners for Travel Channels
 
 These channel art templates were made for every type of travel channel, from sunny vacations to outdoor adventures to trips around the world.
 
 ![Travel Banner 1: Alpine Getaway](https://images.wondershare.com/filmora/article-images/youtube-banners-for-travel-channels-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Travel Banner 1: Alpine Getaway
 
@@ -400,19 +404,11 @@ This channel art template is for creators who are also adventurers. Do you love 
 
 ![Travel Banner 2: Wanderlust](https://images.wondershare.com/filmora/article-images/youtube-banners-for-travel-channels-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Travel Banner 2: Wanderlust
 
 This postcard-themed banner is for the globetrotting travel vlogger. Backpackers, and anyone else determined to see the world and make videos about it, might want to consider this channel art.
 
 ![Travel Banner 3: Beachy](https://images.wondershare.com/filmora/article-images/youtube-banners-for-travel-channels-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Travel Banner 3: Beachy
 
@@ -433,6 +429,10 @@ This channel art template is for YouTubers who want to go everywhere and see eve
 Which of these YouTube banners is your favorite? And which video editing software will you use to create YouTube videos? Here, I recommend you to try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
@@ -457,21 +457,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/udio-ambition-selecting-top-6-free-downloader-apps-from-youtube-vaults-for-2024/"><u>[New] Audio Ambition Selecting Top 6 Free Downloader Apps From YouTube Vaults for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-easy-steps-to-setting-up-a-professional-discord-stream/"><u>[New] Easy Steps to Setting Up a Professional Discord Stream</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nrich-your-brain-with-these-15-ultimate-science-youtubes-for-2024/"><u>[New] Enrich Your Brain with These 15 Ultimate Science Youtubes for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/reefall-into-success-top-hashtags-and-vlogging-techniques/"><u>[New] FreeFall Into Success Top Hashtags and Vlogging Techniques</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/napchat-to-subscribers-how-jake-crafted-youtube-magic-for-2024/"><u>[New] Snapchat to Subscribers How Jake Crafted YouTube Magic for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-android-audio-alchemy-selecting-the-top-free-downloader-apps-from-youtube/"><u>[Updated] 2024 Approved Android Audio Alchemy Selecting the Top Free Downloader Apps From YouTube</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-popular-10-music-videos-trending-on-facebook/"><u>[Updated] 2024 Approved Popular 10 Music Videos Trending on Facebook</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-fast-and-easy-guide-how-to-set-up-snapchat-on-a-mac/"><u>2024 Approved Fast & Easy Guide How to Set up Snapchat on a Mac</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-tech-unity-expert-easeus-reviews/"><u>2024 Approved Tech Unity Expert EaseUS Reviews</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-zooming-into-perfection-a-compreenasional-tutorial-on-audio-recording/"><u>2024 Approved Zooming Into Perfection A Compreenasional Tutorial on Audio Recording</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/tching-dreadful-green-screen-distortion-on-mac-editing-sessions-for-2024/"><u>Dispatching Dreadful Green Screen Distortion on Mac-Editing Sessions for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-stolen-iphone-7-in-different-conditionsin-drfone-by-drfone-ios/"><u>How To Unlock Stolen iPhone 7 In Different Conditionsin | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-xiaomi-13t-pro-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Xiaomi 13T Pro Devices | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-the-name-game-for-top-podcast-titles/"><u>In 2024, Mastering the Name Game for Top Podcast Titles</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/y-realignment-youtube-videos-for-mac-views-for-2024/"><u>Speedy Realignment YouTube Videos for MAC Views for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unleash-your-photography-potential-nixplay-iris-meets-cloud/"><u>Unleash Your Photography Potential: Nixplay Iris Meets Cloud</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-how-to-facetime-with-your-android-phone/"><u>[New] How To Facetime with Your Android Phone ?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-10-best-intro-maker-apps-for-iphone-and-android/"><u>[Updated] 2024 Approved 10 Best Intro Maker Apps for iPhone and Android</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-demystifying-the-world-of-youtube-shorts-for-2024/"><u>[Updated] Demystifying the World of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-fundamental-equipment-for-channel-foundations-for-2024/"><u>[Updated] Fundamental Equipment for Channel Foundations for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-20-must-have-video-tools-for-new-creators/"><u>[Updated] In 2024, 20 Must-Have Video Tools For New Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-simplify-creating-youtube-thumbnails-now/"><u>[Updated] In 2024, Simplify Creating YouTube Thumbnails Now</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-sub-50-mic-selections-for-aspiring-streaming-artists/"><u>[Updated] Sub-$50 Mic Selections for Aspiring Streaming Artists</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-create-magic-download-premium-soundscapes-now/"><u>2024 Approved Create Magic Download Premium Soundscapes Now!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-reverse-engineering-a-youtube-ban/"><u>2024 Approved Reverse Engineering a YouTube Ban</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/5bcl5zue5lif5asx5byv5bco6kit5ykz6iih6yen5bu65pw45poa55qe5pa55rov6kej5p6q77ya5ywo6z2i5lplusu55cg5oyh5y2x/"><u>尋回丟失引導設備與重建數據的方法解析：全面修理指南</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-lava-blaze-pro-5g-to-mac-drfone-by-drfone-android/"><u>How to Mirror Lava Blaze Pro 5G to Mac? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-darkness-defender-vs-lights-liberator-black-vs-silver/"><u>In 2024, Darkness' Defender vs Light's Liberator BLACK vs SILVER</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-realme-narzo-60-pro-5g-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Realme Narzo 60 Pro 5G Lock Screen Password?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-oneplus-nord-n30-se-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best OnePlus Nord N30 SE Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/resolved-non-authentic-printer-use-case/"><u>Resolved: Non-Authentic Printer Use Case</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rt-of-attention-secrets-to-making-your-youtube-ads-stand-out-for-2024/"><u>The Art of Attention Secrets to Making Your YouTube Ads Stand Out for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-rated-artificial-intelligence-picture-creators-available-immediately/"><u>Top-Rated Artificial Intelligence Picture Creators Available Immediately</u></a></li>
 </ul></div>
 

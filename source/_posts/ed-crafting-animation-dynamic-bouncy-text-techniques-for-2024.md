@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Animation  Dynamic, Bouncy Text Techniques for 2024\""
-date: 2024-08-28T16:36:43.462Z
-updated: 2024-08-29T16:36:43.462Z
+date: 2024-12-07T17:55:30.203Z
+updated: 2024-12-13T16:17:12.724Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,10 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
@@ -70,6 +74,14 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Method 2: Generate Animated Bouncing Texts Online
 
 If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
@@ -81,6 +93,10 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -122,20 +138,21 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,8 +161,24 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-hero5-black-vs-yi-4k-which-takes-the-crown-in-action-cam-war/"><u>[New] 2024 Approved Hero5 Black Vs. Yi 4K Which Takes the Crown in Action Cam War?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-soundtrack-your-youtube-videos-7-free-audio-selections/"><u>[New] 2024 Approved Soundtrack Your YouTube Videos 7 Free Audio Selections</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-live-without-youtube-shorts/"><u>[New] In 2024, How to Live Without YouTube Shorts</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-streamline-sound-integration-with-powerpoint-displays/"><u>[New] In 2024, Streamline Sound Integration with PowerPoint Displays</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/actics-to-increase-youtube-video-engagement-and-views-for-2024/"><u>[New] Tactics to Increase YouTube Video Engagement and Views for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-tailored-engagement-design-your-youtube-sign-up-bar-with-an-animated-approach-using-filmora/"><u>[New] Tailored Engagement Design Your YouTube Sign-Up Bar with an Animated Approach Using Filmora</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-youtube-celebs-gabbing-via-snapchat/"><u>[Updated] 2024 Approved YouTube Celebs Gabbing via Snapchat</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-exclusive-youtube-snippet-access-high-quality-free-download/"><u>[Updated] In 2024, Exclusive YouTube Snippet Access - High Quality, Free Download</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-inshot-guide-successfully-load-tracks-into-videos/"><u>[Updated] InShot Guide Successfully Load Tracks Into Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-scouring-youtubes-notable-responses/"><u>2024 Approved Scouring YouTube's Notable Responses</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-social-media-trends-visualized/"><u>2024 Approved Social Media Trends Visualized</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-tiktok-legalities-ensuring-video-compliance-pre-upload/"><u>2024 Approved TikTok Legalities Ensuring Video Compliance Pre-Upload</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-motorola-razr-40-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Motorola Razr 40? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/t-power-up-innovative-ways-to-earning-with-youtube-mobile-views-for-2024/"><u>Profit Power-Up Innovative Ways to Earning with YouTube Mobile Views for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/5-youtube-openings-elevate-your-contents-impact/"><u>Top 15 YouTube Openings Elevate Your Content's Impact</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ted-comments-made-easy-an-overview/"><u>Unwanted Comments Made Easy An Overview</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/bes-music-magic-best-free-tools-for-wav-conversion-for-2024/"><u>YouTube's Music Magic Best Free Tools for WAV Conversion for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
