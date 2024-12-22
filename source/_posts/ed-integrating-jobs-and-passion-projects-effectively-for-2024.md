@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Integrating Jobs & Passion Projects Effectively for 2024"
-date: 2024-08-23T09:00:46.583Z
-updated: 2024-08-24T09:00:46.583Z
+date: 2024-12-20T19:47:44.932Z
+updated: 2024-12-22T20:18:04.615Z
 tags:
   - ai video
   - ai youtube
@@ -46,36 +46,40 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5. Be creative! Create audios (audio-only videos)
 
 In the event that life gets too crazy, it’s perfectly fine to do just audio. Many of us are always on the go which means it’s the perfect time to listen to great advice while driving to work, waiting on the bus, or working at the gym. Someone out there would love to hear your advice. I started to do this with my Tea Time Talk Audios and the response was great.
 
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Make a YouTube Video with Wondershare Filmora
 
 Wondershare Filmora is one application that people prefer over any other video editing application due to its easy-to-use editing tools and social media aimed settings. This application can help any beginner with a desire to shoot a movie, achieve his dream even without the availability of high-tech cameras or equipment in his hand. The features like video stabilization feature and lens correction allow removing the major defects that occur while capturing a video. A large number of filters in the application can be used to give the cinematic effect whether it be a short video or a long movie.
@@ -85,27 +89,22 @@ Just try it and create your own YouTube video!
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -114,4 +113,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ow-frequent-uploads-can-skyro-cookie-sales-on-your-youtube-channel-for-2024/"><u>[New] How Frequent Uploads Can Skyro Cookie Sales on Your YouTube Channel for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ncreasing-youtube-shorts-views-effective-tactics-for-2024/"><u>[New] Increasing YouTube Shorts Views Effective Tactics for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tep-by-step-process-for-free-youtube-educational-events/"><u>[New] Step-by-Step Process for Free Youtube Educational Events</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-quick-pathway-to-establishing-a-video-channel-on-your-phone-for-2024/"><u>[New] The Quick Pathway to Establishing a Video Channel on Your Phone for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-network-or-not-a-detailed-guide-for-youtubers-considering-mncs-for-2024/"><u>[New] To Network, Or Not A Detailed Guide for YouTubers Considering MNCs for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-the-ultimate-overview-dji-inspire-1-reviewed/"><u>[Updated] 2024 Approved The Ultimate Overview DJI Inspire 1 Reviewed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-make-a-playlist-on-youtube/"><u>[Updated] How to Make a Playlist on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-prime-8-edits-suites-on-linux-os/"><u>[Updated] In 2024, Prime 8 Edits Suites on Linux OS</u></a></li>
+<li><a href="https://common-error.techidaily.com/diagnosing-and-repairing-your-steam-network-communication-problems/"><u>Diagnosing and Repairing Your Steam Network Communication Problems</u></a></li>
+<li><a href="https://extra-information.techidaily.com/excellent-easytime-timer-services/"><u>Excellent EasyTime Timer Services</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-extend-the-usage-of-your-gopro-battery-for-2024/"><u>How to Extend the Usage of Your GoPro Battery for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-secrets-revealed-streamlined-importation-on-windows-10-os/"><u>In 2024, Secrets Revealed Streamlined Importation on Windows 10 OS</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-tips-solving-forza-horizon-ncrashes-on-your-pc/"><u>Troubleshooting Tips: Solving Forza Horizon nCrashes on Your PC</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-alarm-tones-optimal-websites-list-for-2024/"><u>Ultimate Alarm Tones Optimal Websites List for 2024</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/1728486461183-windows-server-2022/"><u>Windows Server 2022 裸機恢復备份的两种方法 - 即时指南</u></a></li>
+</ul></div>
 

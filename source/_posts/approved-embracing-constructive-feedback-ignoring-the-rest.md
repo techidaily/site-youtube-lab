@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Embracing Constructive Feedback, Ignoring the Rest\""
-date: 2024-08-23T09:02:00.564Z
-updated: 2024-08-24T09:02:00.564Z
+date: 2024-12-19T16:52:22.091Z
+updated: 2024-12-22T16:16:53.744Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/a50a3cec0521fa6fb800284717c9122c07291a027
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/a50a3cec0521fa6fb800284717c9122c07291a027
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ural-ascent-step-by-step-guide-to-audio-submission/"><u>[New] Aural Ascent Step-by-Step Guide to Audio Submission</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-luminance-hd-evaluation-the-ultimate-decision/"><u>[New] Luminance-HD Evaluation The Ultimate Decision?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-youtube-mastery-how-to-add-structure-and-subdivisions-for-enhanced-content/"><u>[Updated] 2024 Approved YouTube Mastery How to Add Structure and Subdivisions for Enhanced Content</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-discover-the-potential-detailed-look-at-showmore-as-your-recording-companion/"><u>[Updated] In 2024, Discover the Potential Detailed Look at ShowMore as Your Recording Companion</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-sub-50-mic-selections-for-aspiring-streaming-artists/"><u>[Updated] In 2024, Sub-$50 Mic Selections for Aspiring Streaming Artists</u></a></li>
+<li><a href="https://video-capture.techidaily.com/5bcc55so44gu54sh5paz44ox44ot44kw44op44og44gn5yuv55s744ki44k544oa44kv44oi5qplusu5asj5pu044gu44os44oz44oiiq/"><u>専用の無料プログラムで動画アスペクト比変更のヒント!</u></a></li>
+<li><a href="https://facebook.techidaily.com/guarding-your-online-presence/"><u>Guarding Your Online Presence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-essential-12-flipscreen-cam-titles-for-optimal-vlogging/"><u>In 2024, Essential 12 Flipscreen Cam Titles for Optimal Vlogging</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-review-of-the-ring-battery-powered-video-doorbell/"><u>In-Depth Review of the Ring Battery Powered Video Doorbell</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-system-restore-on-windows-11-quick-access-methods/"><u>Mastering System Restore on Windows 11: Quick Access Methods</u></a></li>
+<li><a href="https://windows11.techidaily.com/techniques-to-negate-erroneous-security-alarms-from-chrome-web-app/"><u>Techniques to Negate Erroneous Security Alarms From Chrome Web App</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->

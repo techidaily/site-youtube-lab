@@ -1,7 +1,7 @@
 ---
 title: "[New] The Ultimate Treasure Trove of Inspirational Video Concepts"
-date: 2024-08-23T09:01:05.461Z
-updated: 2024-08-24T09:01:05.461Z
+date: 2024-12-15T19:43:46.476Z
+updated: 2024-12-22T18:11:56.251Z
 tags:
   - ai video
   - ai youtube
@@ -48,9 +48,6 @@ Before we go deeper into the search to find you the best topics for YouTube, let
 
 As you can see, coming up with ideas doesn’t have to be an agonizing drag. It’s all about flexing your creativity muscle and we are here to help you do it. Are you ready to be inspired? Great! Let’s begin this list:
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **2\. Showcase Who You Are**
 
 **Talk About Yourself:** Introduce yourself to the world. You can answer 10 of the most common ice breaker questions you get at social gatherings: “Who are you?” “What do you do for a living?” “What are your hobbies?” In this video, you get to decide how you want to showcase yourself to your audience.
@@ -73,6 +70,10 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Show and Tell:** Like the elementary school exercise, show and tell is a terrific way to show off something interesting you have and talk about the significance of it. An old childhood toy, a new gadget, a gift from a friend: every item has a story, show and tell it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **3\. Challenge Yourself**
 
 **Leave Your Comfort Zone:** Do something that you didn’t think you can do and film it. It might end up being a [Fail](#Fail), but that is how you learn. Learn a new language and talk to a native speaker. Go bungee jumping. Offer free hugs in public. Do something that makes your heart beat faster everyday and film it.
@@ -83,9 +84,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Speed Round:** You think you are good at something? Well, why not try to do it as quickly as possible? Complete a round of video games as quickly as you can. Do a MasterChef mystery box challenge in your kitchen. [Run from one subway station to the next](https://www.youtube.com/watch?v=PH%5FZ8Ghuq6E), beating the tube itself.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## **4\. Show Your Talent**
 
 **Make Music:** An original song, a cover, or a remix, YouTube is a fantastic platform to showcase your musical talents. Don’t forget, some of the world’s top artists began their journey on YouTube. You might be next to join the [discovered on YouTube list](https://www.teenvogue.com/story/best-artists-discovered-on-youtube).
@@ -95,17 +93,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
  **Unusual skill:** Do you have a party trick that you would love to show everyone, but don’t have a party to go to? YouTube is the place for you. Juggle, do a magic trick, dance like Christopher Walkens, whatever unusual skill you have, share it on camera, and get the accolades you so deserve.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **5\. Explore Your Surroundings**
 
 **Tour:** Your home, your office, your city. Bring your camera and take your audience on a tour of a place you know well. Show them all the hidden gems, tell them a story about the history, and be spontaneous and discover along the way.
@@ -130,9 +120,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Tutorial:** Is there software you use particularly well? Are you skilled in the kitchen or the garage? Can you install appliances without reading the instructions? Give a step-by-step tutorial in completing a project.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **7\. Share Your Beliefs and Lifestyle**
 
 **Motivation:** Whatever you are pursuing, know that there are many on the same path as you. If you are an aspiring dancer create content for those that are with you on the journey. Encourage them and speak authentically about the accomplishments to come. Motivation is the energy that is in circulation. The more you send out into the universe, the more will come back to you.
@@ -154,6 +141,10 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Haul:** If you have some money to spend, create a haul YouTube video. Haul video involves you going on a shopping spree and bringing home a big “haul.” In essence, it is an unboxing video on steroids. This type of video generally involves fashion or groceries, but it can be related to anything in large quantity. It’s all about showing off your new stuff to the audience.
 
 **Unboxing:** Got something new from Amazon? Before you open it, turn on your camera. Unboxing is an easy YouTube video idea that allows your viewers who are considering buying the item to better understand whether it is in fact the right purchase for them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **8\. Nurture Your Curiosity**
 
@@ -185,9 +176,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Timeline of a Topic:** Pick any topic and trace the lineage and better understand how it has gotten to this point. Where did it begin, has it hit critical mass, and how has it evolved over the years?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **9\. Be a Fan and a Critic**
 
 **Fanfiction:** Continue a story of one of your favorite movie characters or explore the life of some secondary character in a television show that you enjoy. Use their existing storyline to guide where you toward an interesting YouTube video about how they could have evolved.
@@ -243,22 +234,20 @@ I bet you are bursting and ready to create your next video. Onwards! Remember, w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -267,4 +256,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ffordable-and-accessible-the-definitive-guide-to-9-budget-friendly-editors-for-2024/"><u>[New] Affordable & Accessible The Definitive Guide to 9 Budget-Friendly Editors for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-enchanting-viewers-the-art-of-crafting-engaging-youtube-description-templates/"><u>[New] Enchanting Viewers The Art of Crafting Engaging YouTube Description Templates</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ifas-best-players-trendy-videos-on-youtube/"><u>[New] FIFA's Best Players Trendy Videos on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-streamlining-song-selection-for-youtube-playlist-curation/"><u>[Updated] In 2024, Streamlining Song Selection for YouTube Playlist Curation</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-in-depth-analysis-the-power-of-quantum-hdr/"><u>2024 Approved In-Depth Analysis The Power of Quantum HDR</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-apex-choices-for-your-home-office-document-and-photo-scanners-ranked-best/"><u>Discover the Apex Choices for Your Home Office: Document and Photo Scanners Ranked Best</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catch-or-beat-sleeping-snorlax-on-pokemon-go-for-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Catch or Beat Sleeping Snorlax on Pokemon Go For Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ize-engagement-top-8-youtube-ranking-applications/"><u>Maximize Engagement - Top 8 YouTube Ranking Applications</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/realme-gt-neo-5-not-receiving-texts-10-hassle-free-solutions-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme GT Neo 5 Not Receiving Texts? 10 Hassle-Free Solutions Here | Dr.fone</u></a></li>
+</ul></div>
 

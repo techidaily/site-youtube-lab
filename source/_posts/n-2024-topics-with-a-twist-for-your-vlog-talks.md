@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Topics with a Twist for Your Vlog Talks"
-date: 2024-08-23T09:00:19.140Z
-updated: 2024-08-24T09:00:19.140Z
+date: 2024-12-20T17:33:42.407Z
+updated: 2024-12-22T21:18:50.907Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -45,27 +49,22 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 ## Whatever You Need to Get Out
 
 _Flula is frequently puzzled by English expressions, like 'Party Pooper', and needs to get his confusion off his chest at odd hours of the day._
@@ -92,24 +91,22 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 
 Sea monkeys can survive in space.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
@@ -117,22 +114,20 @@ It’s got strategies that have worked for other YouTubers, boiled down to simpl
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -141,4 +136,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-unleash-your-channels-potential-using-youtube-collaborative-outros/"><u>[New] 2024 Approved Unleash Your Channel's Potential Using YouTube Collaborative Outros</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-amplify-your-digital-presence-a-compreranautical-guide-to-instagram-stardom-with-9-steps/"><u>[New] Amplify Your Digital Presence A Compreranautical Guide to Instagram Stardom with 9 Steps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-nine-crucial-strategies-to-elevate-your-youtube-presence/"><u>[New] In 2024, Nine Crucial Strategies to Elevate Your Youtube Presence</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-streaming-mastery-with-obs-game-mode-for-2024/"><u>[New] Streaming Mastery with OBS Game Mode for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-charting-the-course-a-comprehensive-guide-to-youtube-teaser-vids/"><u>[Updated] Charting the Course A Comprehensive Guide to YouTube Teaser Vids</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-screensnatchers-guide-to-beautifully-free-bgs-on-tiktok/"><u>[Updated] In 2024, ScreenSnatchers' Guide to Beautifully Free BGs on TikTok</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-success-navigating-youtube-statistics-with-social-blade-for-2024/"><u>Charting Success Navigating YouTube Statistics with Social Blade for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-your-realme-narzo-n55-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Realme Narzo N55 Lock Screen Password</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-master-device-agnostic-recording-techniques-for-youtube-live-streams/"><u>In 2024, Master Device-Agnostic Recording Techniques for YouTube Live Streams</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-pixel-perfection-portfolio-best-animation-transformation-tools/"><u>In 2024, Pixel Perfection Portfolio Best Animation Transformation Tools</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/masterful-visuals-with-new-laptop-gfx/"><u>Masterful Visuals with New Laptop GFX</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-3-free-dvd-ripper-programs-for-windows-10-and-11-full-downloads-available/"><u>Top 3 Free DVD Ripper Programs for Windows 10 & 11: Full Downloads Available</u></a></li>
+<li><a href="https://common-error.techidaily.com/windows-11-volume-control-not-working-solved/"><u>Windows 11 Volume Control Not Working [SOLVED]</u></a></li>
+</ul></div>
 

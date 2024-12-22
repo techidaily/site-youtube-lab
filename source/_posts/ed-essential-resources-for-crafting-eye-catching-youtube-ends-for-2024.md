@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Essential Resources for Crafting Eye-Catching YouTube Ends for 2024\""
-date: 2024-08-23T09:02:22.525Z
-updated: 2024-08-24T09:02:22.525Z
+date: 2024-12-16T16:20:31.428Z
+updated: 2024-12-22T20:31:15.573Z
 tags:
   - ai video
   - ai youtube
@@ -91,15 +91,27 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 5\. Upload the image onto your Canva project.
 
@@ -109,9 +121,17 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
@@ -121,6 +141,10 @@ If you're looking for other options to design your end screen, make sure to also
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -129,14 +153,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,8 +166,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-ultimate-screen-companionship-the-right-cms-guidebook/"><u>[New] In 2024, Ultimate Screen Companionship The Right CMS Guidebook</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-mastering-media-mobility-in-apples-ecosystem/"><u>[New] Mastering Media Mobility in Apple's Ecosystem</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/avigating-the-pitfalls-of-youtube-monetization-mistakes-for-2024/"><u>[New] Navigating the Pitfalls of YouTube Monetization Mistakes for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/avigating-to-your-personal-youtube-collection-for-2024/"><u>[New] Navigating to Your Personal YouTube Collection for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/hones-as-cameras-a-comprehensive-guide-to-mobile-video-production/"><u>[New] Phones as Cameras A Comprehensive Guide to Mobile Video Production</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/evolutionize-your-content-strategy-a-guide-to-youtube-savvy-tips/"><u>[New] Revolutionize Your Content Strategy A Guide to YouTube Savvy Tips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nveiling-mr-beasts-economic-status/"><u>[New] Unveiling Mr. Beast's Economic Status</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-convert-youtube-music-seamlessly-for-mac-users-2023-edition/"><u>[Updated] Convert YouTube Music Seamlessly for Mac Users, 2023 Edition</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-understanding-the-law-screencasting-youtube-videos/"><u>[Updated] In 2024, Understanding the Law Screencasting YouTube Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-integrate-xps-essential-movie-making-features/"><u>[Updated] Integrate XP's Essential Movie Making Features</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-perfect-your-presence-advanced-tactics-for-youtube-live-visuals/"><u>[Updated] Perfect Your Presence Advanced Tactics for YouTube Live Visuals</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-insert-sound-clips-to-enhance-visual-presentations/"><u>2024 Approved Insert Sound Clips to Enhance Visual Presentations</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/1726029987277-windows-103/"><u>効果的な音声・動画同化方法：Windows 10で採用すべきトップ3アルゴリズム</u></a></li>
+<li><a href="https://network-issues.techidaily.com/banishing-buzzing-visuals-from-win7/"><u>Banishing Buzzing Visuals From Win7</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/best-universal-screenshot-applications-the-ultimate-list-of-13-options-from-movavi/"><u>Best Universal Screenshot Applications: The Ultimate List of 13 Options From Movavi</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixing-persistent-vac-bans-on-dota-2-expert-advice-for-gamers/"><u>Fixing Persistent VAC Bans on Dota 2: Expert Advice for Gamers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-universal-strategies-for-screen-capturing-on-diverse-devices/"><u>In 2024, Universal Strategies for Screen Capturing on Diverse Devices</u></a></li>
+<li><a href="https://win-forum.techidaily.com/latest-techniques-to-refresh-device-drivers-in-windows-11/"><u>Latest Techniques to Refresh Device Drivers in Windows 11</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/k-the-power-of-your-youtube-brand-for-growth-in-subs-for-2024/"><u>Unlock the Power of Your YouTube Brand for Growth in Subs for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

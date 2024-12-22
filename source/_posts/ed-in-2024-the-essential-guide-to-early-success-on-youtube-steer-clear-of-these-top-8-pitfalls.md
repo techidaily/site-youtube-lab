@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, The Essential Guide to Early Success on YouTube  Steer Clear of These Top 8 Pitfalls\""
-date: 2024-08-23T09:01:40.014Z
-updated: 2024-08-24T09:01:40.014Z
+date: 2024-12-19T19:15:45.447Z
+updated: 2024-12-22T18:43:28.113Z
 tags:
   - ai video
   - ai youtube
@@ -38,9 +38,6 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
@@ -56,8 +53,9 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
@@ -65,8 +63,9 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. Making weak intros
 
 After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
@@ -76,13 +75,18 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
 
@@ -90,11 +94,6 @@ YouTube isn’t the only social media platform that people are spending their ti
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ### 8\. Spamming comments
 
 Commenting on other YouTube videos is another way to get your channel discovered from people reading over comments. If your profile picture and comment appears interesting enough, out of curiosity, people just might click your username to have a look at your channel.
@@ -106,22 +105,20 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,4 +127,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-complete-blueprint-for-tracking-yt-viewsrevenue/"><u>[New] In 2024, Complete Blueprint for Tracking YT Views/Revenue</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-empowering-your-business-communication-google-meet-to-youtube-steps/"><u>[New] In 2024, Empowering Your Business Communication Google Meet to YouTube Steps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-narrative-enhancements-the-process-of-infusing-text-into-your-video-content/"><u>[New] In 2024, Narrative Enhancements The Process of Infusing Text Into Your Video Content</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-ranking-the-top-12-streamlined-screen-swivel-cams-for-content/"><u>[New] In 2024, Ranking the Top 12 Streamlined Screen-Swivel Cams for Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ntegrate-spotify-and-youtube-top-5-playlist-to-channel-converters-available/"><u>[New] Integrate Spotify and YouTube Top 5 Playlist-to-Channel Converters Available</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unleash-creativity-final-cut-pros-top-10-plug-ins/"><u>[New] Unleash Creativity Final Cut Pro’s Top 10 Plug-Ins</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-streamline-your-youtube-shorts-a-guide-to-effortless-thumbnail-integration/"><u>[Updated] 2024 Approved Streamline Your YouTube Shorts A Guide to Effortless Thumbnail Integration</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-building-mental-armor-against-online-critics-for-2024/"><u>[Updated] Building Mental Armor Against Online Critics for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-gaming-beyond-reality-top-5-psvr-games-on-the-approach/"><u>[Updated] Gaming Beyond Reality Top 5 PSVR Games on the Approach</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-step-by-step-to-stellar-video-youtube-studio-edition/"><u>[Updated] In 2024, Step-by-Step to Stellar Video YouTube Studio Edition</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-sierras-premier-picks-1-to-5-editing-applications-reviewed/"><u>[Updated] Sierra's Premier Picks #1 to #5 Editing Applications Reviewed</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-windows-movie-maker-a-toolkit-for-youtube-videographers/"><u>[Updated] Windows Movie Maker A Toolkit for YouTube Videographers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/free-online-conversion-transform-your-tod-files-into-high-quality-mp4-videos-with-movavi/"><u>Free Online Conversion: Transform Your TOD Files Into High-Quality MP4 Videos with Movavi</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-transforming-everyday-alerts-how-to-create-customizable-tones-on-android-phones/"><u>In 2024, Transforming Everyday Alerts How to Create Customizable Tones on Android Phones</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1964084-9781780993836-orbs-and-beyond/"><u>Orbs and Beyond | Free Book</u></a></li>
+</ul></div>
 

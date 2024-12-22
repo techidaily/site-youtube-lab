@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Mastery in Managing Online Discussions on YouTube"
-date: 2024-08-23T09:01:46.003Z
-updated: 2024-08-24T09:01:46.003Z
+date: 2024-12-19T17:07:02.910Z
+updated: 2024-12-22T20:50:01.657Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,10 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from YouTube?
 
 Have you accidentally posted something on a YouTuber’s channel? Are you anxious because you cannot find the comment and delete it?
@@ -69,9 +73,6 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -86,10 +87,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -111,8 +108,13 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -123,8 +125,9 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -133,9 +136,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 ### Final Thoughts
@@ -145,22 +145,20 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -169,4 +167,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-unlocking-the-value-in-twitters-archives/"><u>[New] 2024 Approved Unlocking the Value in Twitters Archives</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/harting-2023s-social-trend-peaks-in-graphs/"><u>[New] Charting 2023'S Social Trend Peaks in Graphs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/bs-walkthrough-turn-your-screen-into-a-youtube-live-showcase/"><u>[New] OBS Walkthrough Turn Your Screen Into a Youtube Live Showcase</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-giggles-guidebook-planning-7-funny-video-frameworks/"><u>[Updated] 2024 Approved Giggles Guidebook Planning 7 Funny Video Frameworks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unified-streaming-techniques-for-youtube-and-top-networks/"><u>[Updated] 2024 Approved Unified Streaming Techniques for YouTube & Top Networks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-keep-your-videos-trending-on-youtube-by-sustaining-creative-commitments/"><u>[Updated] In 2024, Keep Your Videos Trending on YouTube by Sustaining Creative Commitments</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-navigate-easily-through-youtube-channel-disabling-on-devices/"><u>[Updated] In 2024, Navigate Easily Through YouTube Channel Disabling on Devices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-reimagining-gender-portrayal-in-social-media-images/"><u>2024 Approved Reimagining Gender Portrayal in Social Media Images</u></a></li>
+<li><a href="https://win-latest.techidaily.com/fix-ipad-pro-resume-download-hang-up-a-guide-to-5-remedies/"><u>Fix iPad Pro 'Resume Download' Hang-Up: A Guide to 5 Remedies</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-enable-interaction-when-your-screen-has-no-pentouch-input/"><u>How to Enable Interaction When Your Screen Has No Pen/Touch Input</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-nokia-150-2023-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Nokia 150 (2023) | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Honor 100 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-samsung-galaxy-f04-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Samsung Galaxy F04 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-legality-of-reproducing-your-watched-youtube-videos/"><u>In 2024, Legality of Reproducing Your Watched YouTube Videos</u></a></li>
+<li><a href="https://win11.techidaily.com/restoring-synapse-connection-with-razer-hardware/"><u>Restoring Synapse Connection with Razer Hardware</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/k-cross-platform-content-sharing-convert-and-upload-with-these-tools-for-2024/"><u>Unlock Cross-Platform Content Sharing Convert and Upload with These Tools for 2024</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/youtubemp3/"><u>YouTubeからMP3プレーヤーに楽曲転送テクニック</u></a></li>
+</ul></div>
 

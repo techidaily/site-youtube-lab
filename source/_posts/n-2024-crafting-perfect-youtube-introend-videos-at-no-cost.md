@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Crafting Perfect YouTube Intro/End Videos at No Cost"
-date: 2024-08-23T08:59:07.698Z
-updated: 2024-08-24T08:59:07.698Z
+date: 2024-12-16T21:54:23.117Z
+updated: 2024-12-22T21:37:08.768Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/85e59c055b67b955137888fcf7f73876f5aa86545
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,9 +147,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/onvert-with-confidence-best-apps-to-turn-spotify-into-youtube-channels-for-2024/"><u>[New] Convert with Confidence Best Apps to Turn Spotify Into YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-a-comprehensive-walkthrough-for-embedding-youtube-plays-in-web-design/"><u>[New] In 2024, A Comprehensive Walkthrough for Embedding YouTube Plays in Web Design</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-digital-entertainment-preservation-online-tv-show-recording-101/"><u>[New] In 2024, Digital Entertainment Preservation Online TV Show Recording 101</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-ultimate-guide-to-best-youtube-banner-size-and-channel-art-dimension/"><u>[New] In 2024, Ultimate Guide to Best YouTube Banner Size and Channel Art Dimension</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ransforming-viewers-into-fans-with-top-yt-video-reacts/"><u>[New] Transforming Viewers Into Fans with Top YT Video Reacts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nlocking-iphones-loop-functionality-for-2024/"><u>[New] Unlocking iPhone's Loop Functionality for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-empowering-learning-through-educational-videos-on-youtube/"><u>[Updated] 2024 Approved Empowering Learning Through Educational Videos on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-hitting-high-notes-enhance-your-youtube-content-with-music-edits-for-2024/"><u>[Updated] Hitting High Notes Enhance Your YouTube Content with Music Edits for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-simple-tale-creation-guide/"><u>[Updated] Simple Tale Creation Guide</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/expertly-selected-best-cable-modem-and-wireless-router-bundles-of-2024/"><u>Expertly Selected Best Cable Modem and Wireless Router Bundles of 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-play-and-fix-issues-with-ifo-file-format-in-202/"><u>How to Play and Fix Issues with 'IFO File' Format in 202</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-edit-and-send-fake-location-on-telegram-for-your-xiaomi-redmi-note-12r-in-3-ways-drfone-by-drfone-virtual-android/"><u>In 2024, Edit and Send Fake Location on Telegram For your Xiaomi Redmi Note 12R in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-esports-news-and-analysis-from-top-vloggers/"><u>In 2024, Esports News and Analysis From Top Vloggers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-samsung-galaxy-m14-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Samsung Galaxy M14 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Motorola Edge+ (2023)? | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-from-tecno-spark-20-proplus-frp-bypass-by-drfone-android/"><u>Ultimate Guide from Tecno Spark 20 Pro+ FRP Bypass</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->

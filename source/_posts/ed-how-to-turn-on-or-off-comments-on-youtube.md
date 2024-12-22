@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Turn on or Off Comments on YouTube"
-date: 2024-12-06T18:07:30.814Z
-updated: 2024-12-13T19:15:44.397Z
+date: 2024-12-19T18:04:05.451Z
+updated: 2024-12-22T20:21:16.552Z
 tags:
   - ai video
   - ai youtube
@@ -35,10 +35,6 @@ Keeping all these points in mind, the following sections explain **how to enable
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -48,6 +44,10 @@ If you don’t want any comments on any of the videos that you publish, you must
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 2: Go to Channel’s Advanced Settings
 
@@ -67,6 +67,10 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
@@ -80,7 +84,7 @@ Back on the **YouTube Studio** page, click **Content** from the left pane. From 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### **Additional Info about Comments Options**
@@ -103,6 +107,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -123,11 +131,11 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -145,10 +153,6 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -162,10 +166,6 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -188,17 +188,15 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ont-powerhouses-for-captivating-youtube-thumbnails/"><u>[New] Font Powerhouses for Captivating YouTube Thumbnails</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-hilarity-unleashed-top-7-amusing-youtube-channel-skits/"><u>[New] In 2024, Hilarity Unleashed Top 7 Amusing YouTube Channel Skits</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-extract-and-save-youtube-gallery-files/"><u>[Updated] 2024 Approved Extract and Save YouTube Gallery Files</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-pump-up-your-viewership-with-these-proven-methods/"><u>[Updated] In 2024, Pump Up Your Viewership with These Proven Methods</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-simplified-steps-for-youtube-shorts-thumbnails-setup/"><u>[Updated] In 2024, Simplified Steps for YouTube Shorts Thumbnails Setup</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-inside-look-key-aspects-of-srt-mastery/"><u>[Updated] Inside Look Key Aspects of SRT Mastery</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-enhance-content-categorization-top-picks-for-the-7-cheapest-youtube-taggification-apps/"><u>2024 Approved Enhance Content Categorization Top Picks for the 7 Cheapest Youtube Taggification Apps</u></a></li>
-<li><a href="https://android-frp.techidaily.com/a-quick-guide-to-sony-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Sony FRP Bypass Instantly</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-realme-narzo-60-pro-5g-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Realme Narzo 60 Pro 5G</u></a></li>
-<li><a href="https://win-web3.techidaily.com/finding-the-right-schedule-for-your-windows-defender-checks-with-yl-software-insights/"><u>Finding the Right Schedule for Your Windows Defender Checks with YL Software Insights</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-streamlining-virtual-collaborations-a-comprehensive-scheduling-and-recording-manual-for-slack-plus-filmora/"><u>In 2024, Streamlining Virtual Collaborations A Comprehensive Scheduling & Recording Manual for Slack + Filmora</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/unlocking-fun-with-fortnite-insights-into-battle-royales-innovative-update/"><u>Unlocking Fun with Fortnite - Insights Into Battle Royale’s Innovative Update</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-unleashing-your-musical-voice-a-compree-play-by-play-guide-for-youtube-playlist-crafting/"><u>[New] In 2024, Unleashing Your Musical Voice A Compree Play-by-Play Guide for YouTube Playlist Crafting</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rofitable-pathways-8-steps-for-youtube-earning/"><u>[New] Profitable Pathways 8 Steps for YouTube Earning</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-step-by-step-techniques-for-creating-stellar-valorant-thumbnail-images/"><u>[Updated] In 2024, Step-by-Step Techniques for Creating Stellar Valorant Thumbnail Images</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/vering-the-timeline-for-youtube-earnings-for-2024/"><u>Discovering the Timeline for YouTube Earnings for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-messages-from-apple-iphone-13-mini-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Messages from Apple iPhone 13 mini to iPhone Including iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/secure-whole-page-scene/"><u>Secure Whole-Page Scene</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722887614419-solving-the-msstdfmtdll-file-missing-problem-a-step-by-step-guide/"><u>Solving the 'msstdfmt.dll File Missing' Problem: A Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/solving-windows-11s-zip-dilemma-a-guide-to-restoring-compromised-compressed-files/"><u>Solving Windows 11'S ZIP Dilemma: A Guide to Restoring Compromised Compressed Files</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-iphone-emergency-mode-6-steps-to-regain-control/"><u>Troubleshooting iPhone Emergency Mode: 6 Steps to Regain Control</u></a></li>
 </ul></div>
 

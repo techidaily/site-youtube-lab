@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Ultimate Guide to YouTube Thumbnail Crafting\""
-date: 2024-08-23T09:00:12.018Z
-updated: 2024-08-24T09:00:12.018Z
+date: 2024-12-17T21:40:40.993Z
+updated: 2024-12-22T17:10:36.714Z
 tags:
   - ai video
   - ai youtube
@@ -47,17 +47,33 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
@@ -66,6 +82,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-maximizing-value-comparing-cloud-storage-costs-of-2024/"><u>[New] Maximizing Value Comparing Cloud Storage Costs of 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-prove-your-skills-with-flawless-ps4-screen-capture-for-gamers-for-2024/"><u>[New] Prove Your Skills with Flawless PS4 Screen Capture for Gamers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nmatched-convert-experience-premier-online-ytvideo-tools/"><u>[New] Unmatched Convert Experience Premier Online YTVideo Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-distinctive-digital-monikers-for-video-creators/"><u>[Updated] 2024 Approved Distinctive Digital Monikers for Video Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-your-guide-to-making-millions-on-youtube-from-novice-to-big-earnings/"><u>[Updated] 2024 Approved Your Guide to Making Millions on YouTube From Novice to Big Earnings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-decoding-youtubes-thumbnail-impact-on-traffic/"><u>[Updated] Decoding YouTube's Thumbnail Impact on Traffic</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-maximizing-youtube-visibility-with-key-hashtags-for-2024/"><u>[Updated] Maximizing YouTube Visibility with Key #Hashtags for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-ultimate-guide-to-adjusting-to-new-facebook-ranking-criteria/"><u>[Updated] The Ultimate Guide to Adjusting to New Facebook Ranking Criteria</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-your-complete-breakdown-of-youtube-short-content-for-2024/"><u>[Updated] Your Complete Breakdown of YouTube Short Content for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-strategies-for-watching-multiple-youtube-videos/"><u>2024 Approved Strategies for Watching Multiple YouTube Videos</u></a></li>
+<li><a href="https://program-issues.techidaily.com/cs2-gameplay-interrupted-learn-how-to-enhance-frame-rate-stability-on-pc/"><u>CS2 Gameplay Interrupted? Learn How to Enhance Frame Rate Stability on PC</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/explore-the-best-digital-book-experiences-with-our-picked-8-apps/"><u>Explore the Best Digital Book Experiences with Our Picked 8 Apps</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-restore-a-bricked-nubia-z50-ultra-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Nubia Z50 Ultra Back to Operation | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-nulaxy-km18-car-fm-transmitter-trustworthy-performance-over-time/"><u>The Ultimate Review of Nulaxy KM18 Car FM Transmitter - Trustworthy Performance Over Time</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-5-avant-garde-creators-in-digital-media-for-2024/"><u>Top 5 Avant-Garde Creators in Digital Media for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

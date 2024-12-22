@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Perfect Shots Start With The Right Camera & Lens Selection"
-date: 2024-08-23T09:01:25.498Z
-updated: 2024-08-24T09:01:25.498Z
+date: 2024-12-17T18:42:26.626Z
+updated: 2024-12-22T21:54:45.680Z
 tags:
   - ai video
   - ai youtube
@@ -85,13 +85,11 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -112,24 +110,23 @@ This table shows you the focal lengths needed to achieve the same shot between c
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -145,8 +142,9 @@ But do you even need a fast lens?
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -161,20 +159,21 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -183,4 +182,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-digital-asset-management-implementing-watermarks-on-instagram/"><u>[New] In 2024, Digital Asset Management Implementing Watermarks on Instagram</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-the-novices-route-to-rapidly-play-videos-on-snapchat/"><u>[New] In 2024, The Novice's Route to Rapidly Play Videos on Snapchat</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/erfect-shots-a-guide-to-capturing-engaging-youtube-content-for-2024/"><u>[New] Perfect Shots A Guide to Capturing Engaging YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/eal-of-credibility-writing-journalisms-finale-for-2024/"><u>[New] Seal of Credibility Writing Journalism's Finale for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ransforming-life-experiences-into-engaging-yt-videos/"><u>[New] Transforming Life Experiences Into Engaging YT Videos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-elevate-presentations-harnessing-aiseesoft-screen-recordings/"><u>[Updated] Elevate Presentations Harnessing Aiseesoft Screen Recordings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-essential-notebooks-excellent-in-media-post-production-for-2024/"><u>[Updated] Essential Notebooks Excellent in Media Post-Production for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-uniting-twitter-and-facebook-through-shared-content/"><u>[Updated] In 2024, Uniting Twitter and Facebook Through Shared Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-journey-to-wellness-discovering-the-best-yoga-vloggers/"><u>2024 Approved Journey to Wellness - Discovering the Best Yoga Vloggers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-uncluttered-desktop-recorder-w10/"><u>2024 Approved Uncluttered Desktop Recorder W10</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/deciphering-the-best-communication-channel-for-your-crew-slack-or-discord-in-2024/"><u>Deciphering the Best Communication Channel for Your Crew Slack or Discord, In 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Lava Yuva 3? | Dr.fone</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-elevate-video-performance-following-the-path-of-stars/"><u>In 2024, Elevate Video Performance Following the Path of Stars</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/lays-you-can-now-see-your-shorts/"><u>No Delays! You Can Now See Your Shorts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/pushing-photography-to-new-heights-with-lightrooms-hdr-for-2024/"><u>Pushing Photography to New Heights with Lightroom's HDR for 2024</u></a></li>
+</ul></div>
 

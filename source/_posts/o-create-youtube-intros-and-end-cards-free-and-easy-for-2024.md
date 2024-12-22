@@ -1,7 +1,7 @@
 ---
 title: "\"How to Create YouTube Intros & End Cards - Free and Easy for 2024\""
-date: 2024-08-23T09:03:33.626Z
-updated: 2024-08-24T09:03:33.626Z
+date: 2024-12-18T21:09:20.574Z
+updated: 2024-12-22T18:32:52.701Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/9b9110ec4a61375e331a8801ee2c3323c1b29e5d6
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/-step-by-step-guide-to-using-youtubes-creative-commons-license-for-2024/"><u>[New] A Step-by-Step Guide to Using YouTube's Creative Commons License for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-translating-views-into-dollars-on-youtube-via-cpm/"><u>[New] In 2024, Translating Views Into Dollars on YouTube via CPM</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nvaluable-list-of-costless-photographic-and-moving-images/"><u>[New] Invaluable List of Costless Photographic and Moving Images</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/criptwriting-101-for-aspiring-youtube-producers/"><u>[New] Scriptwriting 101 for Aspiring YouTube Producers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-best-movie-swaps-top-7-alternate-films/"><u>[Updated] In 2024, Best Movie Swaps Top 7 Alternate Films</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-ultimate-companion-for-your-vlogging-journey-top-12-cameras/"><u>[Updated] In 2024, The Ultimate Companion for Your Vlogging Journey - Top 12 Cameras</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-premier-content-creators-colloquy/"><u>[Updated] Premier Content Creators Colloquy</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-real-time-caption-generator-for-2024/"><u>[Updated] Real-Time Caption Generator for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-create-captivating-videos-with-free-intros/"><u>2024 Approved Create Captivating Videos with Free Intros</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-diy-youtube-music-collection-a-comprehensive-online-and-app-method/"><u>2024 Approved DIY YouTube Music Collection A Comprehensive Online & App Method</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-youtube-captioning-for-clearer-communication/"><u>2024 Approved YouTube Captioning for Clearer Communication</u></a></li>
+<li><a href="https://program-issues.techidaily.com/final-fantasy-xv-stability-issues-on-pc-corrected-comprehensive-guide/"><u>Final Fantasy XV Stability Issues on PC Corrected - Comprehensive Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/from-green-to-blue-discover-the-top-three-iphone-16-innovations-that-could-persuade-an-android-devotee-zdnet/"><u>From Green to Blue: Discover the Top Three iPhone 16 Innovations That Could Persuade an Android Devotee | ZDNET</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/futureproof-tech-the-top-5-bodycams-dominating-2e24-market/"><u>Futureproof Tech: The Top 5 Bodycams Dominating 2E24 Market</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-amplify-your-shorts-impact-with-bespoke-thumbnails/"><u>In 2024, Amplify Your Shorts' Impact with Bespoke Thumbnails</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-can-i-remove-the-apple-watch-activation-lock-by-iphone-8-plus-without-the-previous-owner-by-drfone-ios/"><u>In 2024, Can I Remove the Apple Watch Activation Lock By iPhone 8 Plus without the Previous Owner?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-oppo-a78-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>In 2024, Change Location on Yik Yak For your Oppo A78 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-guide-to-iphone-landscape-photography-excellence/"><u>In 2024, The Ultimate Guide to iPhone Landscape Photography Excellence</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>What are Location Permissions Life360 On Apple iPhone SE? | Dr.fone</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

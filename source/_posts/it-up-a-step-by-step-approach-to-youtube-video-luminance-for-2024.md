@@ -1,7 +1,7 @@
 ---
 title: "\"Beam It Up  A Step-By-Step Approach to YouTube Video Luminance for 2024\""
-date: 2024-08-23T09:03:06.498Z
-updated: 2024-08-24T09:03:06.498Z
+date: 2024-12-16T19:05:58.907Z
+updated: 2024-12-22T19:38:00.743Z
 tags:
   - ai video
   - ai youtube
@@ -49,9 +49,6 @@ Window lighting for me was especially difficult to work with because I live in a
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ### 2. Home Lighting
 
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
@@ -59,46 +56,43 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 3. 4-Point Lighting
 
 As a YouTuber, you may not only want yourself to be seen optimally with proper lighting, but you may also want your background to be seen optimally, especially if you’ve taken the time to decorate it for your audience.
@@ -113,7 +107,15 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -121,14 +123,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +136,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-hearthsongs-the-quintessential-playlist-for-engagement/"><u>[New] Hearthsongs The Quintessential Playlist for Engagement</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-hidden-prowess-in-locating-elusive-youtube-videos/"><u>[New] The Hidden Prowess in Locating Elusive YouTube Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/outube-music-reactions-years-top-ten-showcase-for-2024/"><u>[New] YouTube Music Reactions Year's Top Ten Showcase for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-quick-fixes-todays-rapidly-watched-videos/"><u>[Updated] 2024 Approved Quick Fixes Today's Rapidly Watched Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-discovering-the-ultimate-10-vr-video-experience-on-youtube/"><u>[Updated] Discovering the Ultimate 10-VR Video Experience on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-efficient-techniques-for-youtube-shorts-revenue/"><u>[Updated] Efficient Techniques for YouTube Shorts Revenue</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-exploring-best-applications-tiktok-vs-youtubes-micro-video-realm/"><u>[Updated] In 2024, Exploring Best Applications TikTok vs YouTube's Micro-Video Realm</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-step-by-step-guide-to-perfecting-videos-in-youtube-studio/"><u>[Updated] In 2024, Step-by-Step Guide to Perfecting Videos in YouTube Studio</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-stepwise-insta-story-image-integration-techniques-for-maximum-impact/"><u>[Updated] In 2024, Stepwise Insta Story Image Integration Techniques for Maximum Impact</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mobile-filmmaking-tips-designing-engaging-youtubes-thumbnails-for-2024/"><u>[Updated] Mobile Filmmaking Tips Designing Engaging YouTubes Thumbnails for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Oppo A56s 5G | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-motorola-moto-g84-5g-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Motorola Moto G84 5G? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/from-code-to-creativity-ai-in-windows-productivity/"><u>From Code to Creativity: AI in Windows Productivity</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-transform-your-life-top-10-premium-yoga-streams-unleashed/"><u>In 2024, Transform Your Life Top 10 Premium Yoga Streams Unleashed</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/infusing-life-into-ig-story-posts-a-guide-to-dynamic-animated-text/"><u>Infusing Life Into IG Story Posts A Guide to Dynamic, Animated Text</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ms-riches-the-ultimate-dj-templates-collection/"><u>Rhythm's Riches The Ultimate DJ Templates Collection</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-review-comprehensive-insights-on-the-latest-gadgets/"><u>Tom's Tech Review: Comprehensive Insights on the Latest Gadgets</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Get Smart with Your YouTube Thumbnails, Using a Mac"
-date: 2024-08-23T08:59:04.263Z
-updated: 2024-08-24T08:59:04.263Z
+date: 2024-12-18T18:14:20.335Z
+updated: 2024-12-22T16:37:42.009Z
 tags:
   - ai video
   - ai youtube
@@ -52,15 +52,16 @@ The first step in creating a thumbnail is to import the final video into the Fil
 
 ![import](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/3.import-media-files.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Then, use the thumbnail editor to play your video and choose the snapshot that you want to be appearing as your thumbnail.
 
 You can easily choose the frame from the video or use the preview frame button to view the frames one by one!
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
@@ -68,11 +69,9 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
+
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
@@ -80,11 +79,9 @@ FilmoraX has a wide range of effects that you can apply to your videos or pictur
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
+
 ### 4. Save the thumbnail
 
 After you are done with all the editing, the final step would be to save the youtube thumbnail by hitting the save button.
@@ -99,25 +96,27 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -126,4 +125,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-creating-profit-on-youtube-the-ultimate-list-of-top-business-channels/"><u>[New] 2024 Approved Creating Profit on YouTube The Ultimate List of Top Business Channels</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-navigating-to-your-youtube-comments-easily/"><u>[New] 2024 Approved Navigating to Your YouTube Comments Easily</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-expert-advice-choosing-exceptional-videographers/"><u>[New] Expert Advice Choosing Exceptional Videographers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-capturing-honesty-a-comprehensive-guide-to-insta-self-verification/"><u>[New] In 2024, Capturing Honesty A Comprehensive Guide to Insta Self-Verification</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ailor-your-narrative-crafting-engaging-youtube-descriptions-using-pre-set-templates-for-2024/"><u>[New] Tailor Your Narrative Crafting Engaging YouTube Descriptions Using Pre-Set Templates for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/isualcut-pro-for-2024/"><u>[New] VisualCut Pro for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-actors-insight-crafting-engaging-online-reactions-on-youtube-3-pro-tips-for-2024/"><u>[Updated] Actor's Insight Crafting Engaging Online Reactions on YouTube (3 Pro Tips) for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-how-to-fix-obs-not-recording-audio/"><u>[Updated] In 2024, How to Fix OBS Not Recording Audio</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-secure-and-simple-the-top-10-trusted-online-transformers-for-2024/"><u>[Updated] Secure and Simple The Top 10 Trusted Online Transformers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-a-step-by-step-expedition-to-youtubes-unseen-layers/"><u>2024 Approved A Step-by-Step Expedition to YouTube's Unseen Layers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-video-quality-utilizing-youtube-studios-features/"><u>Boosting Video Quality Utilizing YouTube Studio's Features</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-razer-mamba-driver-software-in-seconds-step-by-step-guide/"><u>Download Razer Mamba Driver Software in Seconds – Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-key-takeaways-on-youtube-tv-an-overview-of-its-advantages/"><u>In 2024, Key Takeaways on YouTube TV An Overview of Its Advantages</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-understanding-the-mechanisms-of-youtubes-cc-license/"><u>In 2024, Understanding the Mechanisms of YouTube's CC License</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Samsung Galaxy A15 4G? | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/iphone-hdr-a-step-by-step-journey-to-perfect-shots/"><u>IPhone HDR A Step-by-Step Journey to Perfect Shots</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/windows-7-wont-respond-to-your-clicks-fix-your-broken-mouse-and-keyboard-connections-now/"><u>Windows 7 Won't Respond to Your Clicks? Fix Your Broken Mouse and Keyboard Connections Now</u></a></li>
+</ul></div>
 

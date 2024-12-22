@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Easy and Inexpensive Techniques for YouTube Cards"
-date: 2024-08-23T08:59:51.407Z
-updated: 2024-08-24T08:59:51.407Z
+date: 2024-12-16T17:03:40.721Z
+updated: 2024-12-22T18:17:30.988Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/07ec08194f82a5c0eb7f1dbd160d4285a74e061c9
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-highest-rated-smartphone-camera-and-recording-apps-iphone-vs-android/"><u>[New] 2024 Approved Highest Rated Smartphone Camera & Recording Apps IPhone vs Android</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-rapid-expansion-youtube-channels-boosting-brainpower/"><u>[New] 2024 Approved Rapid Expansion YouTube Channels Boosting Brainpower</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/est-cameras-for-quality-youtube-content-for-2024/"><u>[New] Best Cameras for Quality YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/remium-sound-picks-for-content-creators-for-2024/"><u>[New] Premium Sound Picks for Content Creators for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nderstanding-filmoras-creative-certification-protocol-for-2024/"><u>[New] Understanding Filmora's Creative Certification Protocol for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-calculator-projected-profits-from-youtube/"><u>[Updated] Calculator Projected Profits From YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mp3-broadcasting-toolkit-convert-upload-and-stream-youtube/"><u>[Updated] MP3 Broadcasting Toolkit Convert, Upload & Stream YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-positive-interaction-not-pressure-a-subscription-success-story/"><u>2024 Approved Positive Interaction, Not Pressure A Subscription Success Story</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-top-10-music-reactions-on-yt-a-year-end-review/"><u>2024 Approved Top 10 Music Reactions on YT A Year-End Review</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/enhance-your-editing-experience-update-internet-explorer-and-firefox-with-the-powerful-features-of-emeditor/"><u>Enhance Your Editing Experience: Update Internet Explorer & Firefox with the Powerful Features of EmEditor</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-the-silence-a-guide-to-enable-voice-chatting-in-lol/"><u>Fixing The Silence: A Guide to Enable Voice Chatting in LoL</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/hashtag-wisdom-uncovering-the-best-tags-to-dominate-on-instagram/"><u>Hashtag Wisdom Uncovering the Best Tags to Dominate on Instagram</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-seamless-storyteller-leveraging-inshot-for-elegant-transitions/"><u>In 2024, The Seamless Storyteller Leveraging Inshot for Elegant Transitions</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-vivo-x100-pro-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Vivo X100 Pro Device</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-affordable-dell-g5-title-idea-3-top-picks-the-ultimate-budget-gaming-rig-a-closer-look-at-the-dell-g5-5090/"><u>In-Depth Analysis of the Affordable Dell G5 Title Idea 3: Top Picks - The Ultimate Budget Gaming Rig: A Closer Look at the Dell G5 5090</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/master-the-process-of-immediate-safe-mode-start-up-on-your-windows-pc/"><u>Master the Process of Immediate Safe Mode Start-Up on Your Windows PC</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/reclaim-lost-chatter-in-shared-tweeted-films-for-2024/"><u>Reclaim Lost Chatter in Shared Tweeted Films for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/simple-solutions-to-fix-android-systemui-has-stopped-error-for-motorola-edge-40-neo-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Simple Solutions to Fix Android SystemUI Has Stopped Error For Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/form-your-youtube-footage-into-cinematic-delight-with-imovie-expertise/"><u>Transform Your YouTube Footage Into Cinematic Delight with iMovie Expertise</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->

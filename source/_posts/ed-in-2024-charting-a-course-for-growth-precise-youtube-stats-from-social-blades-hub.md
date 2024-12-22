@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Charting a Course for Growth  Precise YouTube Stats From Social Blade's Hub\""
-date: 2024-12-06T16:49:13.133Z
-updated: 2024-12-13T16:28:17.977Z
+date: 2024-12-18T21:11:42.466Z
+updated: 2024-12-22T18:42:31.335Z
 tags:
   - ai video
   - ai youtube
@@ -39,7 +39,7 @@ While many of the stats you can find on Social Blade are also available right on
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Your YouTube Analytics
@@ -47,7 +47,7 @@ While many of the stats you can find on Social Blade are also available right on
 ![Social Blade for YouTube Analytics](https://images.wondershare.com/filmora/article-images/social-blade-youtube-analytics.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Social Blade is an excellent place to gauge the growth of your channel. It provides statistics on our subscribers, views, and estimated revenue.
@@ -69,7 +69,7 @@ If you scroll down to the second section you will be able to see your views, sub
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spying on Other Channels
@@ -85,7 +85,7 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
  That's how you can use Social Blade for YouTube - have you ever used it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Make Your Videos Stand Out with Powerful Video Editor
@@ -93,7 +93,7 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -119,24 +119,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-from-idea-to-live-stream-a-comprehensive-guide-for-instagram-and-obs-users/"><u>[New] In 2024, From Idea to Live Stream A Comprehensive Guide for Instagram & OBS Users</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-vuephoto-ai-powered-editing/"><u>[New] In 2024, VuePhoto AI-Powered Editing</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-mastering-screencasts-a-step-by-step-manual/"><u>[New] Mastering Screencasts A Step-by-Step Manual</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ixelpie-cutter/"><u>[New] PixelPie Cutter</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-pro-tips-for-rapidly-creating-effective-subtitles-on-fb-for-2024/"><u>[New] Pro Tips for Rapidly Creating Effective Subtitles on FB for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/he-ultimate-guide-to-fostering-viewer-commitment-in-youtube-videos-for-2024/"><u>[New] The Ultimate Guide to Fostering Viewer Commitment in YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-from-game-day-to-hollywood-sports-video-success-story/"><u>[Updated] 2024 Approved From Game Day to Hollywood Sports Video Success Story</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-must-watch-asmr-video-gems-online/"><u>[Updated] In 2024, Must-Watch ASMR Video Gems Online</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-mastering-cross-platform-communication-twitch-and-whatsapp-synergy/"><u>[Updated] Mastering Cross-Platform Communication Twitch & WhatsApp Synergy</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-understanding-youtube-revenue-models-today/"><u>2024 Approved Understanding YouTube Revenue Models Today</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/affordable-streams-for-scholars-securing-the-spotify-student-price-cut/"><u>Affordable Streams for Scholars: Securing the Spotify Student Price Cut</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/webcams-for-youtube-livestreaming/"><u>Best Webcams for YouTube Livestreaming</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/channel-image-makeovers-on-the-house/"><u>Channel Image Makeovers on the House</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/y-in-a-click-best-funny-short-video-suggestions-for-youtubers-for-2024/"><u>Comedy in a Click Best Funny Short Video Suggestions for YouTubers for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/cutting-edge-tips-for-professional-lunapic-editing/"><u>Cutting-Edge Tips for Professional LunaPic Editing</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/expert-tips-for-handling-missing-mscorwksdll-files-on-your-pc-fixes-and-prevention/"><u>Expert Tips for Handling Missing mscorwks.dll Files on Your PC – Fixes & Prevention</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/by-step-for-sports-video-compilation/"><u>Step-by-Step for Sports Video Compilation</u></a></li>
-<li><a href="https://win-special.techidaily.com/step-by-step-guide-setting-up-your-own-recovery-drive-tips-and-tricks-from-yl-computing/"><u>Step-by-Step Guide: Setting Up Your Own Recovery Drive - Tips & Tricks From YL Computing</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ltimate-guide-to-viewer-engagement-and-loyalty-6-proven-strategies-for-youtube-success/"><u>The Ultimate Guide to Viewer Engagement and Loyalty 6 Proven Strategies for YouTube Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-12-exceptional-game-starting-tutorials-from-youtube-pros-freepremium/"><u>[New] 2024 Approved 12 Exceptional Game-Starting Tutorials From YouTube Pros (Free/Premium)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-spotlight-on-8-trusted-youtube-growth-services/"><u>[New] 2024 Approved Spotlight on 8 Trusted Youtube Growth Services</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-the-film-makers-quick-guide-to-perfect-sea-scenes/"><u>[New] 2024 Approved The Film-Maker’s Quick Guide to Perfect Sea Scenes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-essential-tips-for-monetizing-your-content-finding-the-right-viewer-count/"><u>[New] 5 Essential Tips for Monetizing Your Content Finding the Right Viewer Count</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-beyond-the-screen-advanced-techniques-in-logging-virtual-reality-games/"><u>[New] In 2024, Beyond the Screen Advanced Techniques in Logging Virtual Reality Games</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-247-real-time-follower-analysis-for-2024/"><u>[Updated] 24/7 Real-Time Follower Analysis for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-stepwise-strategies-for-measuring-yt-success-metrics-and-revenue/"><u>[Updated] In 2024, Stepwise Strategies for Measuring YT Success Metrics and Revenue</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-transforming-view-counts-with-strategic-video-tagging-techniques/"><u>[Updated] In 2024, Transforming View Counts with Strategic Video Tagging Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-prioritize-tags-the-essentials-for-your-youtube-video-posting-for-2024/"><u>[Updated] Prioritize Tags The Essentials for Your YouTube Video Posting for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-professional-filmmakers-plug-in-picks-for-final-cut-for-2024/"><u>[Updated] Professional Filmmaker's Plug-In Picks for Final Cut for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-top-viral-video-tags-tips-for-popular-youtube-shorts/"><u>2024 Approved Top Viral Video Tags Tips for Popular YouTube Shorts</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-stop-unexpected-noise-interferences-in-windows-easily/"><u>How to Stop Unexpected Noise Interferences in Windows Easily</u></a></li>
+<li><a href="https://win-answers.techidaily.com/improve-your-gaming-experience-troubleshooting-stutters-and-lag-in-naraka-bladepoint/"><u>Improve Your Gaming Experience: Troubleshooting Stutters & Lag in Naraka: Bladepoint</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-paint-peculiar-pictures-with-giphy/"><u>In 2024, Paint Peculiar Pictures with Giphy</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/microsoft-outages-reveal-urgent-need-for-government-to-move-away-from-dominant-technology-providers/"><u>Microsoft Outages Reveal Urgent Need for Government to Move Away From Dominant Technology Providers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/strategies-to-resuscitate-your-suspended-chatgpt/"><u>Strategies to Resuscitate Your Suspended ChatGPT</u></a></li>
 </ul></div>
 
