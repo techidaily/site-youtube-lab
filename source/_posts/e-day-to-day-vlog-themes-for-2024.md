@@ -1,7 +1,7 @@
 ---
 title: "\"Unique Day-to-Day Vlog Themes for 2024\""
-date: 2024-08-23T08:55:19.437Z
-updated: 2024-08-24T08:55:19.437Z
+date: 2024-12-23T16:48:16.047Z
+updated: 2024-12-27T18:57:09.906Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -45,24 +49,22 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
 
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ## Whatever You Need to Get Out
 
 _Flula is frequently puzzled by English expressions, like 'Party Pooper', and needs to get his confusion off his chest at odd hours of the day._
@@ -74,8 +76,9 @@ It does not matter what it is that is making you have this strong reaction (unle
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What did you learn today?
 
  _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
@@ -93,22 +96,21 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
@@ -121,14 +123,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +136,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-evaluating-earnings-from-one-million-youtube-watches/"><u>[New] 2024 Approved Evaluating Earnings From One Million YouTube Watches</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-ace-your-edits-pro-level-tips-for-lunapic-users/"><u>[New] Ace Your Edits Pro-Level Tips for LunaPic Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ixing-shorts-the-thumbnail-not-showing-dilemma-for-2024/"><u>[New] Fixing Shorts The Thumbnail Not Showing Dilemma for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-seamless-integration-of-video-filters-in-zoom/"><u>[New] Seamless Integration of Video Filters in Zoom</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-enhancing-engagement-adding-text-and-links-to-youtube-content/"><u>[Updated] In 2024, Enhancing Engagement Adding Text and Links to YouTube Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-permanently-quit-youtube-shorts-now-in-2024/"><u>[Updated] Permanently Quit YouTube Shorts Now, In 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-video-traffic-triumph-key-youtube-seo-tools/"><u>[Updated] Video Traffic Triumph - Key YouTube SEO Tools</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-the-new-age-of-samsungs-bdplus-k850/"><u>2024 Approved Exploring the New Age of Samsung's BD+ K850</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/vate-inner-peace-and-physical-strength-with-these-channels-for-2024/"><u>Cultivate Inner Peace & Physical Strength with These Channels for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/direct-link-to-download-logitech-racing-wheel-drivers-for-personal-computers/"><u>Direct Link to Download Logitech Racing Wheel Drivers for Personal Computers</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/does-find-my-friends-work-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Infinix Smart 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/download-the-ultimate-macx-dvd-ripper-hd-dvd-conversion-software-for-your-mac-transform-any-dvd-into-iphone-compatible-video-for-free/"><u>Download the Ultimate MacX DVD Ripper: HD DVD Conversion Software For Your Mac - Transform Any DVD Into iPhone-Compatible Video for Free</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/expedient-techniques-to-spot-and-expel-deceptive-insta-connections/"><u>Expedient Techniques to Spot and Expel Deceptive Insta Connections</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-hidden-windows-11-techniques-for-effortless-import-tasks/"><u>In 2024, Hidden Windows 11 Techniques for Effortless Import Tasks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-viewers-hooked-the-ultimate-guide-for-enhanced-audience-loyalty-on-youtube-for-2024/"><u>Keeping Viewers Hooked The Ultimate Guide for Enhanced Audience Loyalty on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-guide-to-free-youtube-closure-creation/"><u>Quick Guide to Free YouTube Closure Creation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ling-youtubes-monthly-monetization-rules-for-2024/"><u>Unveiling YouTube’s Monthly Monetization Rules for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/upgrading-your-laptops-memory-a-step-by-step-guide-on-installing-more-ram/"><u>Upgrading Your Laptop's Memory: A Step-by-Step Guide on Installing More RAM</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/first-step-designing-attractive-videos-on-a-mac-for-2024/"><u>Your First Step Designing Attractive Videos on a Mac for 2024</u></a></li>
+</ul></div>
 

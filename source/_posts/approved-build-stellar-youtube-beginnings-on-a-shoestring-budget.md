@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Build Stellar YouTube Beginnings on a Shoestring Budget\""
-date: 2024-08-23T08:53:34.251Z
-updated: 2024-08-24T08:53:34.251Z
+date: 2024-12-21T08:29:14.641Z
+updated: 2024-12-27T22:38:30.746Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/d35c94f12f755c322517a2947b55e4796f16febf7
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-reimagine-realities-unlocking-the-potential-of-youtubes-greenscreens/"><u>[New] 2024 Approved Reimagine Realities Unlocking the Potential of YouTube's Greenscreens</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-hashtags-hack-skyrocket-your-video-popularity/"><u>[New] In 2024, Hashtags Hack Skyrocket Your Video Popularity</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-speedy-fortnite-cover-art-creation/"><u>[New] In 2024, Speedy Fortnite Cover Art Creation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-unlock-professional-video-quality-with-top-youtube-to-webm-tools/"><u>[New] In 2024, Unlock Professional Video Quality with Top YouTube-to-WebM Tools</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-precisionscreenrecorder-capture-anytime-for-2024/"><u>[Updated] PrecisionScreenRecorder - Capture Anytime for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-cross-media-broadcasting-4-strategies-to-air-fb-livests-on-tv/"><u>2024 Approved Cross-Media Broadcasting 4 Strategies to Air FB Livests on TV</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/2024s-ultimate-selection-leading-body-cam-brands-reviewed/"><u>2024'S Ultimate Selection: Leading Body Cam Brands Reviewed</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-vivo-t2-pro-5g-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Vivo T2 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-vivo-y100t-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Vivo Y100t | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/6-awesome-free-webcam-games-for-computer/"><u>6 Awesome Free Webcam Games for Computer</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-samsung-galaxy-a54-5g-s-lock-screen-pattern-pin-or-password-by-drfone-android-unlock-android-unlock/"><u>How to bypass Samsung Galaxy A54 5G’s lock screen pattern, PIN or password</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-sportscasting-your-pathway-to-highlight-videos/"><u>In 2024, Sportscasting Your Pathway to Highlight Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-step-by-step-guide-mastering-creative-effects-in-online-zoom-sessions/"><u>In 2024, Step-by-Step Guide Mastering Creative Effects in Online Zoom Sessions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/m-like-a-pro-on-youtube-best-webcams-reviewed/"><u>Stream Like a Pro on YouTube Best Webcams Reviewed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/be-channel-art-how-to-make-banners-icons-and-thumbnails-in-2024/"><u>YouTube Channel Art How to Make Banners, Icons, and Thumbnails, In 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->

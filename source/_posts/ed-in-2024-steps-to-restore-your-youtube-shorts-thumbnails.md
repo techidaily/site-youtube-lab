@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Steps to Restore Your YouTube Shorts' Thumbnails"
-date: 2024-12-07T18:48:13.961Z
-updated: 2024-12-13T17:33:34.009Z
+date: 2024-12-21T03:46:22.774Z
+updated: 2024-12-27T20:09:16.643Z
 tags:
   - ai video
   - ai youtube
@@ -27,6 +27,10 @@ That said, it is a problem you want to solve. Here are 7 FAQs about YouTube Shor
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Q1\. Can I Customize YouTube Shorts Thumbnails?
 
 Yes, you can. YouTube did allow short-form video creators to upload custom thumbnails for their Shorts. However, they aren't that optimized. For instance, some people may not see them on the Shorts shelf. Also, if you share a link to the video somewhere else, the old video thumbnail may show instead of the new one.
@@ -36,10 +40,6 @@ Adding a custom thumbnail for YouTube Shorts is the same as adding one for long-
 * Open the YouTube mobile app. Click the "Plus" icon at the bottom center > "Create Short." Upload, edit, and post your video.
 
 ![creating shorts on youtube app](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Get to your desktop computer or laptop. Open your channel's YouTube Studio.
 
@@ -64,13 +64,13 @@ _"They ALL have randomly selected different parts of each video I have uploaded 
 
 The reason behind this is the difference in the thumbnail size. Regular YouTube video thumbnails are in the ratio of 16:9\. Meanwhile, Shorts uses a ratio of 9:16\. The thing is that YouTube does not yet allow you to upload 9:16 thumbnails. Thus, the thumbnail for Shorts may show correctly on the video section but not on the Shorts shelf.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Q3\. How to Fix YouTube Shorts Thumbnail Problem?
 
 ![fix youtube shorts thumbnail not showing problem](https://images.wondershare.com/filmora/article-images/fix-youtube-shorts-thumbnail-not-showing.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Unfortunately, there is no reliable fix to this problem yet. YouTubers have tried different things in hopes that YouTube will display the correct thumbnail for their Shorts.
 
@@ -81,10 +81,6 @@ Some YouTubers have tried using different images. Others have experimented with 
 Attracting viewers on Shorts is the same as attracting viewers on the main YouTube. You use interesting thumbnails and video titles. Since thumbnails are out of the options, selecting great video titles has become even more important.
 
 Here are some pointers. Your title should be at most 40 characters. Also, it should be concise and irresistible. And forget about SEO since no one is searching for YouTube Shorts anyway. People consume what they see in their feeds. So instead, the title should be "snappy." It should intrigue, entertain, or enlighten the viewers. That will net you some views for your Shorts content.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Q5\. How To Get More Views on YouTube Shorts?
 
@@ -98,13 +94,13 @@ Of course, ensuring that the video quality is high is key to getting more views.
 
 ![filmora mobile feature showcase](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-filmora.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The best thing is that you don't need to transfer the video from your phone to your computer and back. Wondershare Filmora is available on mobile. And it's one of the best tools for enhancing a short-form video.
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Q6\. Do YouTube Shorts Make Money?
 
@@ -113,10 +109,6 @@ Making money from YouTube Shorts was challenging. The platform pays content crea
 Luckily, that's going to change. Starting this year, Shorts will be a part of the YouTube Partner Program. This means that you can make money from the ads that people watch on Shorts. According to YouTube, creators will keep 45% of the revenue. It will be distributed based on your share of total Shorts views.
 
 YouTube also adjusted the requirements to qualify for the YPP. They made it easier for Shorts content creators to get into the program.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Q7\. How Do You Make YouTube Shorts Play Normal?
 
@@ -128,6 +120,10 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![shorts tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-1.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Pause the video.
 
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
@@ -136,13 +132,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### On a Mobile Phone
 
@@ -161,6 +157,10 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Scroll down to find "Liked Videos." Click on it.
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Select the Shorts video you just watched. It should be at the top of the list.
 
@@ -176,13 +176,13 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 
 ![filmora mobile feature showcase](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-filmora.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The best thing is that you don't need to transfer the video from your phone to your computer and back. Wondershare Filmora is available on mobile. And it's one of the best tools for enhancing a short-form video.
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Q6\. Do YouTube Shorts Make Money?
 
@@ -197,7 +197,7 @@ YouTube also adjusted the requirements to qualify for the YPP. They made it easi
 You can watch Shorts like normal YouTube videos where you can rewind when you want to. Follow these steps.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### On a Desktop Computer
@@ -219,7 +219,7 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### On a Mobile Phone
@@ -240,13 +240,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -275,22 +275,24 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-exploring-apowersofts-pc-screen-snap-recorder-for-2024/"><u>[New] Exploring Apowersoft's PC Screen Snap Recorder for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-purity-in-browsing-top-7-selective-android-adblocking-tools/"><u>[New] In 2024, Purity in Browsing Top 7 Selective Android AdBlocking Tools</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-premium-combo-exclusive-afx-design-tools-for-2024/"><u>[New] Premium Combo Exclusive AFX Design Tools for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-screenflow-exploration-a-mac-focused-journey-through-video-editing/"><u>[New] ScreenFlow Exploration A Mac-Focused Journey Through Video Editing</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/kyrocketing-growth-top-strategies-to-increase-views-in-freefire-tagging/"><u>[New] Skyrocketing Growth Top Strategies to Increase Views in FreeFire Tagging</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-crafting-gifs-like-a-pro-industry-leaders-tools/"><u>[Updated] 2024 Approved Crafting GIFs Like a Pro Industry Leaders' Tools</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-exploring-differences-between-igtv-and-youtube-for-effective-posts/"><u>[Updated] 2024 Approved Exploring Differences Between IGTV and YouTube for Effective Posts</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-crafting-unique-thumbnails-for-youtube-content/"><u>[Updated] Crafting Unique Thumbnails for YouTube Content</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-6-completely-different-places-to-get-icons-and-logos-for-youtube-videos/"><u>[Updated] In 2024, 6 Completely Different Places to Get Icons and Logos for YouTube Videos</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-unlock-the-full-potential-of-snapshots-on-iphones/"><u>[Updated] Unlock the Full Potential of Snapshots on iPhones</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-legal-download-how-to-safely-transfer-youtube-to-mp4/"><u>2024 Approved Legal Download How to Safely Transfer YouTube to MP4</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/8-mirrorless-cameras-to-elevate-your-vlogging-game/"><u>Best 8 Mirrorless Cameras to Elevate Your Vlogging Game</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/comparing-ipad-models-mini-vs-air-key-features-and-performance/"><u>Comparing iPad Models: Mini vs Air - Key Features & Performance</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/enjoy-a-seamless-streaming-experience-unveiling-the-potential-of-pip-on-netflix/"><u>Enjoy a Seamless Streaming Experience Unveiling the Potential of PIP on Netflix</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-dive-into-filmoras-certified-creative-program/"><u>In 2024, Dive Into Filmora’s Certified Creative Program</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-the-process-of-rotating-a-video-is-rather-simple-and-you-dont-need-access-to-a-professional-video-editing-app-like-adobe-premiere-pro-to-perform-thi/"><u>In 2024, The Process of Rotating a Video Is Rather Simple, and You Dont Need Access to a Professional Video Editing App Like Adobe Premiere Pro to Perform This Task, because There Are Quite a Few Online Platf</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/the-ultimate-guide-to-free-flv-video-editors-2023-update-for-2024/"><u>The Ultimate Guide to Free FLV Video Editors (2023 Update) for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-live-video-responses-on-twitter-your-ultimate-how-to-manual/"><u>[New] 2024 Approved Live Video Responses on Twitter Your Ultimate How-To Manual</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ngineering-engaging-media-excerpts/"><u>[New] Engineering Engaging Media Excerpts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-bringing-rhythm-to-instagrams-visual-narratives/"><u>[New] In 2024, Bringing Rhythm to Instagram's Visual Narratives</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-pixelstreamer-pro-enhanced-os-recorder/"><u>[New] In 2024, PixelStreamer Pro Enhanced OS Recorder</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-use-a-tripod-for-vlogging/"><u>[Updated] 2024 Approved How To Use a Tripod for Vlogging</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-capture-the-spectacular-with-nikon-d500-in-4k/"><u>[Updated] Capture the Spectacular with Nikon D500 in 4K</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-capturing-action-choosing-from-5-leading-game-stream-webcams-for-2024/"><u>[Updated] Capturing Action Choosing From 5 Leading Game Stream Webcams for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-ignite-the-spark-inspiration-in-every-video-concept-for-2024/"><u>[Updated] Ignite the Spark Inspiration in Every Video Concept for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-boosting-viewer-interest-with-optimal-video-thumbnail-sizes/"><u>[Updated] In 2024, Boosting Viewer Interest with Optimal Video Thumbnail Sizes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-snappy-fortnite-visuals-in-no-time-for-2024/"><u>[Updated] Snappy Fortnite Visuals in No Time for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-educational-journey-through-time-with-top-history-yt-channels/"><u>2024 Approved Educational Journey Through Time with Top History YT Channels</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-in-depth-walkthrough-editing-youtube-videos-in-wmm/"><u>2024 Approved In-Depth Walkthrough Editing YouTube Videos in WMM</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/t-mirrorless-cameras-for-vlogging-for-2024/"><u>8 Best Mirrorless Cameras for Vlogging for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/60716028-expedite-channel-growth-surpass-the-10k-view-threshold-now/"><u>Expedite Channel Growth Surpass the 10K View Threshold Now!</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-missing-d3dx939dll-errors-on-your-pc-with-easy-fixes/"><u>Fixing Missing d3dX9_39.dll Errors on Your PC with Easy Fixes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-elevate-your-channels-selecting-prime-microphones-for-every-content-category/"><u>In 2024, Elevate Your Channels Selecting Prime Microphones for Every Content Category</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-integrated-mac-system-screenmicrophone-recording/"><u>In 2024, Integrated Mac System Screen/Microphone Recording</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/making-ai-mirror-your-writing-flair-with-chatgpt-customization-tips/"><u>Making AI Mirror Your Writing Flair with ChatGPT Customization Tips</u></a></li>
+<li><a href="https://os-tips.techidaily.com/retrieving-lost-iphone-data-effective-techniques-including-both-backed-up-and-non-backed-up-scenarios/"><u>Retrieving Lost iPhone Data: Effective Techniques Including Both Backed-Up and Non-Backed-Up Scenarios</u></a></li>
 </ul></div>
 

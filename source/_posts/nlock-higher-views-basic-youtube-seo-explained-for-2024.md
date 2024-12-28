@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Unlock Higher Views  Basic YouTube SEO Explained for 2024\""
-date: 2024-12-15T16:38:42.820Z
-updated: 2024-12-22T20:15:19.245Z
+date: 2024-12-25T03:09:26.710Z
+updated: 2024-12-27T21:33:34.941Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,10 @@ Let’s Go!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -56,10 +60,6 @@ Wait, don’t go making the video yet. First, we have to do some research. We ne
 Do a quick search on YouTube to see what videos already exist on your topic.
 
 ![Find Related Videos Sample](https://images.wondershare.com/filmora/article-images/find-related-videos.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Uh oh… your video will be competing against celebrities like Gordon Ramsay and Jamie Oliver.
 
@@ -165,6 +165,10 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -199,10 +203,6 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -213,6 +213,10 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -222,7 +226,7 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Publishing With Attention to Optimization
@@ -230,10 +234,6 @@ Want to know more thumbnail maker? Check our picks of the [best free YouTube thu
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Come on, keep going!
 
@@ -244,7 +244,7 @@ The video is done, the thumbnail is designed, and you have all your title, descr
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
@@ -296,19 +296,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-watch-deleted-youtube-videos-online-in-2-ways/"><u>[New] 2024 Approved How to Watch Deleted YouTube Videos Online in 2 Ways</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/fficient-solutions-for-youtube-short-snags/"><u>[New] Efficient Solutions for YouTube Short Snags</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-perfect-tape-mac-based-recording/"><u>[New] In 2024, Perfect Tape Mac-Based Recording</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-the-artisans-handbook-perfecting-your-windows-pc-in-live-tv-recording/"><u>[New] The Artisan's Handbook Perfecting Your Windows PC in Live TV Recording</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/he-essential-playbook-achieving-peak-video-editing-on-youtube-studio-for-2024/"><u>[New] The Essential Playbook Achieving Peak Video Editing on YouTube Studio for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-elevating-your-work-with-impeccable-thumbnails/"><u>[Updated] 2024 Approved Elevating Your Work with Impeccable Thumbnails</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-find-your-way-to-youtube-studio-a-comprehensive-overview/"><u>[Updated] 2024 Approved Find Your Way to YouTube Studio A Comprehensive Overview</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-instagram-savvy-top-5-methods-for-building-a-thriving-influencer-profile/"><u>[Updated] In 2024, Instagram Savvy Top 5 Methods for Building a Thriving Influencer Profile</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-skyrocket-your-youtube-rankings-with-these-insider-moves/"><u>[Updated] Skyrocket Your YouTube Rankings with These Insider Moves</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-stardew-insider-exploring-ginger-island-thoroughly/"><u>[Updated] Stardew Insider Exploring Ginger Island Thoroughly</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-pace-upplayers-swift-sharing-of-youtube-plays/"><u>2024 Approved Pace Upplayers Swift Sharing of YouTube Plays</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/easy-youtube-to-video-transformation-tool-for-macos-users/"><u>Easy YouTube-to-Video Transformation Tool for macOS Users</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/find-your-ideal-wedding-timer-on-android-and-ios-platforms-here/"><u>Find Your Ideal Wedding Timer on Android & iOS Platforms Here</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-frame-freezing-banishing-blurry-bites/"><u>In 2024, Frame Freezing Banishing Blurry Bites</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-dissecting-ajey-nagars-2023-youtube-economic-landscape/"><u>[New] 2024 Approved Dissecting Ajey Nagar's 2023 YouTube Economic Landscape</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-optimal-size-strategy-for-click-driven-titles/"><u>[New] 2024 Approved Optimal Size Strategy for Click-Driven Titles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-preeminent-audience-alteration-tools-for-content-casters/"><u>[New] 2024 Approved Preeminent Audience Alteration Tools for Content Casters</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-debut-video-capture-review/"><u>[Updated] Debut Video Capture Review</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-in-depth-look-at-videorecorderpros-features-and-review/"><u>[Updated] In 2024, In-Depth Look at VideoRecorderPro's Features & Review</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-unlock-hidden-potential-sharing-videos-with-ease-for-2024/"><u>[Updated] Unlock Hidden Potential Sharing Videos with Ease for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-realme-12-pro-5g-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Realme 12 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-compelling-videos-utilize-no-cost-templates-and-samples/"><u>Craft Compelling Videos Utilize No-Cost Templates & Samples</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1722203199882-easy-steps-to-get-started-with-auto-gpt-downloading-and-installing-made-simple/"><u>Easy Steps to Get Started with Auto-GPT: Downloading and Installing Made Simple</u></a></li>
+<li><a href="https://techtrends.techidaily.com/expert-tips-on-how-to-easily-bind-your-samsung-remote-with-any-display-unit/"><u>Expert Tips on How to Easily Bind Your Samsung Remote with Any Display Unit</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ios-18-update-enables-native-phone-call-recording-without-extra-apps-insights/"><u>IOS 18 Update Enables Native Phone Call Recording Without Extra Apps - Insights</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-cinematic-journey-youtube-and-vimeos-top-premium-marriage-videos/"><u>Love's Cinematic Journey YouTube & Vimeo's Top Premium Marriage Videos</u></a></li>
 </ul></div>
 

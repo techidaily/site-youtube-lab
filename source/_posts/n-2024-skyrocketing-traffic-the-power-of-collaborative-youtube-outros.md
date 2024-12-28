@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Skyrocketing Traffic  The Power of Collaborative YouTube Outros\""
-date: 2024-08-23T08:55:38.304Z
-updated: 2024-08-24T08:55:38.304Z
+date: 2024-12-22T10:50:24.749Z
+updated: 2024-12-28T01:04:00.980Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ A good outro will prompt viewers to keep watching related content from you inste
 3. [How to Use YouTube’s End Screen Feature](#howto)
 4. [How YouTube Outros/End Screens Can Help You Grow on YouTube](#grow)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: YouTube Outro Basics
 
 _From the video above we can see that it features video recommendations and a prominent subscribe button._
@@ -50,6 +54,10 @@ A YouTube end screen might have the following features:
 **Background:** you may choose to use all of the elements described above in combination with an end card consisting of a moving background or still image. You can even find [templates](#templates) that will have slots for all your thumbnails and buttons.
 
 You may also want to include **social icons and handles** for your accounts on sites like Instagram or Twitter. These won’t be clickable (you’ll need to add them yourself outside of YouTube’s end screen tool), but they’ll still let viewers know where else they can find and follow you.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: YouTube Outro Templates Download
 
@@ -88,8 +96,9 @@ Besides downloading outro templates from the website, you can also create it wit
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: How to Use YouTube’s End Screen Feature
 
 Make sure to create a space at the end of your video for the elements of your end screen to sit on top of. Your end screen will not add to the length of your video, it will overlay onto the last 5-20 seconds.
@@ -104,8 +113,9 @@ Here’s how you add an End Screen:
 6. Click **Save** when you’re done.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: How YouTube Outros/End Screens Can Help You Grow on YouTube
 
 One of the most important statistics for measuring the growth of Your YouTube channel is Watch Time. You need 4,000 hours of watch time (over the past 12 months) in order to qualify for monetization/the YouTube Partner Program, and watch time also plays an important role in how your videos are ranked in YouTube’s search results.
@@ -129,22 +139,20 @@ Are you using a YouTube outro? What elements do you include, and how do you thin
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -153,4 +161,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-become-a-visionary-creator-optimal-camera-lens-selection/"><u>[New] In 2024, Become a Visionary Creator Optimal Camera Lens Selection</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-explore-10-premier-yoga-streams-for-wellness-boost/"><u>[New] In 2024, Explore 10 Premier Yoga Streams for Wellness Boost</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-proven-strategies-for-device-screening/"><u>[New] In 2024, Proven Strategies for Device Screening</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/arodic-play-writing-and-producing-humor-videos-for-2024/"><u>[New] Parodic Play Writing and Producing Humor Videos for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-how-to-rip-audio-from-youtube-in-3-ways-free-and-safe/"><u>[Updated] In 2024, How to Rip Audio From YouTube in 3 Ways [Free and Safe]</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-best-video-editors-for-youtube/"><u>[Updated] In 2024, The Best Video Editors for YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mp3ify-your-favorite-videos-top-free-converters-online-for-2024/"><u>[Updated] MP3ify Your Favorite Videos Top Free Converters Online for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-typographic-tools-in-adobe-after-effects-for-2024/"><u>[Updated] Typographic Tools in Adobe After Effects for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/app-tracking-iphone-users-rising-in-opposition/"><u>App Tracking: IPhone Users Rising in Opposition</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/immediate-integration-how-to-access-and-utilize-gpt-4-with-chatgpt/"><u>Immediate Integration: How to Access and Utilize GPT-4 with ChatGPT</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/mastering-interpersonal-skills-a-must-read-for-elevating-emotional-intelligence-among-co-workers-according-to-experts-at-zdnet/"><u>Mastering Interpersonal Skills: A Must-Read for Elevating Emotional Intelligence Among Co-Workers, According to Experts at ZDNET</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-tutorial-on-high-fidelity-wav-conversion-from-mpeg-videos/"><u>Step-by-Step Tutorial on High-Fidelity WAV Conversion From MPEG Videos</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-realms-rhythms-top-sites-ranked-for-game-of-thrones-audio-calls/"><u>The Realm's Rhythms Top Sites Ranked for Game of Thrones Audio Calls</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Scripting Your Story's Visual Heartbeat at Home"
-date: 2024-12-15T19:29:09.520Z
-updated: 2024-12-22T20:31:24.182Z
+date: 2024-12-25T07:47:50.414Z
+updated: 2024-12-28T01:27:51.656Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,16 +112,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-bridal-bliss-filmed-alike-high-quality-8-marriage-videos-online/"><u>[New] 2024 Approved Bridal Bliss Filmed Alike High-Quality 8 Marriage Videos Online</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-address-and-overcome-a-youtube-content-id-issue/"><u>[New] In 2024, How to Address and Overcome a YouTube Content ID Issue</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-ultimate-explanimation-what-pfp-means-on-tiktok-in-2024/"><u>[New] The Ultimate Explanimation What PFP Means on TikTok, In 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-crafting-perfect-youtube-introend-videos-at-no-cost/"><u>[Updated] In 2024, Crafting Perfect YouTube Intro/End Videos at No Cost</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-step-into-the-directors-chair-for-sims-4-playback-for-2024/"><u>[Updated] Step Into the Director's Chair for Sims 4 Playback for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-and-install-epson-wf-2750-printer-drivers-step-by-step-guide/"><u>Download & Install Epson WF-2750 Printer Drivers: Step-by-Step Guide</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-remove-an-airtag-from-your-apple-id-account-on-iphone-7-by-drfone-ios/"><u>How to Remove an AirTag from Your Apple ID Account On iPhone 7?</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-youtube-mastery-essential-tech-to-enhance-your-streams/"><u>In 2024, YouTube Mastery Essential Tech to Enhance Your Streams</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-art-of-photo-edits-a-newcomers-guide-to-lunapic-for-2024/"><u>The Art of Photo Edits A Newcomer’s Guide to LunaPic for 2024</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/troubleshooting-a-slow-running-pc-essential-solutions-by-yl-computing-and-yl-software-experts/"><u>Troubleshooting a Slow-Running PC: Essential Solutions by YL Computing and YL Software Experts</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unlocking-the-potential-for-novice-level-token-creation/"><u>Unlocking the Potential for Novice-Level Token Creation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-channel-to-checkbook-conversion-the-path-from-adsense-to-banking/"><u>[New] 2024 Approved Channel to Checkbook Conversion The Path From AdSense to Banking</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-enhance-editing-unlimited-free-audio-samples/"><u>[New] 2024 Approved Enhance Editing Unlimited Free Audio Samples!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-high-end-sound-pumping-tools-pcs-and-smartphones/"><u>[New] 2024 Approved High-End Sound Pumping Tools PCs & Smartphones</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-mastering-audio-adjustment-on-youtube-devices/"><u>[New] 2024 Approved Mastering Audio Adjustment on YouTube Devices</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-mirrorless-vs-dslr-video-mastery-in-focus/"><u>[New] 2024 Approved Mirrorless vs DSLR Video Mastery in Focus</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-precision-poetry-the-news-outro-art/"><u>[New] 2024 Approved Precision Poetry The News Outro Art</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-enrich-your-video-narratives-with-background-melodies-on-fb/"><u>[New] Enrich Your Video Narratives with Background Melodies on FB</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-grids-that-wow-discover-the-top-apps-for-pics/"><u>[New] In 2024, Grids That Wow Discover the Top Apps for Pics</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ing-a-path-to-youtube-wealth-cpm-analysis/"><u>Charting a Path to YouTube Wealth CPM Analysis</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/enhance-your-digital-pamphlets-with-unique-typography-using-flipbuilder/"><u>Enhance Your Digital Pamphlets with Unique Typography Using FlipBuilder</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-nubia-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Nubia</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-corrupt-video-files-of-find-x7-using-video-repair-utility-by-stellar-video-repair-mobile-video-repair/"><u>How to Fix Corrupt video files of Find X7 using Video Repair Utility?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-mastering-android-an-assessment-of-premium-voice-recorders-including-free-variants-for-the-year-2023/"><u>New 2024 Approved Mastering Android An Assessment of Premium Voice Recorders (Including Free Variants) for the Year 2023</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/realme-c33-2023-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme C33 2023 Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/0-historical-youtube-hubs-essential-viewing-for-students-and-enthusiasts-for-2024/"><u>Top 10 Historical YouTube Hubs Essential Viewing For Students & Enthusiasts for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/1721101578401-troubleshooting-and-resolving-windows-11s-missing-coprocessor-drivers-easy-fixes-unveiled/"><u>Troubleshooting and Resolving Windows 11'S Missing Coprocessor Drivers: Easy Fixes Unveiled!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-your-way-through-youtube-mastering-rotation-techniques-for-2024/"><u>Twist Your Way Through YouTube Mastering Rotation Techniques for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-date-strategies-for-youtube-earnings/"><u>Up-to-Date Strategies for YouTube Earnings</u></a></li>
 </ul></div>
 

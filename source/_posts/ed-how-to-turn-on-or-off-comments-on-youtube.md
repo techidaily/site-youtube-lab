@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Turn on or Off Comments on YouTube"
-date: 2024-12-19T18:04:05.451Z
-updated: 2024-12-22T20:21:16.552Z
+date: 2024-12-25T18:01:34.723Z
+updated: 2024-12-28T11:09:05.990Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ Use your favorite web browser to go to YouTube and sign in to your Google accoun
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 2: Go to Channel’s Advanced Settings
@@ -67,10 +67,6 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
@@ -84,7 +80,7 @@ Back on the **YouTube Studio** page, click **Content** from the left pane. From 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### **Additional Info about Comments Options**
@@ -108,7 +104,7 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -134,7 +130,7 @@ From under the **Audience** section in the right window of the **Video details**
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -167,6 +163,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -188,15 +188,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-unleashing-your-musical-voice-a-compree-play-by-play-guide-for-youtube-playlist-crafting/"><u>[New] In 2024, Unleashing Your Musical Voice A Compree Play-by-Play Guide for YouTube Playlist Crafting</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/rofitable-pathways-8-steps-for-youtube-earning/"><u>[New] Profitable Pathways 8 Steps for YouTube Earning</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-step-by-step-techniques-for-creating-stellar-valorant-thumbnail-images/"><u>[Updated] In 2024, Step-by-Step Techniques for Creating Stellar Valorant Thumbnail Images</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Realme GT Neo 5 SE | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/vering-the-timeline-for-youtube-earnings-for-2024/"><u>Discovering the Timeline for YouTube Earnings for 2024</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-transfer-messages-from-apple-iphone-13-mini-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Transfer Messages from Apple iPhone 13 mini to iPhone Including iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/secure-whole-page-scene/"><u>Secure Whole-Page Scene</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/1722887614419-solving-the-msstdfmtdll-file-missing-problem-a-step-by-step-guide/"><u>Solving the 'msstdfmt.dll File Missing' Problem: A Step-by-Step Guide</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/solving-windows-11s-zip-dilemma-a-guide-to-restoring-compromised-compressed-files/"><u>Solving Windows 11'S ZIP Dilemma: A Guide to Restoring Compromised Compressed Files</u></a></li>
-<li><a href="https://fox-that.techidaily.com/troubleshooting-iphone-emergency-mode-6-steps-to-regain-control/"><u>Troubleshooting iPhone Emergency Mode: 6 Steps to Regain Control</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-amplify-your-content-navigating-the-world-of-youtube-backlinks/"><u>[New] 2024 Approved Amplify Your Content Navigating the World of YouTube Backlinks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-follow-the-flow-of-forum-fancies/"><u>[New] 2024 Approved Follow the Flow of Forum Fancies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-guide-to-streamlined-subscription-links-for-video-channels/"><u>[New] 2024 Approved Guide to Streamlined Subscription Links for Video Channels</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-instant-thumbnails-for-fortnite-gameplay/"><u>[New] 2024 Approved Instant Thumbnails for Fortnite Gameplay</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-navigate-the-vlogiverse-6-curated-questionnaires-for-discerning-viewers/"><u>[New] 2024 Approved Navigate the Vlogiverse 6 Curated Questionnaires for Discerning Viewers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-prime-audio-alteration-tech-for-influencer-marketers/"><u>[New] 2024 Approved Prime Audio Alteration Tech for Influencer Marketers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-refine-your-beauty-videos-with-youtubes-palette-tweaking/"><u>[New] 2024 Approved Refine Your Beauty Videos with Youtube's Palette Tweaking</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-urban-ecosystem-fostering-resilience-through-green-policies/"><u>[New] 2024 Approved The Urban Ecosystem Fostering Resilience Through Green Policies</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ioneering-avengers-the-marvellous-world-builders-for-2024/"><u>[New] Pioneering Avengers The Marvellous World-Builders for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-strategies-for-producing-top-notch-professional-gopro-content/"><u>[Updated] Strategies for Producing Top-Notch, Professional Gopro Content</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-free-online-music-archives-copyright-free-gaming-tunes/"><u>2024 Approved Free Online Music Archives (Copyright-Free Gaming Tunes)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/dvd-videos-auf-windows-10-mit-handbrake-korrigieren-und-reparieren/"><u>DVD-Videos Auf Windows 10 Mit HandBrake Korrigieren Und Reparieren</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/how-to-resolve-discord-screen-broadcasts-when-sound-fails-to-play/"><u>How to Resolve Discord Screen Broadcasts When Sound Fails to Play</u></a></li>
+<li><a href="https://techidaily.com/how-to-securely-transfer-windows-11-documents-in-just-seven-steps/"><u>How to Securely Transfer Windows 11 Documents in Just Seven Steps!</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-obscurity-to-fame-elevate-your-tiktok-unboxing-videos/"><u>In 2024, From Obscurity to Fame Elevate Your TikTok Unboxing Videos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-ultimate-selection-economical-hd-action-recordings/"><u>In 2024, Ultimate Selection Economical HD Action Recordings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-brightly-youtubes-17-must-have-illumination-for-2024/"><u>Shine Brightly! YouTube's #17 Must-Have Illumination for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Cultivate Creativity  10+ Channel-Driven Video Suggestions\""
-date: 2024-08-23T08:52:19.313Z
-updated: 2024-08-24T08:52:19.313Z
+date: 2024-12-21T09:27:27.425Z
+updated: 2024-12-27T16:47:35.975Z
 tags:
   - ai video
   - ai youtube
@@ -48,6 +48,10 @@ Before we go deeper into the search to find you the best topics for YouTube, let
 
 As you can see, coming up with ideas doesn’t have to be an agonizing drag. It’s all about flexing your creativity muscle and we are here to help you do it. Are you ready to be inspired? Great! Let’s begin this list:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **2\. Showcase Who You Are**
 
 **Talk About Yourself:** Introduce yourself to the world. You can answer 10 of the most common ice breaker questions you get at social gatherings: “Who are you?” “What do you do for a living?” “What are your hobbies?” In this video, you get to decide how you want to showcase yourself to your audience.
@@ -70,9 +74,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Show and Tell:** Like the elementary school exercise, show and tell is a terrific way to show off something interesting you have and talk about the significance of it. An old childhood toy, a new gadget, a gift from a friend: every item has a story, show and tell it.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## **3\. Challenge Yourself**
 
 **Leave Your Comfort Zone:** Do something that you didn’t think you can do and film it. It might end up being a [Fail](#Fail), but that is how you learn. Learn a new language and talk to a native speaker. Go bungee jumping. Offer free hugs in public. Do something that makes your heart beat faster everyday and film it.
@@ -83,9 +84,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Speed Round:** You think you are good at something? Well, why not try to do it as quickly as possible? Complete a round of video games as quickly as you can. Do a MasterChef mystery box challenge in your kitchen. [Run from one subway station to the next](https://www.youtube.com/watch?v=PH%5FZ8Ghuq6E), beating the tube itself.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **4\. Show Your Talent**
 
 **Make Music:** An original song, a cover, or a remix, YouTube is a fantastic platform to showcase your musical talents. Don’t forget, some of the world’s top artists began their journey on YouTube. You might be next to join the [discovered on YouTube list](https://www.teenvogue.com/story/best-artists-discovered-on-youtube).
@@ -93,6 +91,10 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Creating:** Are you an artist? Show your process in making a piece. Depending on the speed in which your project takes, use a timelapse to present what you did in the most effective way.
 
  **Unusual skill:** Do you have a party trick that you would love to show everyone, but don’t have a party to go to? YouTube is the place for you. Juggle, do a magic trick, dance like Christopher Walkens, whatever unusual skill you have, share it on camera, and get the accolades you so deserve.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **5\. Explore Your Surroundings**
 
@@ -104,9 +106,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Discuss Current Events:** As the environmental climate, there is also a social and political climate. Address the current state of events in your city. Are there plans to build new infrastructure? Is there a social injustice that the public should know about? You can discuss international affairs, national politics, or keep it local to start.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **6\. Be An Educator**
 
 **Advice:** Have you been through a trying experience? Do you have advice for other people setting off on the same path? Whether it’s graduating school, starting a new job, losing weight, or practicing a new skill, creating content that offers helpful advice for those seeking it will give you credibility to speak about the topic since you have gone through the situation yourself.
@@ -121,9 +120,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Tutorial:** Is there software you use particularly well? Are you skilled in the kitchen or the garage? Can you install appliances without reading the instructions? Give a step-by-step tutorial in completing a project.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **7\. Share Your Beliefs and Lifestyle**
 
 **Motivation:** Whatever you are pursuing, know that there are many on the same path as you. If you are an aspiring dancer create content for those that are with you on the journey. Encourage them and speak authentically about the accomplishments to come. Motivation is the energy that is in circulation. The more you send out into the universe, the more will come back to you.
@@ -147,8 +143,9 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Unboxing:** Got something new from Amazon? Before you open it, turn on your camera. Unboxing is an easy YouTube video idea that allows your viewers who are considering buying the item to better understand whether it is in fact the right purchase for them.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **8\. Nurture Your Curiosity**
 
 **Build Something:** IKEA furniture, a website, a LEGO miniature, a business plan. The best way to get better at something is to just do it. Use your hands and build something and capture it for YouTube.
@@ -178,6 +175,10 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Timeline of a Topic:** Pick any topic and trace the lineage and better understand how it has gotten to this point. Where did it begin, has it hit critical mass, and how has it evolved over the years?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **9\. Be a Fan and a Critic**
 
 **Fanfiction:** Continue a story of one of your favorite movie characters or explore the life of some secondary character in a television show that you enjoy. Use their existing storyline to guide where you toward an interesting YouTube video about how they could have evolved.
@@ -199,6 +200,10 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Summarize a Book, Movie, or TV Show:** Give the Coles note summary of a book, a movie, or TV show. Challenge yourself to make a summary that is as interesting as the actual source material.
 
 **“Best of” Video:** Select the best scenes from your favorite actor or the best plays from your favorite athlete and compile it into a video that highlights all the best moments.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **10\. Create Entertainment**
 
@@ -232,23 +237,17 @@ I bet you are bursting and ready to create your next video. Onwards! Remember, w
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -257,4 +256,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-cutting-edge-editors-elevating-online-videos-for-2024/"><u>[New] Cutting-Edge Editors Elevating Online Videos for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ecure-steps-for-skyrocketing-video-engagement-a-million-wins-strategy/"><u>[New] Secure Steps for Skyrocketing Video Engagement A Million Wins Strategy</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-essentials-of-animated-visual-communication/"><u>[Updated] In 2024, Essentials of Animated Visual Communication</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-unveiling-secrets-to-extending-reach-with-youtube-lists/"><u>[Updated] Unveiling Secrets to Extending Reach with YouTube Lists</u></a></li>
+<li><a href="https://extra-information.techidaily.com/asmr-quality-high-standards-meet-affordable-costs-for-2024/"><u>ASMR Quality High Standards Meet Affordable Costs for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-a-unique-online-presence-youtube-edition-for-2024/"><u>Crafting a Unique Online Presence YouTube Edition for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-crafting-vivid-images-ps-hue-harmony-tips/"><u>In 2024, Crafting Vivid Images PS Hue Harmony Tips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-exploring-earning-potential-revenue-from-youtube-advertisements/"><u>In 2024, Exploring Earning Potential Revenue From YouTube Advertisements?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/speed-test-of-the-tp-link-archer-c80-best-value-for-budget-friendly-wifi-routers/"><u>Speed Test of the TP-Link Archer C80: Best Value for Budget-Friendly WiFi Routers</u></a></li>
+</ul></div>
 

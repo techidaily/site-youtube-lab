@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Fiscal Horizons  Exploring Mr. Beast's Income for 2024\""
-date: 2024-08-23T08:53:52.244Z
-updated: 2024-08-24T08:53:52.244Z
+date: 2024-12-22T17:05:15.982Z
+updated: 2024-12-28T07:54:45.936Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,10 @@ Here’s a quick biography of Mr. Beast.
 
 After getting an overview of who he is, the following article will reveal what makes Jimmy so famous on YouTube and how much money Mr. Beast makes from YouTube.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Mr. Beast YouTube Income
 
 Mr. Beast is the second most known YouTuber in the world, in terms of the number of subscribers. He has established himself as a successful YouTube at such a young age by earning around $30 million yearly, which makes his bank accounts boil.
@@ -103,14 +107,15 @@ Have a look at his most viewed video that captured around 245 million views. It 
 
 ![mrbeast’s video squid game in real-life](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Feel-Good Element**
 
 You might have looked at the creative side of Mr. Beast uptil now, but he is also a very generous human. While helping people in terms of cash prizes, he donates most of his income to his family, friends, and charity.
 
 The keen element of his video is to generate enough engagement that would help him spare the money for the poor, and that is what stands him out.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus Tips: How To Be a Successful YouTuber and Make Videos Like Mr. Beast
 
@@ -187,23 +192,17 @@ Some advanced editing can also be done to make the video more impressive. Double
 ![applying motion effects](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 2\. Adjust the tone of video
 
 ![adjusting the tone](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 3\. Change the colors of video
 
 ![adjust the colors of video](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 4\. Play with the audio.
 
 ![play with the audio](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-12.jpg)
@@ -213,8 +212,9 @@ Filmora also has the feature of applying masks to the video; these come in diffe
 ![video mask](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-13.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ##### Step6 Add effects, stock video, elements, and transitions from Filmora's vast library
 
 Filmora has additional features like stock photos and video footage that can be added to enhance the beauty of the video content.
@@ -225,9 +225,6 @@ Go to the top menu and click on effects; you can find many of them; they are cat
 
 ![filmora effects](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-14.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Stock Videos:**
 
 Go to the official site of [Filmora video stocks](https://filmstock.wondershare.com/). There are a large number of video templates, stock videos, images, and audio files.
@@ -237,6 +234,10 @@ You can also access the stock videos from Pixels, Giphy, Pixabay, and Unsplash w
 Now you can easily find content to make your videos attractive.
 
 ![filmora stock media](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-15.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Elements:**
 
@@ -260,9 +261,6 @@ The video is saved by simply clicking ‘ Export.’ You can always share the vi
 
 ![export video](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-18.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 The quality content that you obtain from Filmora can now be used to inspire millions of viewers out there. You are just an upload away!
 
 ## Final Words
@@ -280,8 +278,9 @@ Part 1: Who is Mr. Beast?
 ![mr beast](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Jimmy Donaldson, famously known as Mr. Beast, is a sensational young talent who got renowned due to his YouTube channel. His content comprises mainly Gameplay Videos, Worst intros, and much more. He’s also appreciated for his philanthropy and his deep love for charity.
 
 Here’s a quick biography of Mr. Beast.
@@ -301,17 +300,15 @@ Here’s a quick biography of Mr. Beast.
 After getting an overview of who he is, the following article will reveal what makes Jimmy so famous on YouTube and how much money Mr. Beast makes from YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Mr. Beast YouTube Income
 
 Mr. Beast is the second most known YouTuber in the world, in terms of the number of subscribers. He has established himself as a successful YouTube at such a young age by earning around $30 million yearly, which makes his bank accounts boil.
 
 ![mrbeast youtube channel](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Mr. Beast’s YouTube income is around $3 Million per month, which mostly goes back into making the videos. Most of his income is generated through ads, sponsored posts, and brand deals.
 
 | **Mr.Beast’s YouTube Stats** |                    |
@@ -327,9 +324,6 @@ As you know, YouTube operates on a cbasis. This means per 1000 views, you can ex
 
 ![mr beast wealth growth over the years](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 The data represents Mr. Beast’s YouTube earning of last 6 years. His earnings were substantially low since the start of his YouTube career in early 2017 when he posted his first video of [counting 100,000](https://www.youtube.com/watch?v=xWcldHxHFpo). However, it began to increase with time.
 
 ## Part 3: Why is Mr. Beast Trending on YouTube?
@@ -366,14 +360,15 @@ Have a look at his most viewed video that captured around 245 million views. It 
 
 ![mrbeast’s video squid game in real-life](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 **Feel-Good Element**
 
 You might have looked at the creative side of Mr. Beast uptil now, but he is also a very generous human. While helping people in terms of cash prizes, he donates most of his income to his family, friends, and charity.
 
 The keen element of his video is to generate enough engagement that would help him spare the money for the poor, and that is what stands him out.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus Tips: How To Be a Successful YouTuber and Make Videos Like Mr. Beast
 
@@ -421,18 +416,12 @@ This software gives easy access to videos necessary for the edit and helps you m
 
 ![import files](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ##### Step2 Insert the video in timelines
 
 To insert a video in the timeline section, drag and drop the files from the media library that will serve as the background video in the first track, then drag and drop another video that you want to add on top of the background video in the second track.
 
 ![insert the video in timelines](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ##### Step3 Alter Speed and Duration Settings
 
 You may alter the duration of the video using the Speed and Duration Settings.
@@ -441,18 +430,12 @@ Similarly, if you want to add more than one video together, you can carry out th
 
 ![speed and duration settings](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ##### Step4 Adjust the size and positioning of the video
 
 You can also access the editing interface to adjust the position of the video on top. Simply drag the sliders on the interface to change the size, direction and position of the video.
 
 ![adjust the position](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ##### Step5 Advance editing
 
 Some advanced editing can also be done to make the video more impressive. Double-click the video to open the editing panel. You can carry out multiple tasks like
@@ -465,16 +448,14 @@ Some advanced editing can also be done to make the video more impressive. Double
 
 ![adjusting the tone](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 3\. Change the colors of video
 
 ![adjust the colors of video](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-11.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 4\. Play with the audio.
 
 ![play with the audio](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-12.jpg)
@@ -503,6 +484,10 @@ Now you can easily find content to make your videos attractive.
 
 ![filmora stock media](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-15.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Elements:**
 
 Filmora has an extensive stock of Elements; with the proper use of Elements in YouTube videos, you can make them engaging and interactive. You already know the importance of interactive videos.
@@ -511,9 +496,6 @@ Find multiple elements from the Element section beside the effects and transitio
 
 ![filmora elements](https://images.wondershare.com/filmora/article-images/2022/11/how-much-money-does-mr.-beast-make-16.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Transition:**
 
 Transition smoothens the video, especially when various clips are combined. Use transitions from the Filmora Transition section and set the stage for the next scene, convey the mood and smoothen your YouTube video.
@@ -552,8 +534,6 @@ No doubt, Mr. Beast has become a leading artist on this platform and made a trem
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -561,4 +541,20 @@ No doubt, Mr. Beast has become a leading artist on this platform and made a trem
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/rom-script-to-splendor-animating-effects-unbound-for-2024/"><u>[New] From Script to Splendor Animating Effects Unbound for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-youtube-subscriber-milestones/"><u>[New] Mastering YouTube Subscriber Milestones</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/mooth-sound-transformation-essential-ios-apps-to-convert-youtube-mp3-wise-for-2024/"><u>[New] Smooth Sound Transformation Essential iOS Apps to Convert YouTube MP3-Wise for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-your-journey-through-the-maze-of-uploading-videos-on-youtube/"><u>[Updated] 2024 Approved Your Journey Through the Maze of Uploading Videos on YouTube</u></a></li>
+<li><a href="https://extra-information.techidaily.com/become-proficient-at-note-management-through-mematic-for-2024/"><u>Become Proficient at Note Management Through Mematic for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/colombo-aid-by-danny-assisting-struggling-families/"><u>Colombo Aid by Danny: Assisting Struggling Families</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/expert-guide-to-reactivate-your-broken-alienware-command-center/"><u>Expert Guide to Reactivate Your Broken Alienware Command Center</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-7-best-apps-to-go-live-on-youtube-from-iphone-or-android/"><u>In 2024, 7 Best Apps to Go Live on YouTube From iPhone or Android</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-dive-into-360-videos-iphone-edition-for-facebook-posts/"><u>In 2024, Dive Into 360 Videos IPhone Edition for Facebook Posts</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1723862767750-lgs-best-34-ultragear-monitor-qhd-resolution-and-g-sync-tech-now-only-549-on-amazon/"><u>LG's Best: 34 Ultragear Monitor, QHD Resolution & G-Sync Tech - Now Only $549 on Amazon</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/merging-melodies-the-art-of-crossfading-for-2024/"><u>Merging Melodies The Art of Crossfading for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/e-online-methods-convert-youtube-audio-to-mp3-effortlessly-and-safely-for-2024/"><u>Secure Online Methods Convert YouTube Audio to MP3 Effortlessly & Safely for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/cket-views-with-these-effective-youtube-methods/"><u>Skyrocket Views with These Effective YouTube Methods</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Ahead of Tomorrow  Key Youtube Gatherings (Post-VidCon)\""
-date: 2024-12-12T16:57:17.213Z
-updated: 2024-12-13T17:20:08.657Z
+date: 2024-12-26T16:35:43.657Z
+updated: 2024-12-28T02:28:35.535Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 7. [Summer in the City (UK)](#sitc)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **The Most Important YouTube Events**
@@ -45,6 +45,10 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
 
@@ -55,10 +59,6 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -89,7 +89,7 @@ You have a two-week window (usually the first half of May) to submit your choice
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
@@ -125,10 +125,6 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 **London, UK:** November
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
@@ -204,6 +200,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -229,7 +229,7 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -253,19 +253,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-tune-into-the-beats-with-these-free-online-scanners/"><u>[New] 2024 Approved Tune Into the Beats with These Free Online Scanners</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ssential-youtube-beauty-influencers-10-creators-to-watch-for-2024/"><u>[New] Essential YouTube Beauty Influencers 10 Creators to Watch for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-are-there-legal-restrictions-to-recording-youtube-videos/"><u>[New] In 2024, Are There Legal Restrictions to Recording YouTube Videos?</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-dell-p2715q-explained-the-4k-vision-experience-decoded/"><u>[New] In 2024, Dell P2715Q Explained The 4K Vision Experience Decoded</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-discovering-the-top-tools-for-engaging-video-beginnings/"><u>[New] In 2024, Discovering the Top Tools for Engaging Video Beginnings</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-panoramic-power-play-gear-vs-lgcam-showdown/"><u>[New] Panoramic Power Play Gear vs LGCam Showdown</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/anking-the-most-effortlessly-successful-youtube-content/"><u>[New] Ranking the Most Effortlessly Successful YouTube Content</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-windows-10-syncing-guide-effortless-mov-file-management/"><u>[Updated] 2024 Approved Windows 10 Syncing Guide Effortless .mov File Management</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-ultimate-audio-treasures-for-video-crafting/"><u>[Updated] In 2024, Ultimate Audio Treasures for Video Crafting</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-master-guide-to-finding-cheap-transcript-extractors/"><u>[Updated] Master Guide to Finding Cheap Transcript Extractors</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-precision-review-of-elite-parrots-ar-model-20/"><u>[Updated] Precision Review of Elite Parrot's AR Model 2.0</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-the-ultimate-insider-guide-to-youtube-live-video-thumbnails/"><u>2024 Approved The Ultimate Insider Guide to YouTube Live Video Thumbnails</u></a></li>
-<li><a href="https://common-error.techidaily.com/fps-foiled-games-crash-in-windows-1011-environment/"><u>FPS Foiled: Games Crash in Windows 10/11 Environment</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-on-iphone-15-pro-max-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code On iPhone 15 Pro Max in the Best Ways</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/levate-your-youtube-presentations-with-imovie-editing-skills/"><u>[New] Elevate Your YouTube Presentations with iMovie Editing Skills</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ssential-insights-for-integrating-hashtags-into-game-focused-yt-content/"><u>[New] Essential Insights for Integrating Hashtags Into Game-Focused YT Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-quick-guide-iphones-video-loop-functionality/"><u>[New] In 2024, Quick Guide IPhone's Video Loop Functionality</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-mastering-ppt-perfecting-your-voiceover-artistry/"><u>[New] Mastering PPT Perfecting Your Voiceover Artistry</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/eigning-supreme-top-techniques-for-innovative-youtube-end-screens-for-2024/"><u>[New] Reigning Supreme Top Techniques for Innovative YouTube End Screens for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-youtube-on-fb-maximizing-auto-play-efficiency/"><u>[Updated] 2024 Approved YouTube on FB Maximizing Auto-Play Efficiency</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-download-youtube-playlists-without-hassle-our-guide-for-2024/"><u>[Updated] Download YouTube Playlists Without Hassle - Our Guide for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-outwiththeold-camerasbeyondmycam/"><u>[Updated] In 2024, OutWithTheOld CamerasBeyondMyCam</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-words-in-motion-a-guide-to-lively-animation-methods/"><u>[Updated] In 2024, Words in Motion A Guide to Lively Animation Methods</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-expert-guide-to-loops-in-ios-video-playback/"><u>2024 Approved Expert Guide to Loops in iOS Video Playback</u></a></li>
+<li><a href="https://ai-video.techidaily.com/2024-approved-maximize-yandex-translate-in-video-translation-and-beyond/"><u>2024 Approved Maximize Yandex Translate in Video Translation and Beyond</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-streamline-your-youtube-experience-manage-video-comments/"><u>2024 Approved Streamline Your YouTube Experience Manage Video Comments</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-samsung-galaxy-f54-5g-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Samsung Galaxy F54 5G.</u></a></li>
+<li><a href="https://fox-http.techidaily.com/beyond-betting-in-depth-vegas-pro-21-analysis/"><u>Beyond Betting In-Depth Vegas Pro '21 Analysis</u></a></li>
+<li><a href="https://app-tips.techidaily.com/cio-warns-against-complacency-in-ai-development-advocates-for-innovative-thinkers-over-simplistic-ai-prompts-insights-from-zdnet/"><u>CIO Warns Against Complacency in AI Development; Advocates for Innovative Thinkers over Simplistic AI Prompts - Insights From ZDNet</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-samsung-galaxy-s23-fe-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Samsung Galaxy S23 FE to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-lava-blaze-2-to-mac-drfone-by-drfone-android/"><u>In 2024, How to Mirror Lava Blaze 2 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-remove-passcode-from-apple-iphone-6-complete-guide-drfone-by-drfone-ios/"><u>In 2024, How To Remove Passcode From Apple iPhone 6? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ize-your-video-sound-best-free-wav-extractors-from-youtube-for-2024/"><u>Maximize Your Video Sound Best Free WAV Extractors From YouTube for 2024</u></a></li>
 </ul></div>
 

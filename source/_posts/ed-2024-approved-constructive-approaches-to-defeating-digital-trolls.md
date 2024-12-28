@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Constructive Approaches to Defeating Digital Trolls\""
-date: 2024-12-11T19:13:55.726Z
-updated: 2024-12-13T17:19:41.260Z
+date: 2024-12-25T08:17:26.188Z
+updated: 2024-12-28T00:17:35.006Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/024ced9c2dfad0404f5ee91e1efddba3dce2978ad
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/024ced9c2dfad0404f5ee91e1efddba3dce2978ad
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,22 +83,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-from-lurker-to-influencer-enhancing-your-facebook-experience-for-2024/"><u>[New] From Lurker to Influencer Enhancing Your Facebook Experience for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ow-to-use-google-trends-to-come-up-with-video-ideas-in-2024/"><u>[New] How to Use Google Trends to Come up with Video Ideas, In 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-invisible-spectator-of-fb-tales/"><u>[New] Invisible Spectator of FB Tales</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/hat-are-the-laws-around-youtube-video-capture/"><u>[New] What Are the Laws Around YouTube Video Capture?</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/isdom-waves-prime-ed-channels-online/"><u>[New] Wisdom Waves Prime Ed Channels Online</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-deciphering-content-control-youtube-vs-creative-commons-license/"><u>[Updated] 2024 Approved Deciphering Content Control YouTube Vs. Creative Commons License</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-brief-beatcasts-role-of-the-melody/"><u>2024 Approved Brief Beatcasts Role of the Melody</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-budget-friendly-designs-for-youtube-content-creators/"><u>2024 Approved Budget-Friendly Designs for YouTube Content Creators</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/5-most-effective-methods-to-unlock-iphone-11-pro-max-in-lost-mode-drfone-by-drfone-ios/"><u>5 Most Effective Methods to Unlock iPhone 11 Pro Max in Lost Mode | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/pwise-approach-to-youtube-caption-addition/"><u>A Stepwise Approach to YouTube Caption Addition</u></a></li>
-<li><a href="https://techidaily.com/complete-tutorial-for-tecno-spark-10-pro-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Tecno Spark 10 Pro Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Infinix Note 30 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ative-hubs-of-affordable-visual-content-sources-for-2024/"><u>Innovative Hubs of Affordable Visual Content Sources for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/learn-the-art-of-skype-voice-recording-in-mp3-free-for-2024/"><u>Learn the Art of Skype Voice Recording in MP3 (Free) for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/speed-kings-and-queens-of-2022/"><u>Speed Kings and Queens of 2022</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/stop-screen-flash-in-win7-instantly/"><u>Stop Screen Flash in Win7 Instantly</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-unanticipated-consequences-of-rtx-4090-ownership/"><u>The Unanticipated Consequences of RTX 4090 Ownership</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-laughloop-app-a-hub-for-humor-enthusiasts/"><u>[New] 2024 Approved LaughLoop App - A Hub for Humor Enthusiasts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-the-best-asmr-microphones-you-should-try/"><u>[New] 2024 Approved The Best ASMR Microphones You Should Try</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-expert-setup-guide-to-capture-high-quality-video-using-logitech-camera-for-2024/"><u>[New] Expert Setup Guide to Capture High-Quality Video Using Logitech Camera for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-delete-comments-from-youtube-with-minimal-hassle/"><u>[New] In 2024, How to Delete Comments From YouTube with Minimal Hassle</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/roven-pc-strategies-elevating-video-quality-and-engagement-on-youtube-for-2024/"><u>[New] Proven PC Strategies Elevating Video Quality and Engagement on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-understanding-youtube-shorts-earnings-for-maker-income/"><u>[Updated] 2024 Approved Understanding YouTube Shorts Earnings for Maker Income</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-brief-video-joust-the-showdown-between-youtubes-shorts-and-tiktoks-flavor-for-2024/"><u>[Updated] Brief Video Joust The Showdown Between YouTubes Shorts and TikTok's Flavor for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-photo-cropping-apps-how-to-crop-photos-on-iphone-for-2024/"><u>[Updated] Photo Cropping Apps How to Crop Photos on iPhone for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722960969372-approach-discuss-how-environmental-factors-are-considered-when-creating-a-concrete-mix/"><u>Approach: Discuss How Environmental Factors Are Considered when Creating a Concrete Mix</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/enhance-your-digital-footprint-upload-tiktoks-on-twitter-for-2024/"><u>Enhance Your Digital Footprint Upload TikToks on Twitter for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/custom-minecraft-gif-templates/"><u>Free Custom Minecraft GIF Templates</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-mastering-gaming-content-on-youtube/"><u>In 2024, Mastering Gaming Content on YouTube</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Lava Blaze 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-your-account-has-been-disabled-in-the-app-store-and-itunes-from-iphone-13-pro-max-by-drfone-ios/"><u>In 2024, Your Account Has Been Disabled in the App Store and iTunes From iPhone 13 Pro Max?</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/schritt-fur-schritt-anleitung-zum-erstellen-und-wiederherstellen-des-del-factory-images-auf-ihrem-gerat/"><u>Schritt-Für-Schritt-Anleitung Zum Erstellen Und Wiederherstellen Des Del-Factory-Images Auf Ihrem Gerät</u></a></li>
 </ul></div>
 
