@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Enhancing Video Reach  Convert YT to IGTV for 2024\""
-date: 2024-12-24T17:06:29.290Z
-updated: 2024-12-28T03:35:49.037Z
+date: 2025-01-04T00:51:26.664Z
+updated: 2025-01-06T18:57:08.258Z
 tags:
   - ai video
   - ai youtube
@@ -39,10 +39,6 @@ YouTube videos, on the other hand, are mostly horizontally oriented. If you atte
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Convert YouTube Videos to IGTV Vertical Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -52,6 +48,10 @@ If you don’t already have the original file of the video you’d like to uploa
 Once you have the file, you can **create a new project** in Filmora and then after the project loads you should click on the **File menu** and select the **Project Settings option**. Pick one of the **9:16** video resolution options provided by the editor and click **OK to confirm the changes**.
 
 ![Filmora  Project Settings](https://images.wondershare.com/filmora/article-images/filmora-project-settings-window.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the **Import button** to add a YouTube video to your project and then place it on the timeline. Your video will be displayed in the **Preview Panel**, and you’ll be able to see that the video is positioned at the center of the panel and that its top and bottom are black.
 
@@ -69,16 +69,16 @@ Latest News: In Filmora V10.5 and later versions, there is a new feature called 
 
 ![Filmora  Auto-Reframe YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/auto-reframe-youtube-video-to-vertical-igtv-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can watch the video below to find out more information about the Auto-Reframe tool.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Use Kapwing to Convert YouTube to IGTV Online
@@ -90,12 +90,16 @@ Click on the Resize tool and simply **copy and paste the URL** of a YouTube into
 ![Kapwing  Crop YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/kapwing-crop-youtube-to-igtv.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose the background color for your IGTV video, increase or decrease the zoom level or change the position of the video**. Click on the **Create button** when ready and wait for Kapwing to process your video. **All videos you create with the free version of this online video editor are going to be watermarked** and you have to pay a six-dollar fee for each watermark-free video you edit with Kapwing or you can opt for a $20 monthly subscription fee that enables you to export an unlimited amount of videos without watermarks each month.
 
 ![Kapwing  Rotate YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-convert-to-igtv.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 A growing number of IGTV users choose to rotate their videos, instead of resizing them, so if you already have a YouTube video with a 16:9 aspect ratio you can just rotate it and get a video with a 9:16 aspect ratio. Click on the **Rotate**  option and then rotate it **90 degrees clockwise or counterclockwise** and click on the **Create button**. If you opt for this method of creating a vertical video for IGTV, your video will remain the same size, but the viewers will have to hold their phones horizontally in order to view it properly.
 
@@ -114,10 +118,6 @@ Posting YouTube videos on your IGTV channel is still a somewhat complicated proc
 **You may also like:** [YouTube to WAV File: 4 Best Free Convert Solutions >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -140,19 +140,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-2024-approved-elevate-your-iphone-shoots-essential-8-tips-for-professional-results/"><u>[New] 2024 Approved Elevate Your iPhone Shoots Essential 8 Tips for Professional Results</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-essential-metaverse-tools-top-7-devices-for-virtual-readiness/"><u>[New] 2024 Approved Essential Metaverse Tools Top 7 Devices for Virtual Readiness</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-elite-20-unprotected-open-access-pubg-montages/"><u>[New] Elite 20 Unprotected, Open-Access PUBG Montages</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ioneering-the-way-with-innovative-approaches-to-youtube-banners-for-2024/"><u>[New] Pioneering the Way with Innovative Approaches to YouTube Banners for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-discover-your-top-10-choice-of-editors-for-youtube-short-videos/"><u>[Updated] 2024 Approved Discover Your Top 10 Choice of Editors for YouTube Short Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-earths-highest-paid-online-video-personality/"><u>[Updated] 2024 Approved Earth's Highest-Paid Online Video Personality</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ing-down-8-common-blunders-in-early-stage-youtube-success/"><u>Breaking Down 8 Common Blunders in Early-Stage YouTube Success</u></a></li>
-<li><a href="https://fox-that.techidaily.com/fixing-safari-issues-on-your-iphone-top-10-solutions/"><u>Fixing Safari Issues on Your iPhone: Top 10 Solutions</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/full-analysis-and-how-to-the-ultimate-picsart-experience-for-2024/"><u>Full Analysis and How-To The Ultimate PicsArt Experience for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/game-capturing-excellence-the-best-of-windows-11-methods-unveiled/"><u>Game Capturing Excellence The Best of Windows 11 Methods Unveiled</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-oppo-f23-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Oppo F23 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/pruveeo-f5-fhd-1080p-dash-cam-review/"><u>Pruveeo F5 FHD 1080P Dash Cam Review</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ng-up-on-youtube-a-roadmap-for-million-sub-club-for-2024/"><u>Scaling Up on YouTube A Roadmap for Million-Sub Club for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1723001867978-watch-dogs-legion-stability-improved-no-more-crashes-on-windows-computers/"><u>Watch Dogs Legion Stability Improved - No More Crashes on Windows Computers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/inancial-forecasts-in-focus-select-stock-youtube-channels-for-2024/"><u>[New] Financial Forecasts in Focus Select Stock YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/crutinizing-youtubes-top-viewed-community-inputs-for-2024/"><u>[New] Scrutinizing YouTube's Top Viewed Community Inputs for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-streamlining-gaming-experience-how-to-record-games-obs-for-2024/"><u>[New] Streamlining Gaming Experience How to Record Games OBS for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-art-of-the-end-scene-tutorials-and-templates-for-youtube/"><u>[New] The Art of the End Scene Tutorials & Templates for YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nderstanding-youtubes-monthly-revenue-options/"><u>[New] Understanding YouTube's Monthly Revenue Options</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-analyzing-t-series-youtube-financial-gains-for-2024/"><u>[Updated] Analyzing T-Series Youtube Financial Gains for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-essential-screen-snapping-tips-to-enhance-your-gaming-experience-for-2024/"><u>[Updated] Essential Screen-Snapping Tips to Enhance Your Gaming Experience for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-fostering-engagement-creating-budget-friendly-youtube-intros/"><u>2024 Approved Fostering Engagement Creating Budget-Friendly YouTube Intros</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722992794533-fix-your-fall-guys-issues-overcoming-launch-and-crash-problems-easily/"><u>Fix Your Fall Guys Issues: Overcoming Launch and Crash Problems Easily</u></a></li>
+<li><a href="https://games-able.techidaily.com/get-your-hands-on-the-latest-gaming-tech-with-nintendo-switch-oled-discounted-by-60-this-labor-day-only-at-walmart-zdnet-news/"><u>Get Your Hands on the Latest Gaming Tech with Nintendo Switch OLED Discounted by $60 This Labor Day, Only at Walmart | ZDNET News.</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-fix-immortals-fenyx-rising-persistent-crashes-on-your-pcps4xbox/"><u>How to Fix Immortal's Fenyx Rising Persistent Crashes on Your PC/PS4/Xbox</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-overcome-rpc-server-not-responding-issues-in-windows-systems/"><u>How to Overcome RPC Server Not Responding Issues in Windows Systems</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-solve-driver-compatibility-woes-for-the-logitech-f710-in-windows-oss-81011/"><u>How to Solve Driver Compatibility Woes for the Logitech F710 in Windows OSs (8/10/11)</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "How to Animate and Make Your Own Effects for 2024"
-date: 2024-12-21T10:01:46.245Z
-updated: 2024-12-28T08:24:13.534Z
+date: 2025-01-04T00:59:53.437Z
+updated: 2025-01-07T01:15:46.765Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,22 +112,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-ryan-kajis-net-worth-11-year-old-boy-gets-highest-paid-from-youtube/"><u>[New] 2024 Approved Ryan Kaji’s Net Worth 11-Year-Old Boy Gets Highest-Paid From YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-seamless-navigation-to-your-individual-playlist-library-on-youtube/"><u>[New] 2024 Approved Seamless Navigation to Your Individual Playlist Library on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-the-blueprint-to-establishing-a-distinctive-marketing-persona/"><u>[New] 2024 Approved The Blueprint to Establishing a Distinctive Marketing Persona</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-the-ultimate-guide-to-dynamic-youtube-openers-in-imovie/"><u>[New] 2024 Approved The Ultimate Guide to Dynamic YouTube Openers in iMovie</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-unleash-your-youtube-potential-steps-to-finding-and-managing-video-collab-partners/"><u>[New] 2024 Approved Unleash Your YouTube Potential Steps to Finding & Managing Video Collab Partners</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-unveiling-subscriber-lists-a-youtube-guide/"><u>[New] 2024 Approved Unveiling Subscriber Lists A YouTube Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-visionblend-editor/"><u>[New] 2024 Approved VisionBlend Editor</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-outros-that-grow-your-channel-faster/"><u>[New] 2024 Approved YouTube Outros that Grow Your Channel Faster</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-the-drone-enthusiasts-compendium-of-must-haves/"><u>[New] The Drone Enthusiast's Compendium of Must-Haves</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-the-complete-guide-to-360-video-submission-on-fb/"><u>[Updated] The Complete Guide to 360 Video Submission on FB</u></a></li>
-<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-tecno-pova-5-pro-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Tecno Pova 5 Pro to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-step-by-step-guide-to-incorporating-yt-clips-into-presentations/"><u>In 2024, Step-by-Step Guide to Incorporating YT Clips Into Presentations</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-ultimate-guide-7-high-ranking-audio-transformation-apps/"><u>In 2024, Ultimate Guide 7 High-Ranking Audio Transformation Apps</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-samsung-galaxy-a34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Samsung Galaxy A34 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/step-by-step-blueprint-for-successful-reddit-contributions/"><u>Step-by-Step Blueprint for Successful Reddit Contributions</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/top-9-fun-and-educational-preschool-games-you-can-play-online-for-free/"><u>Top 9 Fun & Educational Preschool Games You Can Play Online For Free</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209518625-9781620559031-working-with-chakras-for-belief-change/"><u>Working with Chakras for Belief Change | Free Book</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-ultimate-facetune-guide-elevating-your-image-quality/"><u>[New] Ultimate Facetune Guide Elevating Your Image Quality</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nravel-the-secrets-to-sequential-video-viewing-no-charges/"><u>[New] Unravel the Secrets to Sequential Video Viewing (No Charges)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-copycat-chronicles-the-science-of-satire/"><u>[Updated] 2024 Approved Copycat Chronicles The Science of Satire</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-guide-to-acquiring-free-picture-frame-videos/"><u>[Updated] Guide to Acquiring Free Picture Frame Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-analyzing-whether-youtube-premium-is-right-for-you/"><u>[Updated] In 2024, Analyzing Whether YouTube Premium Is Right for You</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-quantifying-mr-beasts-earnings-for-2024/"><u>[Updated] Quantifying Mr. Beast's Earnings for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-comprehensive-directory-extracting-youtube-intros/"><u>2024 Approved Comprehensive Directory Extracting Youtube Intros</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-free-online-music-archives-copyright-free-gaming-tunes/"><u>2024 Approved Free Online Music Archives (Copyright-Free Gaming Tunes)</u></a></li>
+<li><a href="https://win11.techidaily.com/accelerate-outlook-performance-in-windows/"><u>Accelerate Outlook Performance in Windows</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/te-youtube-presence-ideal-release-windows-for-2024/"><u>Elevate Youtube Presence Ideal Release Windows for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/exploring-the-aukey-usb-30-hub-sleek-aesthetics-with-powerful-performance-insights/"><u>Exploring the Aukey USB 3.0 Hub – Sleek Aesthetics with Powerful Performance Insights</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ree-green-screen-effects-from-4-youtube-channels/"><u>Get Free Green Screen Effects From 4 YouTube Channels</u></a></li>
+<li><a href="https://win-answers.techidaily.com/guilty-gear-strive-on-pc-step-by-step-solutions-for-uninterrupted-play-and-avoiding-system-failures/"><u>Guilty Gear Strive on PC: Step-by-Step Solutions for Uninterrupted Play and Avoiding System Failures</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/increase-engagement-on-igtv-with-top-notch-titles-and-summaries-for-2024/"><u>Increase Engagement on IGTV with Top-Notch Titles and Summaries for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-guide-resolving-issues-with-unresponsive-airpods/"><u>Troubleshooting Guide: Resolving Issues with Unresponsive AirPods</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/eling-monetization-strategies-in-the-realm-of-video-shorts/"><u>Unraveling Monetization Strategies in the Realm of Video Shorts</u></a></li>
 </ul></div>
 

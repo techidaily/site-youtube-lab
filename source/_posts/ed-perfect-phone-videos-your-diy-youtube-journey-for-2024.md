@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Perfect Phone Videos  Your DIY YouTube Journey for 2024\""
-date: 2024-12-21T17:12:04.632Z
-updated: 2024-12-28T11:22:15.260Z
+date: 2025-01-06T00:14:30.261Z
+updated: 2025-01-07T00:13:52.168Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/3a57b1ddb74892f92e7ea8db98be1fa90b1375e9f
  It is fun to be able to record a vlog entry whenever inspiration strikes you, and your smartphone is a great choice for recording on the go. Smartphones have really great cameras, and you probably always have your phone with you. You can even post directly from your phone to YouTube!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How To Make YouTube Videos on Your Smartphone
@@ -61,7 +61,7 @@ thumbnail: https://thmb.techidaily.com/3a57b1ddb74892f92e7ea8db98be1fa90b1375e9f
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -85,21 +85,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-elevate-your-earning-game-with-youtubes-member-status/"><u>[New] In 2024, Elevate Your Earning Game with YouTube's Member Status</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-integrating-harmonious-sounds-into-your-canva-videos/"><u>[New] In 2024, Integrating Harmonious Sounds Into Your Canva Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/op-microphones-for-various-youtube-content-creators-for-2024/"><u>[New] Top Microphones for Various YouTube Content Creators for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-digging-through-youtube-conversations-for-2024/"><u>[Updated] Digging Through YouTube Conversations for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-fb-share-strategies-for-your-youtube-content/"><u>[Updated] In 2024, FB Share Strategies for Your YouTube Content</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-live-stream-to-youtube-with-obs-step-by-step-guide-for-beginners/"><u>[Updated] In 2024, Live Stream to Youtube with OBS Step by Step Guide for Beginners</u></a></li>
-<li><a href="https://win-answers.techidaily.com/defeat-the-challenge-of-continuous-hunger-malfunctions-on-your-desktop-computer/"><u>Defeat the Challenge of Continuous Hunger Malfunctions on Your Desktop Computer</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/easy-troubleshooting-steps-to-restore-sounds-on-your-desktop-or-laptop/"><u>Easy Troubleshooting Steps to Restore Sounds on Your Desktop or Laptop</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ating-youtubes-monthly-creator-payments/"><u>Evaluating YouTube's Monthly Creator Payments</u></a></li>
-<li><a href="https://blog-min.techidaily.com/free-dvd-to-mp4-transcoder-tool-on-windows-cued-11-quick-simple-winx-converter-software-with-backup-features/"><u>Free DVD to MP4 Transcoder Tool on Windows Cued 11: Quick, Simple WinX Converter Software with Backup Features</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-poco-x6-pro-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Poco X6 Pro</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-lava-yuva-2-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Lava Yuva 2 to Other Android Devices Devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-zero-cost-downloads-for-high-quality-audios-discover-this-list-of-23-tools/"><u>In 2024, Zero Cost Downloads for High-Quality Audios Discover This List of 23 Tools</u></a></li>
-<li><a href="https://media-tips.techidaily.com/mastering-video-formats-comprehensive-step-by-step-guide-on-switching-from-mts-to-mp4mpeg-4-with-simple-tools/"><u>Mastering Video Formats: Comprehensive Step-by-Step Guide on Switching From MTS to MP4/MPEG-4 with Simple Tools</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/maximize-instagram-network-best-free-safe-androidios-followers-for-2024/"><u>Maximize Instagram Network - Best Free, Safe Android/iOS Followers for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/leshoot-and-clear-your-youtube-pixel-voids/"><u>Troubleshoot and Clear Your YouTube Pixel Voids</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-darkness-decoded-iphone-photography-mastery/"><u>[New] 2024 Approved Darkness Decoded IPhone Photography Mastery</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ow-to-reverse-a-youtube-playlist/"><u>[New] How to Reverse a YouTube Playlist</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-enhanced-productivity-learn-to-record-your-mac-screen/"><u>[New] In 2024, Enhanced Productivity Learn to Record Your Mac Screen</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-comic-crafting-mastering-7-cheeky-content-strategies/"><u>[Updated] 2024 Approved Comic Crafting Mastering 7 Cheeky Content Strategies</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-decoding-the-algorithm-behind-youtube-shorts/"><u>[Updated] 2024 Approved Decoding the Algorithm Behind YouTube Shorts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-from-free-to-fortune-unlocking-youtubes-earnings-at-the-500-subscriber-level/"><u>[Updated] From Free to Fortune Unlocking YouTube's Earnings at the 500 Subscriber Level</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-elevating-video-view-count-top-hashtag-trends-guide/"><u>[Updated] In 2024, Elevating Video View Count Top Hashtag Trends Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-top-picks-for-the-ultimate-offline-game-experience-on-android/"><u>[Updated] In 2024, Top Picks for the Ultimate Offline Game Experience on Android</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-icon-and-logo-havens-a-guide-to-6-unique-online-resources/"><u>In 2024, Icon & Logo Havens A Guide to 6 Unique Online Resources</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nsiders-list-top-rated-downloading-apps-for-video-buffs-for-2024/"><u>IOS Insider's List Top-Rated Downloading Apps for Video Buffs for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/pinnacle-ai-editmaster-for-stunning-images-for-2024/"><u>Pinnacle AI EditMaster for Stunning Images for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/revolutionize-remote-work-with-these-6-chatgpt-applications-and-tips/"><u>Revolutionize Remote Work with These 6 ChatGPT Applications and Tips</u></a></li>
+<li><a href="https://some-skills.techidaily.com/transforming-footage-into-high-quality-content-for-2024/"><u>Transforming Footage Into High-Quality Content for 2024</u></a></li>
 </ul></div>
 

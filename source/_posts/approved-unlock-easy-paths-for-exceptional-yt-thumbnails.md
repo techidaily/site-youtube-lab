@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unlock Easy Paths for Exceptional YT Thumbnails\""
-date: 2024-08-16T05:25:57.545Z
-updated: 2024-08-17T05:25:57.545Z
+date: 2025-01-03T20:25:59.493Z
+updated: 2025-01-06T21:57:24.686Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
@@ -67,13 +71,25 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
@@ -86,6 +102,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Conclusion
 
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/rom-raw-footage-to-final-cut-chroma-mastery-for-2024/"><u>[New] From Raw Footage to Final Cut Chroma Mastery for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-earnings-expansion-the-significance-of-500-subs-club-for-2024/"><u>[Updated] Earnings Expansion The Significance of 500 Subs Club for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-from-free-to-fortune-carryminatis-youtube-transformation-ajey-for-2024/"><u>[Updated] From Free to Fortune CarryMinati’s YouTube Transformation (Ajey) for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-essence-of-engaging-live-broadcasts-360-video-techniques-for-youtube/"><u>[Updated] In 2024, The Essence of Engaging Live Broadcasts 360° Video Techniques for Youtube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-integrating-easy-to-use-timestamps-into-your-youtube-videos/"><u>[Updated] Integrating Easy-to-Use Timestamps Into Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-planets-favorites-youtube-sensations-and-their-view-counts-for-2024/"><u>[Updated] Planet's Favorites YouTube Sensations and Their View Counts for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-premiere-guide-uploading-vids-for-youtube/"><u>[Updated] Premiere Guide Uploading Vids for YouTube</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-the-essential-guide-adding-and-editing-discord-roles/"><u>[Updated] The Essential Guide Adding and Editing Discord Roles</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-mastering-the-art-of-simplified-live-streaming/"><u>2024 Approved Mastering the Art of Simplified LIVE Streaming</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/affordable-overseas-vr-headsets-china-for-2024/"><u>Affordable Overseas VR Headsets (China) for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-deception-detectors-for-high-tech-hoaxes/"><u>Digital Deception Detectors for High-Tech Hoaxes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tial-youtube-marketing-techniques-ranked-from-best-to-worst/"><u>Essential YouTube Marketing Techniques – Ranked From Best to Worst</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/professional-tips-for-youtube-and-twitch-streamers-using-obs-effectively/"><u>Professional Tips for YouTube & Twitch Streamers Using OBS Effectively</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/g-control-youtube-visibility-personalization-for-2024/"><u>Taking Control YouTube Visibility Personalization for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/unraveling-the-complexity-of-wireless-protocols-the-journey-from-80211b-to-ax/"><u>Unraveling the Complexity of Wireless Protocols: The Journey From 802.11B to Ax</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->

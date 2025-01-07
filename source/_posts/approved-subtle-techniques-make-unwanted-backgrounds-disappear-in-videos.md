@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Subtle Techniques  Make Unwanted Backgrounds Disappear in Videos\""
-date: 2024-08-16T05:28:58.702Z
-updated: 2024-08-17T05:28:58.702Z
+date: 2025-01-03T16:47:03.729Z
+updated: 2025-01-06T19:28:53.373Z
 tags:
   - ai video
   - ai youtube
@@ -61,9 +61,9 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
@@ -71,8 +71,9 @@ If you need to blur the video background after shooting, you can use some video 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1\. Add Bokeh Filter to Video in Filmora
 
 There are about 20 bokeh effects available in filters and overlays. You can find them easily by typing bokeh in the search bar in Effects.
@@ -80,8 +81,9 @@ There are about 20 bokeh effects available in filters and overlays. You can find
 Note: you should select **Included** to see all bokeh effects pre-programmed in Filmora. If you need more visual effects, just go to [the Filmstock](https://tools.techidaily.com/wondershare/filmora/download/) effects store.
 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
@@ -93,24 +95,22 @@ Filmora features two tilt effects, tilt-shift circle and tilt-shift linear, whic
 Go to the **Effects** tab and then switch to the **Utility** menu under **Included** category.
 
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -120,14 +120,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -136,4 +133,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-jake-pauls-youtube-success-story-all-you-need-to-know/"><u>[New] 2024 Approved Jake Paul's YouTube Success Story - All You Need to Know</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ow-to-use-youtube-analytics-to-grow-your-channel/"><u>[New] How to Use YouTube Analytics to Grow Your Channel?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-a-peek-behind-windows-curtain-top-30-undisclosed-tips-for-windows-11/"><u>[New] In 2024, A Peek Behind Window's Curtain Top 30 Undisclosed Tips for Windows 11</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-discover-the-world-from-above-xiaomis-4k-flight-diary/"><u>[New] In 2024, Discover the World From Above - Xiaomi's 4K Flight Diary</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-step-by-step-nine-methods-for-logging-pc-acoustics/"><u>[New] Step-by-Step Nine Methods for Logging PC Acoustics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-6-ways-to-increase-audience-retention-on-youtube-filmora/"><u>[Updated] 2024 Approved 6 Ways To Increase Audience Retention on YouTube - Filmora</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-maximizing-video-game-earnings/"><u>[Updated] 2024 Approved Maximizing Video Game Earnings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-ultimate-guide-to-choosing-between-igtv-and-youtube-for-content-creators/"><u>[Updated] 2024 Approved The Ultimate Guide to Choosing Between IGTV & YouTube for Content Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-ultimate-top-viewers-playlist-on-youtube-history/"><u>[Updated] 2024 Approved Ultimate Top Viewers' Playlist on YouTube History</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-expert-tips-on-inserting-captions-into-youtube-videos/"><u>[Updated] Expert Tips on Inserting Captions Into YouTube Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-scripting-summative-stories/"><u>[Updated] In 2024, Scripting Summative Stories</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-transform-your-viewership-with-immersive-360-livestreams-on-youtube/"><u>[Updated] In 2024, Transform Your Viewership with Immersive 360° Livestreams on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-navigating-the-monetization-maze-on-youtube/"><u>[Updated] Navigating the Monetization Maze on Youtube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-leading-tools-to-record-your-desktop/"><u>In 2024, Leading Tools to Record Your Desktop</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-sculpt-your-scenes-with-fading-music-effects-in-adobe-premiere-pro/"><u>In 2024, Sculpt Your Scenes with Fading Music Effects in Adobe Premiere Pro</u></a></li>
+<li><a href="https://fox-access.techidaily.com/masterclass-in-image-moods-zenithcams-spectacle-for-2024/"><u>Masterclass in Image Moods ZenithCams Spectacle for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ating-through-the-sea-of-user-interactions-on-youtube/"><u>Navigating Through the Sea of User Interactions on YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/professional-videographers-choice-for-screen-recordings/"><u>Professional Videographer's Choice for Screen Recordings</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/simplified-setup-for-long-lasting-performance-inside-the-acurite-pro-weather-station-01036m-analysis/"><u>Simplified Setup for Long-Lasting Performance - Inside the AcuRite Pro Weather Station 01036M Analysis</u></a></li>
+</ul></div>
 

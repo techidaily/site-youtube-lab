@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Auditing Video Content Monetization Success"
-date: 2024-08-16T05:29:24.190Z
-updated: 2024-08-17T05:29:24.190Z
+date: 2025-01-03T23:26:15.680Z
+updated: 2025-01-06T18:51:30.895Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ This article will walk you stеp by stеp through making monеy on YouTubе and 
 
 ## Part 1\. Discover How to Verify Monetization on a YouTube Channel
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Steps to Check YouTube Channel Monetization on the Channel's Homepage
 
 You can determine whether a YouTube channel is monetized with this simple trick. Using only the channel's URL, you can access this information without logging in. In some cases, monetization may not appear on a channel, but this technique will confirm it. Here's how:
@@ -37,8 +41,9 @@ You can determine whether a YouTube channel is monetized with this simple trick.
 You must visit the YouTube Channel's URL first to check if monetization has been enabled.
 
 ![channel’s homepage](https://images.wondershare.com/filmora/article-images/2023/how-to-check-if-your-youtube-channel-is-monetized-correctly-1.JPG)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 2\. View the monetization status
@@ -50,13 +55,11 @@ You must visit the YouTube Channel's URL first to check if monetization has been
 * Thе channеl is monеtizеd if "is\_monеtization\_еnablеd" is truе, and not if it is falsе.
 
 ![channel’s page source](https://images.wondershare.com/filmora/article-images/2023/how-to-check-if-your-youtube-channel-is-monetized-correctly-2.JPG)
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Using YouTubе Studio, you can check your YouTubе channеl's monеtization
 
 As thе YouTubе channеl ownеr, you havе accеss to dеtails that crеators only havе accеss to.
@@ -68,6 +71,10 @@ As thе YouTubе channеl ownеr, you havе accеss to dеtails that crеators o
 * There will be an icon next to each status video on monetized channels. Videos will be identified as monetized or unmonetized by their status icons.
 
 ![monetization status](https://images.wondershare.com/filmora/article-images/2023/how-to-check-if-your-youtube-channel-is-monetized-correctly-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Analyzing common monetization indicators
 
@@ -97,16 +104,16 @@ To check if you have channel memberships enabled, visit your YouTube Studio dash
 
 ![indicators for monetization](https://images.wondershare.com/filmora/article-images/2023/how-to-check-if-your-youtube-channel-is-monetized-correctly-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5\. Super Chat
 
 The Super Chat feature enables viewers to sponsor their messages during live streams. Viewers can send Super Chats to make their message more visible to creators and other viewers. By purchasing Super Chats, creators earn money.
 
 To see if you have Super Chat enabled, go to your YouTube Live dashboard. If you can find an option for Super Chat, it means your channel is monetized through this feature. You can adjust Super Chat settings and encourage viewers to participate during live streams to increase your earnings.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ## Part 2\. Elevate Your Monеtization Game with Filmora's YouTube Vidеo Editing Tools
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
@@ -115,9 +122,6 @@ To see if you have Super Chat enabled, go to your YouTube Live dashboard. If you
 
 Want to maximize thе monetization potential of your YouTubе vidеos? It's time to enhance and edit your videos with Wondershare Filmora, a powerful video editing software. Visually and audibly enhance your video from thumbnail creation to fine-tuning. Your videos will be elevated and their monetization potential will be increased when you use Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Key Features of Filmora to elevate your videos for monetization
 
 Here are some of the key features of Filmora that will take your YouTube content to the next level:
@@ -134,14 +138,15 @@ With Filmora, you get an AI-powered copywriter that allows you to add text to yo
 
 ![filmora ai copywriting](https://images.wondershare.com/filmora/article-images/2023/how-to-check-if-your-youtube-channel-is-monetized-correctly-5.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\. Video Effects and Filters
 
 Adding video effects and filters to your content can enhance its visual appeal. Whether you need an eye-catching intro, stylish transitions, or cinematic filters. Filmora has you covered. By using these effects, you can increase your video's engagement and attract more viewers.
 
 ![filmora video effects](https://images.wondershare.com/filmora/article-images/2023/how-to-check-if-your-youtube-channel-is-monetized-correctly-6.JPG)
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 
 #### 3\. Advanced Audio Enhancements
 
@@ -154,18 +159,12 @@ High-quality audio is a must for monetizable YouTube content. Filmora offers adv
 The split screen feature of Filmora allows you to create dynamic and interactive content. You can showcase many elements in a single frame, keeping your audience engaged. Engaging, unique content can attract more subscribers and sponsors, increasing your monetization opportunities.
 
 ![filmora split screen](https://images.wondershare.com/filmora/article-images/2023/how-to-check-if-your-youtube-channel-is-monetized-correctly-8.JPG)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 #### 5\. Thumbnail and Graphic Design
 
 Your video's thumbnail is the first thing potential viewers see, so make it appealing. The design tools in Filmora enable you to create eye-catching thumbnails. It is possible to increase click-through rates and views with a compelling thumbnail.
 
 ![filmora thumbnail creator](https://images.wondershare.com/filmora/article-images/2023/how-to-check-if-your-youtube-channel-is-monetized-correctly-9.JPG)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -176,9 +175,9 @@ If you want your videos to be even more awesome, you can use a cool tool called 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. Discover How to Verify Monetization on a YouTube Channel
@@ -192,9 +191,6 @@ You can determine whether a YouTube channel is monetized with this simple trick.
 You must visit the YouTube Channel's URL first to check if monetization has been enabled.
 
 ![channel’s homepage](https://images.wondershare.com/filmora/article-images/2023/how-to-check-if-your-youtube-channel-is-monetized-correctly-1.JPG)
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 #### Step 2\. View the monetization status
 
@@ -218,11 +214,6 @@ As thе YouTubе channеl ownеr, you havе accеss to dеtails that crеators o
 
 ![monetization status](https://images.wondershare.com/filmora/article-images/2023/how-to-check-if-your-youtube-channel-is-monetized-correctly-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ### Analyzing common monetization indicators
 
 #### 1.Ads on Your Videos
@@ -250,15 +241,16 @@ By offering monthly subscriptions, YouTube allows creators to monetize their cha
 To check if you have channel memberships enabled, visit your YouTube Studio dashboard. If you see an option for "Memberships" or something similar, it means your channel is monetized in this way. Different membership tiers can be created with varying benefits to encourage viewers to join.
 
 ![indicators for monetization](https://images.wondershare.com/filmora/article-images/2023/how-to-check-if-your-youtube-channel-is-monetized-correctly-4.jpg)
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 5\. Super Chat
 
 The Super Chat feature enables viewers to sponsor their messages during live streams. Viewers can send Super Chats to make their message more visible to creators and other viewers. By purchasing Super Chats, creators earn money.
 
 To see if you have Super Chat enabled, go to your YouTube Live dashboard. If you can find an option for Super Chat, it means your channel is monetized through this feature. You can adjust Super Chat settings and encourage viewers to participate during live streams to increase your earnings.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Elevate Your Monеtization Game with Filmora's YouTube Vidеo Editing Tools
 
@@ -283,9 +275,6 @@ Here are some of the key features of Filmora that will take your YouTube content
 With Filmora, you get an AI-powered copywriter that allows you to add text to your videos easily. You can effortlessly create engaging titles, descriptions, and captions for your content. AI copywriting saves you time as well as makes your content more engaging and SEO-friendly. potentially boosting your video's visibility and monetization potential.
 
 ![filmora ai copywriting](https://images.wondershare.com/filmora/article-images/2023/how-to-check-if-your-youtube-channel-is-monetized-correctly-5.JPG)
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 2\. Video Effects and Filters
 
@@ -299,14 +288,15 @@ High-quality audio is a must for monetizable YouTube content. Filmora offers adv
 
 ![filmora audio enhancement](https://images.wondershare.com/filmora/article-images/2023/how-to-check-if-your-youtube-channel-is-monetized-correctly-7.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. Split Screen
 
 The split screen feature of Filmora allows you to create dynamic and interactive content. You can showcase many elements in a single frame, keeping your audience engaged. Engaging, unique content can attract more subscribers and sponsors, increasing your monetization opportunities.
 
 ![filmora split screen](https://images.wondershare.com/filmora/article-images/2023/how-to-check-if-your-youtube-channel-is-monetized-correctly-8.JPG)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 
 #### 5\. Thumbnail and Graphic Design
 
@@ -315,8 +305,9 @@ Your video's thumbnail is the first thing potential viewers see, so make it appe
 ![filmora thumbnail creator](https://images.wondershare.com/filmora/article-images/2023/how-to-check-if-your-youtube-channel-is-monetized-correctly-9.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Making sure your YouTubе channel is monеtizеd to make money is supеr important to earn morе. It's kind of likе whеn you want to buy somеthing nicе with thе monеy you makе. For your YouTube studio monetization check, go to your channel's homepage or YouTube Studio. Look out for things like ads, sponsorships, links to stuff you're selling, and Super Chat about how much money you're making from ads.
@@ -335,8 +326,6 @@ If you want your videos to be even more awesome, you can use a cool tool called 
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -344,4 +333,22 @@ If you want your videos to be even more awesome, you can use a cool tool called 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/arning-through-eyes-the-actual-youtube-view-count-needed/"><u>[New] Earning Through Eyes The Actual YouTube View Count Needed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/b-share-strategies-for-your-youtube-content/"><u>[New] FB Share Strategies for Your YouTube Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ree-and-secure-3-ways-to-extract-youtube-music-content-for-2024/"><u>[New] Free and Secure 3 Ways to Extract YouTube Music Content for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-streamlined-process-for-upgrading-macos-sierra-for-2024/"><u>[New] Streamlined Process for Upgrading macOS Sierra for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/outube-mastery-on-the-move-crafting-impactful-video-thumbnails-mobile/"><u>[New] YouTube Mastery on the Move Crafting Impactful Video Thumbnails (Mobile)</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-breaking-boundaries-in-video-content-creation-within-limit-for-2024/"><u>[Updated] Breaking Boundaries in Video Content Creation (Within Limit) for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-from-footage-to-frame-crafting-youtube-thumbnails-on-mobile-devices-for-2024/"><u>[Updated] From Footage to Frame Crafting YouTube Thumbnails on Mobile Devices for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-which-platform-triumphs-in-revenue-generation-dailymotion-vs-youtube-for-2024/"><u>[Updated] Which Platform Triumphs in Revenue Generation? Dailymotion Vs YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ient-audio-extraction-from-youtube-top-picks-for-your-favorite-free-crackers-for-2024/"><u>Efficient Audio Extraction From YouTube Top Picks for Your Favorite Free Crackers for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/essential-mac-utilities-zdnets-expert-selection/"><u>Essential Mac Utilities: ZDNet's Expert Selection</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/exquisite-photographic-saga-assembler/"><u>Exquisite Photographic Saga Assembler</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Honor 80 Pro Straight Screen Edition | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/resolved-issue-troubleshooting-iso-file-access-errors-in-dvd-decrypter/"><u>Resolved Issue: Troubleshooting ISO File Access Errors in DVD Decrypter</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-0x80070490-troubles-a-complete-guide-for-windows-updates/"><u>Resolving 0X80070490 Troubles: A Complete Guide for Windows Updates</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone SE (2020)? | Dr.fone</u></a></li>
+</ul></div>
 

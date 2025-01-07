@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, A Simple Approach to YouTube Statistics Review"
-date: 2024-08-16T05:24:22.440Z
-updated: 2024-08-17T05:24:22.440Z
+date: 2025-01-03T21:04:17.201Z
+updated: 2025-01-06T23:00:48.946Z
 tags:
   - ai video
   - ai youtube
@@ -41,11 +41,20 @@ As one of the best video editing software for YouTube, [Filmora](https://tools.t
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Your YouTube Statistics
 
 In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
@@ -54,9 +63,6 @@ In order to check which of your videos are performing the best, click on **Watch
 
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ### 1. Interpreting YouTube Watch Time Reports
 
 To find **Watch time reports** you just need to log into your Google account, go to the **Creator studio**, click the analytics tab, and then click on **watch time**. You can see the watch time of every video on your channel, which is important data to have because watch time is the most important factor when it comes to ranking your video in search results.
@@ -72,9 +78,9 @@ In the watch time reports for individual videos, you will be able to see data on
 Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2. Interpreting YouTube Interaction Reports
 
 Interaction reports are related to the actions viewers take – i.e. subscribing to your channel, liking your videos, or leaving a comments. You can find interaction reports in the **Creator Studio** under **Analytics**.
@@ -99,9 +105,6 @@ Interaction reports can be broken down into several different reports that can h
 
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to View Other Peoples YouTube Statistics
 
 If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
@@ -109,8 +112,9 @@ If you want to check out the statistics of rival YouTube channels ([including th
 Now that you know how to view YouTube statistics, what will you do with them?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -119,14 +123,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,4 +136,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-big-sur-breakdown-understanding-the-latest-macos-update-for-2024/"><u>[New] Big Sur Breakdown Understanding the Latest macOS Update for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/arnings-engineering-crafting-a-high-yield-strategy-for-your-youtube-channel/"><u>[New] Earnings Engineering Crafting a High Yield Strategy for Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-affordable-strategies-for-engaging-youtube-opening-and-end-titles/"><u>[Updated] Affordable Strategies for Engaging YouTube Opening & End Titles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-essential-strategies-for-effective-content-management-in-creator-studio/"><u>[Updated] Essential Strategies for Effective Content Management in Creator Studio</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-convert-youtube-tracks-to-mp3-safely-the-3-best-ways-for-2024/"><u>[Updated] How To Convert YouTube Tracks to MP3 Safely - The 3 Best Ways for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-10-expert-suggestions-to-make-your-yt-shorts-stand-out/"><u>[Updated] In 2024, 10 Expert Suggestions to Make Your YT Shorts Stand Out</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-dominating-discussion-topics-in-the-social-space/"><u>[Updated] In 2024, Dominating Discussion Topics in the Social Space</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-leveraging-video-for-maximum-impact-with-these-5-youtube-strategies/"><u>[Updated] In 2024, Leveraging Video for Maximum Impact with These 5 YouTube Strategies</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-leading-edge-asmr-audio-gear-without-breaking-the-bank-for-2024/"><u>[Updated] Leading-Edge ASMR Audio Gear Without Breaking the Bank for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-future-is-virtual-making-and-sharing-immersive-footage-for-fb-for-2024/"><u>[Updated] The Future Is Virtual Making and Sharing Immersive Footage for FB for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-micro-videos-whats-the-gist/"><u>2024 Approved Micro Videos What's the Gist?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/essay-excellence-on-the-verge-gpts-influence-in-academia/"><u>Essay Excellence on the Verge? GPT’s Influence in Academia</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-fix-freezing-glitches-on-your-pc-while-playing-assassins-creed-odyssey-tips-for-2024/"><u>How to Fix Freezing Glitches on Your PC While Playing Assassin’s Creed Odyssey - Tips for 202#4!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-accessing-your-curated-music-lists-on-youtube/"><u>In 2024, Accessing Your Curated Music Lists on Youtube</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/mastering-the-art-of-creating-voiceovers-using-chatgpts-advanced-dialogue-capabilities/"><u>Mastering the Art of Creating Voiceovers Using ChatGPT’s Advanced Dialogue Capabilities</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-xiaomi-redmi-note-12t-pro-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Xiaomi Redmi Note 12T Pro Device</u></a></li>
+</ul></div>
 

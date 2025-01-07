@@ -1,7 +1,7 @@
 ---
 title: "[New] Inhibit Surprise YouTube Recommendations"
-date: 2024-08-16T05:25:00.778Z
-updated: 2024-08-17T05:25:00.778Z
+date: 2025-01-01T23:42:59.624Z
+updated: 2025-01-07T00:42:00.983Z
 tags:
   - ai video
   - ai youtube
@@ -38,9 +38,17 @@ Here’s what you can do about it:
 2. [**Tell YouTube You Aren’t Interested**](#notinterested)
 3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Manage Your Watch History
 
 ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
 
@@ -48,15 +56,9 @@ You will be able to completely clear your watch history, remove specific videos 
 
 If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Tell YouTube You Aren’t Interested
 
 ![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 
 Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
 
@@ -66,9 +68,6 @@ Hover over the thumbnail of a video you don’t want to be recommended to you an
 
 When you tell YouTube you aren’t interested in certain videos they use that data to adjust what they recommend for you.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## But Why Does It Recommend Stuff I Don’t Like?
 
 Your search/watch history is not the only thing that determines what YouTube recommends for you. Nobody outside of Google knows exactly how the algorithm works, but we do know one of the major factors influencing it is to watch **time**.
@@ -82,19 +81,21 @@ The only way to stop certain types of videos from being recommended for you is t
  Are you usually happy with YouTube's recommended videos?
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What video editing software did YouTube suggested videos are used?
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -103,14 +104,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,4 +117,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-capture-every-click-with-spring-screen-recorder/"><u>[New] In 2024, Capture Every Click with Spring Screen Recorder</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-mastering-the-art-of-on-the-fly-picture-cropping/"><u>[New] Mastering the Art of On-The-Fly Picture Cropping</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-the-ultimate-guide-to-browser-screen-capturing-software/"><u>[New] The Ultimate Guide to Browser Screen Capturing Software</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-essentials-of-sharing-music-compilations-online/"><u>[Updated] In 2024, The Essentials of Sharing Music Compilations Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-top-5-choices-in-professional-3d-intros/"><u>[Updated] In 2024, Top 5 Choices in Professional 3D Intros</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-vlogventures-in-cosmetics-how-to-create-your-fashion-forward-channel/"><u>[Updated] Vlogventures in Cosmetics How to Create Your Fashion-Forward Channel</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-advanced-gopro-filmmaking-hacks/"><u>2024 Approved Advanced GoPro Filmmaking Hacks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-masterclass-in-conversions-top-software-for-youtube-to-avi/"><u>2024 Approved Masterclass in Conversions Top Software for YouTube to AVI</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-mobile-sound-shakers-the-ultimate-playlist/"><u>2024 Approved Mobile Sound Shakers The Ultimate Playlist</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-ways-to-erase-apple-iphone-11-pro-max-when-its-locked-within-seconds-drfone-by-drfone-ios/"><u>In 2024, 3 Ways to Erase Apple iPhone 11 Pro Max When Its Locked Within Seconds | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-navigating-nuances-the-artists-hue-harmony-handbook/"><u>In 2024, Navigating Nuances The Artist’s Hue Harmony Handbook</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pinnacle-photo-narrative-assembly-platform/"><u>In 2024, Pinnacle Photo Narrative Assembly Platform</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-your-guide-to-the-essentials-of-youtube-tv-usage/"><u>In 2024, Your Guide to the Essentials of YouTube TV Usage</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/installing-the-latest-drivers-for-amd-radeon-hd-7870-on-windows-10-easy-guide/"><u>Installing the Latest Drivers for AMD Radeon HD 7870 on Windows 10 - Easy Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-your-youtube-comments-desktop-and-mobile-guide-for-2024/"><u>Locating Your YouTube Comments Desktop & Mobile Guide for 2024</u></a></li>
+</ul></div>
 

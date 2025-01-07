@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Elevating Views, Amplifying Impact  A Youtube Case Study\""
-date: 2024-08-16T05:27:01.143Z
-updated: 2024-08-17T05:27:01.143Z
+date: 2024-12-31T00:43:18.963Z
+updated: 2025-01-06T17:11:53.567Z
 tags:
   - ai video
   - ai youtube
@@ -30,9 +30,17 @@ You’ve probably heard of stories about individuals who managed to find financi
 
 Jesse Ridgway is the owner of the vlog [McJuggerNuggets](https://www.youtube.com/user/McJuggerNuggets), which has grown to over 3.4 million subscribers. He makes enough money to live off of YouTube alone. Here is a case study of how he made his first $10,000 on YouTube:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Case Study of McJuggerNuggets
 
 ![Case Study McJugger Nuggets](https://images.wondershare.com/filmora/article-images/case-study-mcjugger-nuggets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Jesse was one of the earliest YouTubers. He started his channel on December 9, 2006\. Jesse never guessed that he would make enough money to live off of the videos he was creating. Here are some of the ways that he monetized his channel:
 
@@ -83,18 +91,21 @@ Regular research into your target market will help you to create the trendiest n
 Timing and luck are definitely two of the biggest factors in becoming a success on YouTube. If you are willing to keep working and don’t get discouraged you will eventually earn profits.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Edit Your Videos with High-Quality Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -103,14 +114,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,4 +127,21 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-affluent-online-broadcasting-houses/"><u>[Updated] 2024 Approved Affluent Online Broadcasting Houses</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-asmr-knowledge-beyond-what-you-see/"><u>[Updated] 2024 Approved ASMR Knowledge Beyond What You See</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-essential-list-6-free-online-platforms-for-youtube-short-downloads/"><u>[Updated] 2024 Approved Essential List 6 Free Online Platforms for YouTube Short Downloads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-enhancing-engagement-with-solutions-to-common-shorts-challenges-for-2024/"><u>[Updated] Enhancing Engagement with Solutions to Common Shorts Challenges for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/92765130-updated-in-2024-explore-and-download-50-free-youtube-banners/"><u>[Updated] In 2024, Explore & Download 50 FREE YouTube Banners!</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-ultimate-copyright-strategy-for-online-video-creators/"><u>[Updated] In 2024, The Ultimate Copyright Strategy for Online Video Creators</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-fiscal-picture-for-content-makers-on-youtube-shorts-platform/"><u>[Updated] The Fiscal Picture for Content Makers on YouTube Shorts Platform</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-how-to-promote-videos-cross-platform-youtube-meets-facebook/"><u>In 2024, How to Promote Videos Cross-Platform YouTube Meets Facebook</u></a></li>
+<li><a href="https://extra-information.techidaily.com/seamless-integration-12-stream-app-experience/"><u>Seamless Integration 12 Stream App Experience</u></a></li>
+<li><a href="https://article-posts.techidaily.com/seamless-zoom-integration-joining-and-scheduling-made-simple-for-2024/"><u>Seamless Zoom Integration Joining & Scheduling Made Simple for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/smooth-gaming-awaits-with-these-fixes-for-pathfinder-wrath-of-the-righteous-freezing-problem-on-your-pc/"><u>Smooth Gaming Awaits with These Fixes for Pathfinder: Wrath of the Righteous Freezing Problem on Your PC</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ssentials-of-youtubes-cc-license-for-filmakers-for-2024/"><u>The Essentials of YouTube's CC License for Filmakers for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-most-effective-uses-of-chatgpt-for-self-care/"><u>The Most Effective Uses of ChatGPT for Self-Care</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/vertical-or-horizontal-facebook-video-tactic/"><u>Vertical or Horizontal Facebook Video Tactic</u></a></li>
+</ul></div>
 
