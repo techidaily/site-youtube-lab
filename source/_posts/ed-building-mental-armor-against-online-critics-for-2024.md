@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Building Mental Armor Against Online Critics for 2024"
-date: 2025-01-02T19:17:45.673Z
-updated: 2025-01-07T01:55:10.954Z
+date: 2025-01-12T06:54:23.943Z
+updated: 2025-01-13T05:50:56.512Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/9a9907ac5dbaa04f31e369bac93b279f477635cd1
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/9a9907ac5dbaa04f31e369bac93b279f477635cd1
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,16 +83,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-beyond-binary-boundaries-unveiling-metaverse-vs-multiverse/"><u>[New] Beyond Binary Boundaries Unveiling Metaverse V/S Multiverse</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/uerrilla-marketing-for-youtube-upping-video-traffic/"><u>[New] Guerrilla Marketing for YouTube Upping Video Traffic</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-money-multiplier-how-to-maximize-youtube-profits-with-mobile-viewers/"><u>[Updated] 2024 Approved Money Multiplier How to Maximize YouTube Profits with Mobile Viewers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/zing-the-frequency-of-youtube-payments/"><u>Analyzing the Frequency of YouTube Payments</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/chatgpt-plus-review-top-5-benefits-of-joining-now/"><u>ChatGPT Plus Review: Top 5 Benefits of Joining Now</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/effizientes-streamen-von-mkv-filmen-losungen-fur-ladeverzogerungen-und-abtastungsfehler-in-windowsmacos/"><u>Effizientes Streamen Von MKV-Filmen: Lösungen Für Ladeverzögerungen Und Abtastungsfehler in Windows/macOS</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/e-look-what-makes-asmr-special-for-2024/"><u>Inside Look What Makes ASMR Special for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/strategies-to-optimize-multiscreen-experience-on-social-networking-platforms-like-facebook-for-2024/"><u>Strategies to Optimize Multiscreen Experience on Social Networking Platforms Like Facebook for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unity-rolls-out-beta-access-to-developers-for-apple-vision-pro-revolutionizing-arvr-game-creation-zdnet/"><u>Unity Rolls Out Beta Access to Developers for Apple Vision Pro, Revolutionizing AR/VR Game Creation | ZDNET</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/viral-victory-your-kinemaster-journey-for-2024/"><u>Viral Victory Your KineMaster Journey for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/be-thumbnail-design-on-macos-unveiled/"><u>YouTube Thumbnail Design on macOS Unveiled</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/new-creative-channel-themes-get-them-for-free/"><u>[New] Creative Channel Themes Get Them for Free</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-navigating-youtubes-algorithm-as-a-game-streamer/"><u>[New] In 2024, Navigating YouTube's Algorithm as a Game Streamer</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/aking-control-of-quality-edit-your-published-videos-on-youtube/"><u>[New] Taking Control of Quality Edit Your Published Videos on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-10-stellar-tools-that-amplify-your-videos-youtube-presence-for-2024/"><u>[Updated] 10 Stellar Tools That Amplify Your Video's YouTube Presence for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-advanced-screen-recording-techniques-for-enhanced-productivity-in-adobe-captive-for-2024/"><u>[Updated] Advanced Screen Recording Techniques for Enhanced Productivity in Adobe Captive for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-breaking-through-youtubes-walls-using-advanced-creator-studio-skills/"><u>[Updated] In 2024, Breaking Through YouTube's Walls Using Advanced Creator Studio Skills</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-discover-8-trusted-platforms-for-online-video-advancement/"><u>2024 Approved Discover 8 Trusted Platforms for Online Video Advancement</u></a></li>
+<li><a href="https://fox-access.techidaily.com/elevate-your-imagery-top-lights-tactics-on-iphones-for-2024/"><u>Elevate Your Imagery Top Lights Tactics on iPhones for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/te-your-online-presence-with-this-all-inclusive-youtube-upload-manual-for-2024/"><u>Elevate Your Online Presence with This All-Inclusive YouTube Upload Manual for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-your-viewing-pleasure-with-the-lg-oled-c9-65-an-in-depth-review-by-tech-experts/"><u>Elevating Your Viewing Pleasure with The LG OLED C9 65: An In-Depth Review by Tech Experts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-ultimate-guide-to-free-online-video-tools-for-all/"><u>In 2024, The Ultimate Guide to Free Online Video Tools for All</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-your-disabled-iphone-6s-plus-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>In 2024, Unlock Your Disabled iPhone 6s Plus Without iTunes in 5 Ways | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-essential-insights-into-image-stock-sourcing-pexels-uncovered/"><u>New Essential Insights Into Image Stock Sourcing Pexels Uncovered</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/standard-features-showdown-aomei-backupper-versus-acronis-true-image-for-reliable-system-recovery/"><u>Standard Features Showdown: AOMEI Backupper Versus Acronis True Image for Reliable System Recovery</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-tricks-for-achieving-high-quality-slow-motion-videos-on-android/"><u>Top Tricks for Achieving High-Quality Slow Motion Videos on Android</u></a></li>
 </ul></div>
 

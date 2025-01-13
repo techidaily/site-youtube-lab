@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Scripting Your Story's Visual Heartbeat at Home"
-date: 2025-01-01T21:17:19.597Z
-updated: 2025-01-06T17:22:51.207Z
+date: 2025-01-06T23:25:16.289Z
+updated: 2025-01-13T14:01:22.295Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,22 +112,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ultivating-a-visionary-channel-with-best-video-ideas/"><u>[New] Cultivating a Visionary Channel with Best Video Ideas</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-enhance-videos-seamlessly-using-youtube-studio-editor/"><u>[New] In 2024, Enhance Videos Seamlessly Using YouTube Studio Editor</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-from-sky-to-framing-a-compreenasive-review-of-the-drone-dji-spark/"><u>[New] In 2024, From Sky to Framing A Compreenasive Review of the Drone DJI Spark</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-transform-your-clips-step-by-step-youtube-end-screen-tutorials/"><u>[New] In 2024, Transform Your Clips Step-by-Step YouTube End Screen Tutorials</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-unleash-your-potential-with-these-12-best-flip-screen-cameras/"><u>[New] In 2024, Unleash Your Potential with These 12 Best Flip-Screen Cameras</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nfographic-insight-whats-hot-on-23-social-sphere-for-2024/"><u>[New] Infographic Insight What's Hot on '23 Social Sphere for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/aved-the-day-downloading-youtube-playlists-made-easy-for-2024/"><u>[New] Saved the Day! Downloading YouTube Playlists Made Easy for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-essential-high-definition-cameras-for-extreme-enthusiasts-for-2024/"><u>[Updated] Essential High Definition Cameras for Extreme Enthusiasts for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-exclusive-list-the-top-10-camcorders-for-2ranking-for-2024/"><u>[Updated] Exclusive List The Top 10 Camcorders for 2Ranking for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-yearly-review-youtubes-most-immersive-stories/"><u>[Updated] In 2024, Yearly Review YouTube's Most Immersive Stories</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-noble-mic-necessities-for-youtube-newbies-on-the-cheap/"><u>2024 Approved Noble Mic Necessities for YouTube Newbies on the Cheap</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-lava-agni-2-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Lava Agni 2 5G Phones with/without a PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/how-a-digital-detox-revitalizes-your-life/"><u>How a Digital Detox Revitalizes Your Life</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-from-concept-to-screen-channel-yt-for-pioneering-filmmaking-techniques/"><u>In 2024, From Concept to Screen Channel YT for Pioneering Filmmaking Techniques</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Realme 12 5G | Dr.fone</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-bring-your-ideas-to-life-top-online-stop-motion-tools/"><u>Updated In 2024, Bring Your Ideas to Life Top Online Stop Motion Tools</u></a></li>
-<li><a href="https://win-able.techidaily.com/44oh44kk44kv44og44kt44ol44o844gn5qw944gx44gp5yip55so44gz44kl44gf44kb44gu44ob44o844oi44k344o844oi44go5pya5paw5yws6kqn44kz44o844oj6ygp55so5pa55rov/"><u>メイクムキューで楽しく利用するためのチートシートと最新公認コード適用方法</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-craft-your-storyline-three-ways-to-border-instagram-videos/"><u>[New] In 2024, Craft Your Storyline Three Ways to Border Instagram Videos</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-explore-8-inexpensive-virtual-gatherings-mac-and-windows-compatibility/"><u>[New] In 2024, Explore 8 Inexpensive Virtual Gatherings Mac & Windows Compatibility</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/erfect-end-screen-and-cards-strategies-for-yt/"><u>[New] Perfect End Screen & Cards Strategies for YT</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-premier-fb-video-mp4-downloader-no-ads-no-wait-for-2024/"><u>[New] Premier FB Video MP4 Downloader - No Ads, No Wait for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-best-12-youtube-gaming-intro-makers-free-and-paid/"><u>[Updated] Best 12 YouTube Gaming Intro Makers - Free and Paid</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-share-a-private-youtube-video-in-2024/"><u>[Updated] How to Share a Private YouTube Video, In 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-following-review-innovative-outlooks/"><u>[Updated] In 2024, Following Review Innovative Outlooks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastery-in-migrating-youtube-videos-to-igtv-platform/"><u>[Updated] In 2024, Mastery in Migrating YouTube Videos to IGTV Platform</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-comprehensive-codes-of-conduct-for-the-yt-community/"><u>2024 Approved Comprehensive Codes of Conduct for the Yt Community</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-best-free-video-translation-youtubes-extractors-and-downloader-list/"><u>2024 Approved The Best-Free Video Translation YouTube's Extractors & Downloader List</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-streamline-your-videography-journey-choose-from-the-top-8-free-tools/"><u>In 2024, Streamline Your Videography Journey Choose From the Top 8 Free Tools</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/navigating-through-task-notifications-how-to-customize-slack-reminders-for-maximum-efficiency/"><u>Navigating Through Task Notifications: How to Customize Slack Reminders for Maximum Efficiency</u></a></li>
+<li><a href="https://win11.techidaily.com/streamline-your-way-to-windows-11-group-policies/"><u>Streamline Your Way to Windows 11 Group Policies</u></a></li>
 </ul></div>
 

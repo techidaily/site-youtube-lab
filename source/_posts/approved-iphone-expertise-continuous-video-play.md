@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  IPhone Expertise  Continuous Video Play\""
-date: 2024-08-16T05:23:43.678Z
-updated: 2024-08-17T05:23:43.678Z
+date: 2025-01-09T03:26:12.733Z
+updated: 2025-01-13T02:52:18.334Z
 tags:
   - ai video
   - ai youtube
@@ -68,9 +68,17 @@ To do this, capture a live photo by opening your camera app. Then click on the l
 
 ![iPhone Media types](https://images.wondershare.com/filmora/article-images/iphone-live-photos-media-types.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. After locating and clicking on the live picture, you will see the _Live_ tab in the upper left corner. Click on the arrow down to view other options, including Loop, Bounce, and long exposure.
 
 ![iPhone live photos options](https://images.wondershare.com/filmora/article-images/iphone-live-photos-options.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Select the effect you want to create (loop) and save the file. The loop feature plays the video in a one-way order. So, to make it more interesting, you can select the bounce effect, which makes it play back and forth.
 2. You can share the created loop video with the share icon at the lower-left corner.
@@ -78,8 +86,9 @@ To do this, capture a live photo by opening your camera app. Then click on the l
 ![iPhone save live photos to loop](https://images.wondershare.com/filmora/article-images/iphone-live-photos-save-video.jpg)
 
 <!-- affiliate ads begin -->
-
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Repeat Slideshow to Loop Video on iPhone for Free
 
 Slideshow videos are a very fun way to see your content. People gather around a screen to enjoy these beautiful memories of their life. Here is a step-by-step guide on how to loop a slideshow video on iPhone.
@@ -89,9 +98,6 @@ Slideshow videos are a very fun way to see your content. People gather around a 
 3. Pause the slideshow video, and you will see Options button at the bottom. Click it and then enable the Repeat option.
 
 ![iphone loop slideshow video](https://images.wondershare.com/filmora/article-images/iphone-slideshow-repeat-loop-effects.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now open that video from the album and start playing the video. That video will start playing in a loop until you make it stop.
 
@@ -108,14 +114,8 @@ Now coming to the part that we discussed in the intro, how to loop YouTube video
 
 Check this ultimate guide to [looping YouTube videos](https://tools.techidaily.com/wondershare/filmora/download/) to get more ways.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 4: Best Apps to Loop Videos on iPhone and iPad
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 1. [Loopideo - Loop Videos](https://apps.apple.com/us/app/loopideo-loop-videos/id798990531)
 
 ![Loopideo - Loop Videos](https://images.wondershare.com/filmora/article-images/loopideo-loop-videos-iphone.jpg)
@@ -123,19 +123,32 @@ Check this ultimate guide to [looping YouTube videos](https://tools.techidaily.c
 Loopideo is the app on our list that is an answer to **how to loop a video on iPhone**. It lets you import any video from your play that you want to play in a loop. This is a great tool when it comes to individual and organizational presentations. This powerful app can be very useful for you in many cases.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2. [Loop Video – GIF Maker](https://apps.apple.com/us/app/loop-videos-gif-maker/id1515299503)
 
 ![Loop Video – GIF Maker](https://images.wondershare.com/filmora/article-images/loop-videos-gif-maker.jpg)
 
 The second app on our list is Loop Video GIF Maker. It is very fun and easy to use the tool. It allows you to make the videos loop by turning them into GIFs. Loop Video GIF Maker allows you to import any video from your gallery into your app. You can then convert into a looping GIF. You can also choose the playback speed of the GIF after you can export it to the gallery or upload it to your social media directly from the app.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3. [Loopideo Pro](https://apps.apple.com/us/app/loopideo-pro-loop-videos/id1343372109)
 
 ![Loopideo Pro](https://images.wondershare.com/filmora/article-images/loopideo-pro-loop-videos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Loopideo Pro is a more feature-filled app on the App Store. Loopideo allows you to make the videos loop an unlimited amount of times. You can also choose the formats that you want to convert the looping video into. This app also gives you the option to choose the playback speed and then can also convert it into GIF speed so that you can save it in your gallery.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4. [iMovie](https://apps.apple.com/us/app/imovie/id377298193)
 
@@ -169,8 +182,9 @@ To make the video with the Instagram Boomerang feature:
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 5: What If You'd Like to Loop Videos on Computer?
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the most popular video editors among video creators. It gives you high-quality end product, smooth slowing down & speeding up movements, voiceovers on top of music tracks and transitions between audio & video clips. But another amazing benefit of this [computer video editor](https://tools.techidaily.com/wondershare/filmora/download/) is that you can produce a loop video.
@@ -189,8 +203,9 @@ To make the video with the Instagram Boomerang feature:
 For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -211,18 +226,12 @@ In this part, I'm going to show you how to create looping video in Filmora video
 Launch Filmora video editor on your Windows or Mac computer and then make a new project. Import videos as you can see it has been already imported all the media in the media library from your which you want to loop effect, and then drag the video clip to the timeline.
 
 ![import video to filmora](https://images.wondershare.com/filmora/article-images/import-video-to-loop-filmora.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 
  **Step 2: Copy and Paste the Video**
 
 After drag and drop the video to the timeline, make a copy of it (Ctrl+C). Go to the last frame and paste this video again.
 
 ![copy and paste the video](https://images.wondershare.com/filmora/article-images/copy-paste-clips-filmora.jpg)
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  **Step 3: Enable Reverse Speed effect**
 
@@ -231,9 +240,6 @@ Right click on the pasted video and go to Speed and Duration option in which cus
 In the Custom Speed dialog box you will find the speed, duration, reverse and ripple options. To make a video with loop effects, click the Reverse option to reverse the video play back from end to start frames automatically. Click OK to save the settings.
 
 ![reverse speed in Filmora](https://images.wondershare.com/filmora/article-images/reverse-speed-filmora.jpg)
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now you have got a video with one looping count, if you want the video to loop several times, you can select these 2 clips and paste it based on your needs to get a continuous looping effect.
 
@@ -258,9 +264,6 @@ or Try Filmora App for mobile >>>
 
 [download filmora app for ios](https://images.wondershare.com/filmorago/article-common/app_store.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t) [download filmora app for android](https://images.wondershare.com/filmorago/article-common/google_play.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 6: Frequently Asked Question About Looping Videos on iPhone
 
 1. **What is a looping video?**
@@ -286,8 +289,9 @@ For Win 7 or later (64-bit)
 For macOS 10.14 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [Click here to get Filmora for PC by email](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -296,9 +300,6 @@ or Try Filmora App for mobile >>>
 [download filmora app for ios](https://images.wondershare.com/filmorago/article-common/app_store.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t) [download filmora app for android](https://images.wondershare.com/filmorago/article-common/google_play.svg) ](https://app.adjust.com/b0k9hf2%5F4bsu85t)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -306,14 +307,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -322,4 +320,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-drone-visionarys-guide-to-mavic-pro/"><u>[New] In 2024, Drone Visionary's Guide to Mavic Pro</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-skyrocket-your-content-tips-for-trending-videos/"><u>[New] In 2024, Skyrocket Your Content Tips for Trending Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-definitive-guide-to-youtubes-algorithmic-secrets-for-rankings-for-2024/"><u>[New] The Definitive Guide to YouTube's Algorithmic Secrets for Rankings for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-achieve-balance-and-vitality-top-10-premium-yoga-streams/"><u>[Updated] 2024 Approved Achieve Balance & Vitality - Top 10 Premium Yoga Streams</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-elevating-youtube-live-with-high-quality-webcam-cameras/"><u>[Updated] 2024 Approved Elevating YouTube Live with High-Quality Webcam Cameras</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-jovial-jingles-a-compilation-of-easy-download-links/"><u>[Updated] 2024 Approved Jovial Jingles A Compilation of Easy Download Links</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-cutting-edge-techniques-in-live-streamed-gaming/"><u>[Updated] In 2024, Cutting-Edge Techniques in Live-Streamed Gaming</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/sential-youtube-groups-navigating-stocks-for-2024/"><u>20 Essential YouTube Groups Navigating Stocks for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-photos-that-speak-volumes-starting-with-lunapics-tutorial/"><u>2024 Approved Photos That Speak Volumes Starting with LunaPic's Tutorial</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-fix-apple-iphone-xr-unavailable-issue-with-ease-drfone-by-drfone-ios/"><u>How To Fix Apple iPhone XR Unavailable Issue With Ease | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-creating-memorable-youtube-shorts-10-must-do-tips/"><u>In 2024, Creating Memorable YouTube Shorts - 10 Must-Do Tips</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-vivo-s17-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Snapchat Location Spoofer to Protect Your Privacy On Vivo S17 Pro? | Dr.fone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/irecorder-unpacked-what-you-need-to-know/"><u>IRecorder Unpacked What You Need to Know</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-window-note-adhesion-in-windows-11-and-10/"><u>Mastering Window Note Adhesion in Windows 11 & 10</u></a></li>
+</ul></div>
 

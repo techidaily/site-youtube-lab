@@ -1,7 +1,7 @@
 ---
 title: "\"Crafting Visuals  The Science of YouTube Banners & Thumbnails\""
-date: 2024-08-16T05:23:34.871Z
-updated: 2024-08-17T05:23:34.871Z
+date: 2025-01-11T10:30:23.864Z
+updated: 2025-01-12T21:49:30.740Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/3fdaca488d74735acc0a94b8e5d7a94444c107a2d
  Mar 27, 2024• Proven solutions
 
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Make YouTube Banners and Thumbnails
 
@@ -65,13 +69,25 @@ There are sites online that will allow you to edit images and use them in templa
 
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
 
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -79,14 +95,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,8 +108,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-crafting-your-first-twitter-profile/"><u>[New] Crafting Your First Twitter Profile</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-maximizing-view-count-faster-discover-the-most-effective-shortcuts/"><u>[New] In 2024, Maximizing View Count Faster Discover the Most Effective Shortcuts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-ultimate-guide-to-filming-for-virality-on-youtube/"><u>[New] In 2024, The Ultimate Guide to Filming for Virality on YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-elevate-farming-fun-with-these-top-7-stardew-valley-enhancements/"><u>[Updated] In 2024, Elevate Farming Fun with These Top 7 Stardew Valley Enhancements</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unveiling-how-t-series-earnings-growth-on-youtube-works/"><u>2024 Approved Unveiling How T-Series Earnings Growth on YouTube Works</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-poco-c50-drfone-by-drfone-virtual-android/"><u>Does Airplane Mode Turn off GPS Location On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/guide-to-extending-bluetooth-ranges-tips-for-better-performance-on-windows-operating-systems/"><u>Guide to Extending Bluetooth Ranges: Tips for Better Performance on Windows Operating Systems</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-nokia-c32-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Nokia C32 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On OnePlus Ace 2? | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-troubleshoot-and-fix-aoc-monitor-issues-compatible-with-windows-11/"><u>How to Troubleshoot and Fix AOC Monitor Issues Compatible with Windows 11</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ity-vault-uncovering-keywords-that-drive-video-shares/"><u>Virality Vault Uncovering Keywords That Drive Video Shares</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

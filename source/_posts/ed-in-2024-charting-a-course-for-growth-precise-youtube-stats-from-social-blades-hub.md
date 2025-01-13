@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Charting a Course for Growth  Precise YouTube Stats From Social Blade's Hub\""
-date: 2025-01-02T20:16:33.845Z
-updated: 2025-01-07T01:38:32.140Z
+date: 2025-01-08T18:58:03.279Z
+updated: 2025-01-12T21:06:45.706Z
 tags:
   - ai video
   - ai youtube
@@ -38,16 +38,12 @@ While many of the stats you can find on Social Blade are also available right on
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Your YouTube Analytics
 
 ![Social Blade for YouTube Analytics](https://images.wondershare.com/filmora/article-images/social-blade-youtube-analytics.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Social Blade is an excellent place to gauge the growth of your channel. It provides statistics on our subscribers, views, and estimated revenue.
@@ -69,7 +65,7 @@ If you scroll down to the second section you will be able to see your views, sub
 By looking at this chart you can see which videos benefited your channel most after they were posted (your videos are not listed, but you can see based on the day you posted them). This will give you a good idea of what your audience wants to see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Spying on Other Channels
@@ -85,7 +81,7 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
  That's how you can use Social Blade for YouTube - have you ever used it?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Make Your Videos Stand Out with Powerful Video Editor
@@ -93,10 +89,14 @@ You can also use Social Blade to look up huge YouTube stars who you admire, just
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -119,20 +119,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ilencing-the-spotlight-avoiding-vloggers-fears/"><u>[New] Silencing the Spotlight Avoiding Vlogger's Fears</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-charting-the-course-for-youtube-keyword-mastery/"><u>[Updated] 2024 Approved Charting the Course for YouTube Keyword Mastery</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-your-ultimate-yt-shorts-companion/"><u>[Updated] 2024 Approved Your Ultimate YT Shorts Companion</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-directly-embedding-google-meet-in-youtubes-video-library/"><u>[Updated] In 2024, Directly Embedding Google Meet in YouTube's Video Library</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-a-beginners-guide-to-understanding-youtube-responses/"><u>2024 Approved A Beginner's Guide to Understanding YouTube Responses</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-critical-asmr-series-to-experience/"><u>2024 Approved Critical ASMR Series to Experience</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-broadcast-blueprint-for-enthralling-cricket-matches/"><u>2024 Approved The Ultimate Broadcast Blueprint for Enthralling Cricket Matches</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-vlc-screencasting-live-feed-webcam-integration/"><u>2024 Approved VLC Screencasting Live Feed – Webcam Integration</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-motorola-moto-g04-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Motorola Moto G04 | Dr.fone</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ssive-youtube-aesthetics-at-no-cost-for-2024/"><u>Expressive YouTube Aesthetics at No Cost for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/online-signatures-for-xltx-documents-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>Online signatures for .xltx documents</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/p3-essentials-guide-10-online-converters-reviewed/"><u>The MP3 Essentials Guide #10 Online Converters Reviewed</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/the-ultimate-mac-obs-guide-installation-and-operational-knowledge/"><u>The Ultimate Mac OBS Guide Installation & Operational Knowledge</u></a></li>
-<li><a href="https://video-capture.techidaily.com/top-eco-friendly-visual-effect-systems-a-beginners-guide/"><u>Top Eco-Friendly Visual Effect Systems A Beginner's Guide</u></a></li>
-<li><a href="https://win-luxury.techidaily.com/1728483863289-5/"><u>エクセルデータがなくても大丈夫!? 保存損失後の探索手順ベスト5</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/oosting-engagement-perfect-time-stamping-techniques-for-videos/"><u>[New] Boosting Engagement Perfect Time-Stamping Techniques for Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-utilizing-continuous-lights-for-comfortable-filming/"><u>[New] In 2024, Utilizing Continuous Lights for Comfortable Filming</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-youtube-channel-trailers-the-ultimate-guide-to-profitability/"><u>Crafting YouTube Channel Trailers The Ultimate Guide to Profitability</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-install-canon-mx492-printer-drivers-on-windows-comprehensive-guide-for-the-mx-series/"><u>Download & Install Canon MX492 Printer Drivers on Windows: Comprehensive Guide for the MX Series</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tial-tips-for-youtube-short-fixes-for-2024/"><u>Essential Tips for YouTube Short Fixes for 2024</u></a></li>
+<li><a href="https://win-comparisons.techidaily.com/fresh-changes-on-the-horizon-microsofts-next-move-for-windows-updates-coverage-by-zdnet/"><u>Fresh Changes on the Horizon: Microsoft's Next Move for Windows Updates Coverage by ZDNET</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-create-a-channel-that-dominates-the-business-world-for-2024/"><u>How to Create a Channel that Dominates the Business World for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-apple-id-verification-code-not-working-from-iphone-12-pro-max-by-drfone-ios/"><u>How To Fix Apple ID Verification Code Not Working From iPhone 12 Pro Max</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-6s-plus-with-a-mask-on-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 6s Plus with a Mask On | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/keeping-confidential-opt-out-of-chatgpt/"><u>Keeping Confidential? Opt-Out of ChatGPT</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2612029-9780892546305-the-sworn-book-of-honorius/"><u>The Sworn Book of Honorius | Free Book</u></a></li>
+<li><a href="https://common-error.techidaily.com/win10-cpu-load-management-techniques/"><u>Win10 CPU Load Management Techniques</u></a></li>
 </ul></div>
 

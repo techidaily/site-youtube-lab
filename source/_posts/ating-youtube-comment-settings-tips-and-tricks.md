@@ -1,7 +1,7 @@
 ---
 title: "\"Navigating YouTube Comment Settings  Tips and Tricks\""
-date: 2024-08-16T05:20:46.074Z
-updated: 2024-08-17T05:20:46.074Z
+date: 2025-01-06T21:04:54.369Z
+updated: 2025-01-12T18:41:26.031Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,10 @@ From the bottom of the left pane, click the **Settings** icon, click **Channel**
 
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 3: Turn Off Comments
 
 From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
@@ -57,6 +61,10 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\. Define Acceptable Comment Types
 
@@ -91,8 +99,9 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -112,15 +121,13 @@ Hover the mouse over the target video in the right window, and click the **Detai
 From under the **Audience** section in the right window of the **Video details** page, select the **No, it’s not made for kids** radio button. Next, click **SHOW MORE**, scroll down to the **Comments and ratings** section, and choose your preferred privacy option from the **Comment visibility** drop-down list. Click **SAVE** from the upper-right area to save the changes.
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -136,8 +143,9 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -153,9 +161,6 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -163,14 +168,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,4 +181,22 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-digital-filmmakers-guide-converting-avi-media-to-compact-gif-format-in-filmora/"><u>[New] In 2024, Digital Filmmakers' Guide Converting AVI Media to Compact GIF Format in Filmora</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/urging-up-the-search-listings-key-tips-for-optimizing-your-videos-for-2024/"><u>[New] Surging Up the Search Listings Key Tips for Optimizing Your Videos for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unveiling-engagement-secrets-top-10-video-reacting-techniques/"><u>[New] Unveiling Engagement Secrets Top 10 Video Reacting Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-conquer-common-youtube-short-setbacks/"><u>[Updated] 2024 Approved Conquer Common YouTube Short Setbacks</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-achieving-content-balance-a-thorough-exploration-of-yt-aspect-ratios/"><u>[Updated] Achieving Content Balance A Thorough Exploration of YT Aspect Ratios</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-breaking-down-youtube-revenue-per-million-views-for-2024/"><u>[Updated] Breaking Down YouTube Revenue per Million Views for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-guide-to-voice-changes-without-financial-investment/"><u>[Updated] The Ultimate Guide to Voice Changes Without Financial Investment</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-capture-the-best-moments-select-6-top-ranked-short-video-download-tools/"><u>2024 Approved Capture the Best Moments Select 6 Top-Ranked Short Video Download Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-channel-success-strategies-a-comprehensive-guide-to-spotlighting/"><u>2024 Approved Channel Success Strategies A Comprehensive Guide to Spotlighting</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-gigglegrid-generate-memes-with-ease-and-speed/"><u>2024 Approved GiggleGrid Generate Memes with Ease and Speed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-from-stream-to-screen-how-to-download-youtube-on-iphoneipad/"><u>In 2024, From Stream to Screen How to Download Youtube on iPhone/iPad</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-apple-iphone-12-pro-max-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 5 Tracking Apps to Track Apple iPhone 12 Pro Max without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/inside-facetunes-magic-an-in-depth-analysis-for-perfect-photos/"><u>Inside Facetune's Magic An In-Depth Analysis for Perfect Photos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tware-needed-youtube-video-capture-for-2024/"><u>NoSoftware Needed YouTube Video Capture for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/standing-youtubes-social-media-protocols/"><u>Understanding YouTube's Social Media Protocols</u></a></li>
+</ul></div>
 

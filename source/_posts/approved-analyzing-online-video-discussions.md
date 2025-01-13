@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Analyzing Online Video Discussions\""
-date: 2024-08-16T05:21:12.974Z
-updated: 2024-08-17T05:21:12.974Z
+date: 2025-01-07T03:07:33.774Z
+updated: 2025-01-12T20:19:21.800Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ Are you trying to search for something on a document or a web page? You know how
 2. Managing and analyzing the vast number of comments can be difficult for as busy a platform as YouTube.
 
 So, if you want to search YouTube comments quickly, what can you do? We will show you in this blog.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Using the Built-in YouTube Studio Feature to Search Comments
 
@@ -62,8 +66,9 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 You can combine these additional filters to narrow your comments search for YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -75,13 +80,11 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -108,9 +111,6 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -127,11 +127,12 @@ You can see all the comments you have posted in the Comment History in a few qui
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
 If you are a creator on YouTube, the comments section becomes very important. Subscribers comment words of praise, encouragement, and feedback which help you grow. You may want to keep track of your most loyal followers. The best way to know that is by knowing who comments most on your videos.
@@ -154,13 +155,9 @@ YouTube is a global platform to share helpful and entertaining videos. The comme
 Find feedback or questions. Report offensive comments. If you are a regular YouTube user, use our tips and tricks to search comments quickly and grow your channel.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -169,14 +166,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -185,4 +179,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/reaking-the-mold-high-fidelity-sound-without-a-microphone-for-2024/"><u>[New] Breaking the Mold High-Fidelity Sound without a Microphone for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-expert-strategies-for-live-streaming-using-obs/"><u>[New] Expert Strategies for Live Streaming Using OBS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-discover-who-youre-watching-6-quizzes-for-youtube-fans/"><u>[New] In 2024, Discover Who You're Watching 6 Quizzes for YouTube Fans</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/op-10-volume-surge-controllers-for-windowsmacos/"><u>[New] Top 10 Volume Surge Controllers for Windows/MacOS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-deleting-youtube-content-a-step-by-step-guide/"><u>[Updated] 2024 Approved Deleting YouTube Content A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-harness-the-power-of-youtube-video-for-stunning-gif-masterpieces/"><u>[Updated] In 2024, Harness the Power of YouTube Video for Stunning GIF Masterpieces</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-tag-tricks-to-triumph-youtube-gamers-edition/"><u>2024 Approved Tag Tricks to Triumph YouTube Gamers Edition</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/dvd-ripping-and-conversion-guide-for-macos-xpowerpcintel-systems/"><u>DVD Ripping & Conversion Guide for MacOS XPowerPC/Intel Systems</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/flawless-visual-shifts-for-filmmakers/"><u>Flawless Visual Shifts for Filmmakers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/free-methods-for-converting-pdf-files-into-ibook-format/"><u>Free Methods for Converting PDF Files Into iBook Format</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-optimize-your-youtube-shorts-templates-effectively-for-2024/"><u>How to Optimize Your YouTube Shorts Templates Effectively for 2024</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/identifying-common-hardware-issues-a-guide-for-your-pc-insights-from-yl-computing/"><u>Identifying Common Hardware Issues: A Guide for Your PC - Insights From YL Computing</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-childs-play-top-5-fun-flying-toys-reviewed/"><u>In 2024, Child's Play Top 5 Fun Flying Toys Reviewed</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-maximizing-win11-performance-boosters-revealed/"><u>In 2024, Maximizing Win11 Performance Boosters Revealed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-unlocking-more-traffic-the-ultimate-list-of-keyword-tools/"><u>In 2024, Unlocking More Traffic The Ultimate List of Keyword Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ating-the-spotlight-how-to-optimize-content-visibility-on-youtube-for-2024/"><u>Navigating the Spotlight How to Optimize Content Visibility on Youtube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ating-the-world-of-hashtags-youtubes-best-practices-for-2024/"><u>Navigating the World of Hashtags YouTube's Best Practices for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-future-in-your-hands-lgs-vr-gaming-masterpiece/"><u>The Future in Your Hands LG's VR Gaming Masterpiece</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-ranking-web-hosts-of-2024-in-depth-analysis-and-recommendations-techradar/"><u>Top-Ranking Web Hosts of 2024: In-Depth Analysis & Recommendations | TechRadar</u></a></li>
+</ul></div>
 

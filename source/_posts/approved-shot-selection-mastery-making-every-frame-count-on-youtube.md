@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Shot Selection Mastery  Making Every Frame Count on YouTube\""
-date: 2024-08-16T05:20:47.151Z
-updated: 2024-08-17T05:20:47.151Z
+date: 2025-01-09T09:52:42.689Z
+updated: 2025-01-12T23:51:25.154Z
 tags:
   - ai video
   - ai youtube
@@ -27,6 +27,10 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
  We have mentioned before about [the equipment you should have to start your YouTube video shooting](https://tools.techidaily.com/wondershare/filmora/download/), however, being methodical in your approach to the video making process and knowing exactly what and where you are going to stage and record will increase the quality of the content. Focus on the technical aspects of your YouTube video before you actually start shooting and strive to be well prepared for all the challenges a day on the set may bring.
 
  These and other useful tips may help you make better videos for your YouTube channel, so let's explore different ways of improving your video making skills.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 Tips for Shooting Better YouTube Videos
 
@@ -60,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Posting vertically oriented videos to your YouTube channel will make you look unprofessional because portrait mode is never used for capturing videos. YouTubers who record their videos with Smartphones are more likely to fall into this trap, but all you need to do to avoid this is remember to hold the device horizontally.
 
  By switching to portrait mode, you'll be cropping the frame in a way, so you might unknowingly end up removing parts of the shot you wanted to record.
@@ -76,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 8. Keep The Shot in Focus
 
  You can always keep the shot in focus by simply enabling the autofocus feature, but if you do so you won't be able to control where the focus is going to be. Pulling focus manually is an art that takes years to master, and you have to keep practicing it as much as you can in order to become good at it.
@@ -85,6 +97,10 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
 #### 9. Put The Camera on a Tripod
 
 ![Camera tripod ](https://images.wondershare.com/filmora/article-images/cartoni-omega-professional-tripod-system.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The footage you produce should be smooth and free of camera shakes. All video cameras pick up vibrations easily, so even the slightest movement or impact can ruin a shot. Putting the camera on a tripod is one of the best ways to stabilize the shot and avoid camera shaking.
 
@@ -108,20 +124,21 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -130,8 +147,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-capture-life-in-stunning-form-with-iphones-essential-10-composition-guidelines/"><u>[New] Capture Life in Stunning Form with iPhone's Essential 10 Composition Guidelines</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-dissecting-revenue-allocation-for-shortform-content-makers-for-2024/"><u>[New] Dissecting Revenue Allocation for Shortform Content Makers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-find-my-playlist-on-youtube/"><u>[New] In 2024, How to Find My Playlist on YouTube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-mastering-supplementary-video-for-enhanced-storytelling-for-2024/"><u>[New] Mastering Supplementary Video for Enhanced Storytelling for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ptimize-your-watch-habits-the-ultimate-guide-for-constructing-youtube-saved-lists/"><u>[New] Optimize Your Watch Habits The Ultimate Guide for Constructing YouTube Saved Lists</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-olympic-speed-skating-snapshot-the-short-track-edition/"><u>[Updated] 2024 Approved Olympic Speed Skating Snapshot The Short-Track Edition</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-seamless-visual-storytelling-through-advanced-chroma-techniques/"><u>[Updated] 2024 Approved Seamless Visual Storytelling Through Advanced Chroma Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-designing-effective-video-previews-for-channels/"><u>[Updated] Designing Effective Video Previews for Channels</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unlock-the-potential-of-your-facebook-profile-with-covers/"><u>[Updated] In 2024, Unlock the Potential of Your Facebook Profile with Covers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-guide-to-altering-video-speed-in-stories/"><u>[Updated] The Ultimate Guide to Altering Video Speed in Stories</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-optimizing-views-understanding-the-key-rankers-for-youtubers/"><u>2024 Approved Optimizing Views Understanding the Key Rankers for YouTubers</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/best-value-sony-bravia-tvs-for-smart-shoppers-frequent-discounts-and-excellent-features-insights-from-zdnet/"><u>Best Value Sony Bravia TVs for Smart Shoppers: Frequent Discounts & Excellent Features | Insights From ZDNET</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/good-to-great-videos-the-20-essential-shortcuts-for-success/"><u>From Good to Great Videos The 20 Essential Shortcuts for Success</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-vivo-v27-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/level-cinema-selection-youtube-edition-for-2024/"><u>Next-Level Cinema Selection - YouTube Edition for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->

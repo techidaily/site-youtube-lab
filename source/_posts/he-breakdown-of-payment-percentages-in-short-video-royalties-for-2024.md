@@ -1,7 +1,7 @@
 ---
 title: "[New] The Breakdown of Payment Percentages in Short Video Royalties for 2024"
-date: 2024-12-31T21:07:39.652Z
-updated: 2025-01-06T18:35:10.865Z
+date: 2025-01-11T09:35:57.585Z
+updated: 2025-01-12T23:18:55.118Z
 tags:
   - ai video
   - ai youtube
@@ -47,12 +47,16 @@ The ad revenue-sharing model on YouTube Shorts may seem complex, but let’s bre
 So, is YouTube shorts monetized? Yes, the ads-sharing model defines the amount of money a creator can earn from Shorts every month. Depending on the number of views generated, high-performing Shorts can bring in a huge amount of money.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 2\. YouTube Shorts Monetization: Eligibility Criteria and Earnings Potential**
 
 YouTube Shorts provides creators with an exceptional way of making extra income. Let’s have a look at what it takes and what the numbers say:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Eligibility** **Criteria**
 
@@ -74,10 +78,6 @@ This means that your YouTube channel must have gained some traction before monet
 * Have an active AdSense account
 * Have 2-step verification turned on for your Google account
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **How Much Can You Earn With Shorts**
 
 YouTube Shorts have the potential to make a huge amount of money for creators. In fact, YouTube monetize Shorts in a quite generous way. Here are a few examples to give you an idea of the numbers:
@@ -88,22 +88,22 @@ YouTube Shorts have the potential to make a huge amount of money for creators. I
 * [Hassan Khadair](https://www.youtube.com/@HassanKhadair) (2.1 million subscribers) – Earned $872.14 from 22 million Shorts views
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 3\. How to Start Earning from YouTube Shorts**
 
 Eligible creators start earning from YouTube Shorts when they opt-in to the program. You need to make sure you are eligible and agree to start receiving revenue from your creations.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Are You Eligible for YouTube Shorts Earnings?**
 
 Shorts creators growing their channel and are yet to meet the minimum requirements can track their eligibility status by selecting “Notify me when I’m eligible” in YouTube Studio’s Earn section.
 
 ![youtube shorts monetization eligibility](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-3.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 When you become eligible, follow these steps to apply for the YPP program:
 
@@ -138,7 +138,7 @@ The YPP program is the only ad-based monetization option for YouTube Shorts. How
 * **Join an Affiliate Program**: An affiliate program will pay you revenue associated with clicks to links hosted on your channel.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 4\.** [**Edit Your YouTube Videos to Shorts with Wondershare Filmora**](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -151,6 +151,10 @@ To earn more from your YouTube Shorts, you need quality content that keeps your 
 
 Editing your videos with Filmora is quite straightforward. One of the features that work well for YouTube shorts is the Auto Reframe.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### [**Auto Reframe**](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The Auto Reframe feature allows creators to resize videos automatically with no editing skills needed. This is a great tool for converting your horizontal YouTube videos to Shorts format. It also boosts your potential audience while saving you precious time and effort you would have used editing. To use this feature, choose any of the following options:
@@ -160,10 +164,6 @@ The Auto Reframe feature allows creators to resize videos automatically with no 
 After opening Filmora, head over to the main interface. You will find the Auto Reframe option on the right side. Click on it to open the reframing feature.
 
 ![auto reframe 1](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-4.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### **2\. Launch Directly from the Video**
 
@@ -177,15 +177,15 @@ You may also use the Auto Reframe feature by clicking on the Tools feature on th
 
 ![auto reframe 3](https://images.wondershare.com/filmora/article-images/2023/youtube-shorts-revenue-sharing-explained-how-much-will-i-make-6.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Other Filmora Features for Editing Shorts**
 
 * [**Split Screen Video Editor**](https://tools.techidaily.com/wondershare/filmora/download/) **–** A choice of pre-made templates to create split-screen videos instantly.
 * [**Add Text to Video**](https://tools.techidaily.com/wondershare/filmora/download/) **–** Directly add texts to your videos, including subtitles and captions.
 * [**Text To Speech**](https://tools.techidaily.com/wondershare/filmora/download/) **–** Instantly convert your text files to voice and introduce more elements that will enrich your Shorts video.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Conclusion**
 
@@ -210,21 +210,18 @@ YouTube Short’s revenue-sharing programs offer a great opportunity for creator
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-achieve-full-screen-display-in-social-media-videos/"><u>[New] 2024 Approved Achieve Full-Screen Display in Social Media Videos</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-achieving-flawless-hues-in-gopro-videos/"><u>[New] Achieving Flawless Hues in GoPro Videos</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-how-to-speed-up-tiktok-videos-simple-guide/"><u>[New] How to Speed Up TikTok Videos? [Simple Guide]</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/treamline-your-audio-preferences-moving-spotify-playlists-to-youtube-music-for-2024/"><u>[New] Streamline Your Audio Preferences Moving Spotify Playlists to YouTube Music for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ransforming-your-footage-into-shareable-youtube-stories/"><u>[New] Transforming Your Footage Into Shareable YouTube Stories</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/urning-views-into-vouchers-youtube-marketing-for-2024/"><u>[New] Turning Views Into Vouchers YouTube Marketing for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nveiling-youtubes-behind-the-scenes-editor-space/"><u>[New] Unveiling YouTube's Behind-the-Scenes Editor Space</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-science-spheres-pinnacle-channels-top-15-yt-lists/"><u>[Updated] 2024 Approved Science Sphere's Pinnacle Channels Top 15 YT Lists</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-androids-screen-shutter-select-the-best-eight-free-tools/"><u>2024 Approved Android's Screen Shutter - Select the Best Eight Free Tools</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Motorola Edge+ (2023) | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/how-to-make-thumbnails-for-2024/"><u>How to Make Thumbnails for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-essential-tips-for-producing-high-quality-youtube-videos/"><u>In 2024, Essential Tips for Producing High-Quality YouTube Videos</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Xiaomi 13 Ultra | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-itel-p55plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Itel P55+ | Dr.fone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/ultimate-guide-reducing-size-of-mp4-videos-across-all-devices-and-web-services/"><u>Ultimate Guide: Reducing Size of MP4 Videos Across All Devices & Web Services</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/standing-the-impact-of-youtubes-creative-commons-on-videos-for-2024/"><u>Understanding the Impact of YouTube's Creative Commons on Videos for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tart-streaming-sports-creating-your-own-mac-based-channel-for-2024/"><u>[New] Start Streaming Sports Creating Your Own Mac-Based Channel for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-effortless-sound-sourcing-the-top-15-freebie-audiosites/"><u>[Updated] In 2024, Effortless Sound Sourcing The Top 15 Freebie Audiosites</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-innovative-youtube-channel-titles-the-key-to-successful-blogging-and-filmmaking-no-more-than-156-characters/"><u>[Updated] Innovative YouTube Channel Titles The Key to Successful Blogging & Filmmaking (No More than 156 Characters)</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-navigating-the-roadmap-to-financial-growth-through-video-ads-on-youtube-for-2024/"><u>[Updated] Navigating the Roadmap to Financial Growth Through Video Ads on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-stealthy-search-strategies-for-elusive-youtube-videos/"><u>[Updated] Stealthy Search Strategies for Elusive YouTube Videos</u></a></li>
+<li><a href="https://change-location.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Xiaomi Redmi A2 | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/essential-metaverse-laughs-a-guide-to-personal-memes/"><u>Essential Metaverse Laughs A Guide to Personal Memes</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-oppo-a79-5g-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Oppo A79 5G to Roku | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Vivo S17t? | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/step-into-the-world-of-film-making-effective-use-of-movie-maker-on-windows-8-pcs/"><u>Step Into the World of Film Making Effective Use of Movie Maker on Windows 8 PCs</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-oppo-find-x6-pro-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Oppo Find X6 Pro to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-xiaomi-redmi-note-12r-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-premiere-pro-slow-playback-issues-finding-the-best-solutions-for-2024/"><u>Updated Premiere Pro Slow Playback Issues Finding The Best Solutions for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Snap Into Position  Handhran Balancing Tricks for 2024\""
-date: 2024-08-16T05:16:32.709Z
-updated: 2024-08-17T05:16:32.709Z
+date: 2025-01-11T05:01:16.212Z
+updated: 2025-01-13T03:47:36.536Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ thumbnail: https://thmb.techidaily.com/0c231e30e1cde65144bf91e6e96a309bb581e79a5
 
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
@@ -36,9 +40,6 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -52,8 +53,9 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
@@ -65,12 +67,9 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -89,8 +88,9 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -98,8 +98,9 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -123,9 +124,6 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -133,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,4 +144,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-command-and-conquer-the-pinnacle-of-strategic-sagas-in-7-total-war-games/"><u>[New] Command & Conquer The Pinnacle of Strategic Sagas in 7 Total War Games</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/dentifying-the-top-12-easiest-to-use-flip-screen-cams-for-2024/"><u>[New] Identifying the Top 12 Easiest to Use Flip Screen Cams for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-smart-way-to-combine-igtv-with-stories/"><u>[New] The Smart Way to Combine IGTV with Stories</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-giggles-galaxy-a-guide-to-hilarious-youtube-stars/"><u>[Updated] 2024 Approved Giggles Galaxy A Guide to Hilarious YouTube Stars</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-the-ultimate-ios-guide-to-superior-psp-emulators/"><u>[Updated] 2024 Approved The Ultimate iOS Guide to Superior PSP Emulators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-blur-the-borders-enhancing-your-videos-appeal-on-yt/"><u>[Updated] Blur the Borders Enhancing Your Video's Appeal on YT</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-capturing-life-on-camera-mastering-the-art-of-vlogging-for-2024/"><u>[Updated] Capturing Life on Camera Mastering the Art of Vlogging for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-cutting-edge-royalty-free-music-platforms-for-content-makers/"><u>[Updated] In 2024, Cutting-Edge Royalty-Free Music Platforms for Content Makers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unmissable-vr-immersive-storytelling/"><u>[Updated] Unmissable VR Immersive Storytelling</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-video-ranking-breakdown-how-it-works-for-2024/"><u>[Updated] YouTube Video Ranking Breakdown How It Works for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/asure-trove-of-9-complete-holiday-flicks-free-streaming/"><u>A Treasure Trove of 9 Complete Holiday Flicks, Free Streaming</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723208531459-alpha-blending-unsupported-by-your-graphics-card-heres-how-to-fix-it/"><u>Alpha Blending Unsupported by Your Graphics Card? Here's How to Fix It</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/te-your-content-with-effective-video-seo-for-2024/"><u>Elevate Your Content with Effective Video SEO for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/laserjet-1102w-firmware-download-and-install-guide/"><u>LaserJet 1102W Firmware - Download & Install Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/aging-youtubes-tagging-system-for-enhanced-visibility/"><u>Leveraging YouTube's Tagging System for Enhanced Visibility</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877269-9781612833156-out-of-body-experiences/"><u>Out of Body Experiences | Free Book</u></a></li>
+<li><a href="https://some-skills.techidaily.com/transform-your-beats-with-free-dji-luts-for-minis-and-air-devices-for-2024/"><u>Transform Your Beats with Free DJI LUTs for Minis & Air Devices for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/standing-and-optimizing-your-contents-spotlight-placement/"><u>Understanding and Optimizing Your Content's Spotlight Placement</u></a></li>
+<li><a href="https://win11.techidaily.com/1719239311887-unlock-the-future-at-an-irresistible-price-best-windows-11-deal-612lifetime-key-lovers-delight/"><u>Unlock the Future at an Irresistible Price – Best Windows 11 Deal, $6.12/Lifetime, Key Lovers' Delight</u></a></li>
+</ul></div>
 
