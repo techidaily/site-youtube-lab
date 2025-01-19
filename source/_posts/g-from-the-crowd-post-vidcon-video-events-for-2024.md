@@ -1,7 +1,7 @@
 ---
 title: "\"Rising From the Crowd  Post-VidCon Video Events for 2024\""
-date: 2025-01-12T13:01:48.207Z
-updated: 2025-01-13T07:26:33.371Z
+date: 2025-01-16T17:22:36.489Z
+updated: 2025-01-19T16:42:07.216Z
 tags:
   - ai video
   - ai youtube
@@ -37,7 +37,7 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 7. [Summer in the City (UK)](#sitc)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **The Most Important YouTube Events**
@@ -57,7 +57,7 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
@@ -87,6 +87,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -122,10 +126,6 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -150,10 +150,6 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
 #### 5. **[RTX](https://www.rtxaustin.com/)**
@@ -167,7 +163,7 @@ Sydney, Australia: February
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
@@ -207,6 +203,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 **London, UK:** August
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
@@ -253,22 +253,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-building-a-powerful-twitter-marketing-strategy/"><u>[New] 2024 Approved Building a Powerful Twitter Marketing Strategy</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-innovative-approaches-to-change-song-speed-on-spotify/"><u>[New] Innovative Approaches to Change Song Speed on Spotify</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-11-best-free-youtube-name-generators-you-should-try/"><u>[Updated] 2024 Approved 11 Best Free YouTube Name Generators You Should Try</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-guidelines-for-optimal-youtube-video-brightness-for-2024/"><u>[Updated] Guidelines for Optimal YouTube Video Brightness for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-cutting-edge-computing-select-the-optimal-device-for-video-editing/"><u>[Updated] In 2024, Cutting Edge Computing Select the Optimal Device for Video Editing</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-leverage-video-platforms-with-targeted-sharing-techniques/"><u>[Updated] Leverage Video Platforms with Targeted Sharing Techniques</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-split-screen-audio-logging-for-2024/"><u>[Updated] Split Screen Audio Logging for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-best-practices-in-choosing-the-perfect-format-for-youtube-videos/"><u>2024 Approved Best Practices in Choosing the Perfect Format for YouTube Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-broadview-networks-navigating-mcn-choices/"><u>2024 Approved Broadview Networks Navigating MCN Choices</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-discovering-whos-watching-your-videos/"><u>2024 Approved Discovering Who's Watching Your Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-fresh-concepts-for-youtube-channels-inspiration-at-its-peak/"><u>2024 Approved Fresh Concepts for YouTube Channels Inspiration at Its Peak</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/5-solutions-for-samsung-galaxy-s23-tactical-edition-unlock-without-password-by-drfone-android/"><u>5 Solutions For Samsung Galaxy S23 Tactical Edition Unlock Without Password</u></a></li>
-<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-honor-magic-6-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Honor Magic 6</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/enhancing-listener-experience-with-new-apple-podcasts-auto-transcribing-feature-tech-news-by-zdnet/"><u>Enhancing Listener Experience with New Apple Podcasts' Auto-Transcribing Feature | Tech News by ZDNet</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/meet-geekoms-game-changer-the-mini-pc-ax8-equipped-with-next-gen-intel-and-cutting-edge-ryzen-processors/"><u>Meet GeekOm's Game-Changer: The Mini PC AX8 Equipped with Next-Gen Intel and Cutting-Edge Ryzen Processors</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/the-essence-of-youtubes-new-shorts-investment-scheme/"><u>The Essence of YouTube's New Shorts Investment Scheme</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ng-views-into-vouchers-youtube-marketing-for-2024/"><u>Turning Views Into Vouchers YouTube Marketing for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-amplify-your-video-reach-with-these-key-seo-insights-1-11/"><u>[New] 2024 Approved Amplify Your Video Reach with These Key SEO Insights (1-11)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-perfecting-your-reel-integrating-music-on-instagram/"><u>[New] 2024 Approved Perfecting Your Reel Integrating Music on Instagram</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/iscover-websites-your-gateway-to-youtube-branded-content-for-2024/"><u>[New] Discover Websites Your Gateway to YouTube Branded Content for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-demystifying-the-world-of-youtube-and-its-keywords/"><u>[Updated] 2024 Approved Demystifying the World of YouTube and Its Keywords</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-asmr-content-deep-dive-101/"><u>[Updated] ASMR Content Deep Dive 101</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-from-passive-viewers-to-earnings-youtubes-monetization-mastery-for-2024/"><u>[Updated] From Passive Viewers to Earnings YouTube's Monetization Mastery for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-gif-editor-how-to-make-animated-gif-images-online-from-youtube-video/"><u>2024 Approved GIF Editor How to Make Animated GIF Images Online From YouTube Video</u></a></li>
+<li><a href="https://win11.techidaily.com/bypassing-the-mandatory-component-fault-windows-1011/"><u>Bypassing the Mandatory Component Fault Windows 10/11</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-gionee-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On Gionee</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-detailed-guide-on-removing-apple-iphone-6s-plus-activation-lock-without-previous-owner-by-drfone-ios/"><u>In 2024, Detailed Guide on Removing Apple iPhone 6s Plus Activation Lock without Previous Owner?</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-iphone-is-disabled-here-is-the-way-to-unlock-disabled-apple-iphone-6-plus-drfone-by-drfone-ios/"><u>In 2024, iPhone Is Disabled? Here Is The Way To Unlock Disabled Apple iPhone 6 Plus | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-apples-most-affordable-yet-innovative-102-inch-8th-gen-ipad-a-revolutionary-device/"><u>The Ultimate Guide to Apple’s Most Affordable Yet Innovative 10.2-Inch 8Th Gen iPad - A Revolutionary Device</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-ultimate-list-of-engaging-history-content-on-youtube/"><u>The Ultimate List of Engaging History Content on YouTube</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Motorola Edge 2023 | Dr.fone</u></a></li>
 </ul></div>
 

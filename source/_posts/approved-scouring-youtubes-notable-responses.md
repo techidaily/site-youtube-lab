@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Scouring YouTube's Notable Responses\""
-date: 2025-01-07T23:56:34.872Z
-updated: 2025-01-13T08:01:39.365Z
+date: 2025-01-13T16:15:02.363Z
+updated: 2025-01-19T17:47:16.270Z
 tags:
   - ai video
   - ai youtube
@@ -42,10 +42,6 @@ If you own a YouTube channel or are starting one, even you can do this. Without 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What Does The Highlighted Comment Mean On YouTube?
 
 Before you get on with highlighting your comments, you must understand what it means exactly. You may follow comments on the videos posted by several YouTubers, but the highlighted ones are always making it to the top of the list.
@@ -63,10 +59,6 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
@@ -78,7 +70,11 @@ YouTube labels comment replies as well and call it "Highlighted Reply." You can 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
@@ -99,6 +95,10 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5: How to Reply to Highlighted Comments?
 
 Replying to "highlighted comments" on your YouTube channel is pretty easy since this feature was developed, keeping the user's convenience in mind. If you want to follow up or reply to such comments, you can do so from your email or YouTube Dashboard.
@@ -108,7 +108,7 @@ If you click the notification bell icon, whenever a viewer drops a new comment o
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 6: How to Remove Highlighted Comments?
@@ -156,7 +156,7 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -180,17 +180,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-devices-to-device-guide-for-google-meet-participation/"><u>[New] 2024 Approved Devices to Device Guide for Google Meet Participation</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-unveiling-youtubes-mechanism-post-upload/"><u>[New] In 2024, Unveiling YouTube's Mechanism Post-Upload</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-youtube-thumbnails-top-20-fonts-for-stellar-credits/"><u>[New] In 2024, YouTube Thumbnails - Top 20 Fonts for Stellar Credits</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-achieving-excellence-in-work-and-online-content-for-2024/"><u>[Updated] Achieving Excellence in Work and Online Content for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-perfect-cuts-on-demand-top-10-apps-for-youtube-short-edits/"><u>[Updated] Perfect Cuts on Demand Top 10 Apps for Youtube Short Edits</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-smart-choices-8-best-convertors-from-sub-to-srt-format/"><u>[Updated] Smart Choices 8 Best Convertors From Sub to SRT Format</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-visual-storytelling-excellence-editing-numbers-on-tiktok-platforms-for-2024/"><u>[Updated] Visual Storytelling Excellence Editing Numbers on TikTok Platforms for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/1-boosting-eco-friendly-fintech-innovation-in-singapore-through-collaborative-google-cloud-alliance-insights-from-technews/"><u>1. Boosting Eco-Friendly Fintech Innovation in Singapore Through Collaborative Google Cloud Alliance - Insights From TechNews</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-how-to-use-adsense-for-youtube/"><u>2024 Approved How to Use AdSense for YouTube</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-disabling-iphone-xr-parental-restrictions-withwithout-password-by-drfone-ios/"><u>In 2024, Disabling iPhone XR Parental Restrictions With/Without Password</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-oneplus-11r-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on OnePlus 11R Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-icloud-separation-how-to-disconnect-apple-iphone-6s-plus-and-ipad-by-drfone-ios/"><u>In 2024, iCloud Separation How To Disconnect Apple iPhone 6s Plus and iPad</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-exploring-high-frame-rate-filming-with-yi/"><u>[New] Exploring High Frame Rate Filming with YI</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-the-art-of-uplifting-daily-existence-videos-for-2024/"><u>[New] Mastering the Art of Uplifting Daily Existence Videos for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-understanding-the-upside-to-asmrs-sensory-experience/"><u>[New] Understanding the Upside to ASMR's Sensory Experience</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-flair-in-your-makeup-routine-top-tutorial-insights/"><u>[Updated] 2024 Approved Flair in Your Makeup Routine Top Tutorial Insights</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-increasing-video-popularity-persisting-with-cc-on-youtube/"><u>[Updated] In 2024, Increasing Video Popularity Persisting with CC on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-inalterable-action-plan-to-expunge-youtube-shorts-for-2024/"><u>[Updated] Inalterable Action Plan to Expunge YouTube Shorts for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-monetary-milestones-a-look-at-pewdiepies-yearly-income/"><u>[Updated] Monetary Milestones A Look at PewDiePie's Yearly Income</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-crafting-collabs-for-youtube-channel-expansion/"><u>2024 Approved Crafting Collabs for YouTube Channel Expansion</u></a></li>
+<li><a href="https://review-topics.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-honor-magic-v2-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Honor Magic V2 in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/e-audiences-on-all-sides-live-360-degree-video-broadcasting-for-youtube-for-2024/"><u>Engage Audiences on All Sides Live 360-Degree Video Broadcasting for YouTube for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/exploring-the-technology-that-powers-electric-motorbikes/"><u>Exploring the Technology That Powers Electric Motorbikes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-execute-flawless-wirecast-broadcasts-on-youtube/"><u>How to Execute Flawless WireCast Broadcasts on YouTube</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-innovative-techniques-for-ppts-and-webcams-2023-edition/"><u>In 2024, Innovative Techniques for PPTs and Webcams, 2023 Edition</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-methods-to-transfer-from-apple-iphone-se-2022-to-android-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Methods to Transfer from Apple iPhone SE (2022) to Android | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/insider-wisdom-how-to-effortlessly-upload-photosvideos-in-win11/"><u>Insider Wisdom How to Effortlessly Upload Photos/Videos in Win11</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/r-crafters-fusing-visual-and-acoustic-art-for-2024/"><u>Master Crafters Fusing Visual & Acoustic Art for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/unveiling-top-8-collaborative-video-collage-android-apps-freepremium-for-2024/"><u>Unveiling Top 8 Collaborative Video Collage Android Apps (Free/Premium) for 2024</u></a></li>
 </ul></div>
 
