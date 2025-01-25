@@ -1,7 +1,7 @@
 ---
 title: "The Hidden Costs of YouTube Earning"
-date: 2024-08-08T14:42:35.178Z
-updated: 2024-08-09T14:42:35.178Z
+date: 2025-01-21T01:06:29.468Z
+updated: 2025-01-25T10:36:15.810Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/e6c7c0aea059b2b9594111c92d9d243c60708ba73
 
 # YouTube Monetization: The New Rules Everyone Hates
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -39,6 +36,10 @@ YouTube changed its monetization policy and, once again, there are new monetizat
 6. [Helpful Blog Posts](#posts)
 7. [Don't Give Up!](#dontquit)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The New Monetization Rules
 
 In order to qualify for YouTube monetization, you must meet these milestones.
@@ -51,16 +52,13 @@ In order to qualify for YouTube monetization, you must meet these milestones.
  _Trying to get monetization on YouTube can feel like this._
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Why YouTube Changed the Monetization Rules
 
 YouTube’s reasoning for these changes is essentially the same as they gave for the 10,000 views milestone: having higher standards will help them prevent inappropriate or stolen content from being monetized. They also point out that the majority of channels affected will not have been making any significant money anyways (less than $2.50 per month, in most cases).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How Do the Changes Affect Small YouTube Channels
 
 However, even if the immediate financial impact won’t be that financially significant, it is untrue to say these new rules will not affect YouTubers with smaller channels. Having to plan to achieve and maintain those 4,000 hours of watch time and 1,000 subs could have a major impact on how creators plan their content. Will you feel pressured to abandon content that you and your existing viewers love in favor of making videos that will get you to those milestones faster?
@@ -69,9 +67,6 @@ However, even if the immediate financial impact won’t be that financially sign
 
 These new rules could also put niche channels at a disadvantage. Niche channels may have devoted followers who keep their watch time up, but getting to 1,000 subscribers could be harder for them purely because their potential audience is already smaller.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Join The Conversation
 
 There have been b reactions to this news in our forums here on filmora.io, the majority of them negative. Although the perspective that these kinds of measures are necessary as YouTube becomes more and more crowded has also been represented, the majority of people who have weighed in find these changes unreasonable. If you haven't yet, make sure to head over to the forums and [join the conversation](https://www.filmora.io/forum/).
@@ -83,17 +78,9 @@ Cough. Logan Paul. Cough.
 ####  
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tips for Increasing YouTube Watch Time
 
 1. Sorting your videos into playlists encourages viewers to spend a lot more time on your channel.
@@ -108,17 +95,21 @@ Cough. Logan Paul. Cough.
 
 [How to Edit a YouTube Video and Get More Subscribers](https://www.filmora.io/community-blog/how-to-edit-a-youtube-video-and-get-more-subscribers-281.html)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Don't Give Up
 
 I risk sounding cheesy here, but I hope nobody gives up on their dreams as creators over something like this. Wanting to be paid for doing what you love is only natural, and you can still get there (YouTube monetization isn't even the only way). There may even be better opportunities to generate revenue when you do. In the long run, this could be a good thing for YouTube. Nobody can really know yet.
 
 How do you get subscribers, or increase your watch time? If you have any tips, share them with everyone! Also, make sure to let us know if there are any blog topics that might help you out with YouTube's new monetization rules.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -126,14 +117,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,4 +130,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-dominate-the-digital-space-youtube-leadership/"><u>[New] In 2024, Dominate the Digital Space YouTube Leadership</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-exclusive-list-the-premier-gb-emulators-android/"><u>[New] In 2024, Exclusive List The Premier GB Emulators, Android</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-pioneering-medical-messaging-in-digital-advertising/"><u>[New] In 2024, Pioneering Medical Messaging in Digital Advertising</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-sustainable-screen-tech-best-picks-reviewed/"><u>[New] In 2024, Sustainable Screen Tech Best Picks Reviewed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/tructuring-engaging-online-vignettes-for-2024/"><u>[New] Structuring Engaging Online Vignettes for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-5-methods-to-record-high-quality-audio-on-windows/"><u>[New] Top 5 Methods to Record High-Quality Audio on Windows</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-best-10-youtube-volume-boosters-for-windows-macos-android-and-iphone/"><u>[Updated] 2024 Approved Best 10 YouTube Volume Boosters for Windows, MacOS, Android and iPhone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-comic-capers-top-10-hilarious-youtube-short-film-ideas/"><u>[Updated] Comic Capers Top 10 Hilarious YouTube Short Film Ideas</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-adding-videos-to-written-work-a-budget-friendly-way/"><u>[Updated] In 2024, Adding Videos to Written Work A Budget-Friendly Way</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-methodology-to-purging-your-youtube-watch-later-playlist-for-2024/"><u>[Updated] Methodology to Purging Your YouTube Watch Later Playlist for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-high-definition-gameplay-capture-mastery/"><u>2024 Approved High-Definition Gameplay Capture Mastery</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-ultimate-checklist-to-successful-video-marketing-with-tags/"><u>2024 Approved The Ultimate Checklist to Successful Video Marketing with Tags</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/onversion-for-content-creators-top-10-youtubes-alternatives-unveiled/"><u>Flv Conversion for Content Creators Top 10 YouTubes Alternatives Unveiled</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/get-a-faster-pc-with-these-expert-tricks-to-speed-up-windows-11/"><u>Get a Faster PC with These Expert Tricks to Speed Up Windows 11</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-crafting-sequences-a-movie-maker-approach-to-animation/"><u>In 2024, Crafting Sequences A Movie Maker Approach to Animation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-youtube-versus-dailymention-identifying-key-gaps/"><u>In 2024, YouTube Versus DailyMention Identifying Key Gaps</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/secure-your-digital-footprint-essential-data-purging-techniques-revealed/"><u>Secure Your Digital Footprint: Essential Data Purging Techniques Revealed</u></a></li>
+</ul></div>
 

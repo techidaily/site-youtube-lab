@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Key Lights and Soft Shadows for Vloggers\""
-date: 2024-08-08T14:39:51.836Z
-updated: 2024-08-09T14:39:51.836Z
+date: 2025-01-23T07:24:36.942Z
+updated: 2025-01-25T13:31:22.406Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/e3a22512763a41f8aa30352bd2ecc133cddafc4e3
 
 # Lighting Tips for Vlogging: How to Light
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -32,11 +29,16 @@ One of the best things you can do for your video quality is to ensure you have g
 Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -51,15 +53,11 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -86,23 +84,24 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -111,14 +110,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +123,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-assemble-a-personalized-youtube-music-list/"><u>[New] 2024 Approved How to Assemble a Personalized YouTube Music List</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-easysnap-win11-no-hassle-just-screenshots/"><u>[New] EasySnap Win11 No Hassle, Just Screenshots</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xclusive-access-to-6-premium-thumbnail-generators-for-youtube/"><u>[New] Exclusive Access to 6 Premium Thumbnail Generators for YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-gateways-to-googles-advertising-on-youtube-platforms/"><u>[New] In 2024, Gateways to Google's Advertising on YouTube Platforms</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-podcast-pioneers-effortless-livestream-tips-for-2024/"><u>[New] Podcast Pioneers Effortless Livestream Tips for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/pgrade-your-videography-with-the-top-10-flv-to-youtube-devices-for-2024/"><u>[New] Upgrade Your Videography with the Top 10 Flv-to-YouTube Devices for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-azure-speech-to-text-a-quick-overview-for-developers/"><u>[Updated] Azure Speech-to-Text A Quick Overview for Developers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-the-definitive-steps-to-record-your-favorite-hulu-episodes-for-2024/"><u>[Updated] The Definitive Steps to Record Your Favorite Hulu Episodes for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/app-wont-open-on-your-honor-100-here-are-all-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>App Wont Open on Your Honor 100? Here Are All Fixes | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/banish-your-game-woes-a-guide-to-overcoming-fortnite-unable-to-join-a-party-issue-error-84/"><u>Banish Your Game Woes! A Guide to Overcoming Fortnite 'Unable to Join a Party' Issue (Error 84)</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/izing-video-impact-selecting-the-best-rank-trackers-for-youtubers-for-2024/"><u>Maximizing Video Impact Selecting the Best Rank Trackers for YouTubers for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/nokia-c300-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Nokia C300 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-car-locator-apps-for-vivo-v29e-drfone-by-drfone-virtual-android/"><u>Top 5 Car Locator Apps for Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/secret-to-popularity-choosing-best-thumbnail-fonts/"><u>Your Secret to Popularity Choosing Best Thumbnail Fonts</u></a></li>
+</ul></div>
 

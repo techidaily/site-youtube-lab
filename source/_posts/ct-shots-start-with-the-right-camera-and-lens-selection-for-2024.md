@@ -1,7 +1,7 @@
 ---
 title: "Perfect Shots Start With The Right Camera & Lens Selection for 2024"
-date: 2024-08-08T14:38:17.545Z
-updated: 2024-08-09T14:38:17.545Z
+date: 2025-01-21T10:06:06.709Z
+updated: 2025-01-25T01:28:11.078Z
 tags:
   - ai video
   - ai youtube
@@ -40,9 +40,6 @@ In this article, I’m going to help you figure that out.
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -60,8 +57,9 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -88,16 +86,14 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -117,9 +113,17 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -127,9 +131,6 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 
 But do you even need a fast lens?
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -156,10 +157,11 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -167,14 +169,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -183,4 +182,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-aesthetic-ambitions-launching-a-youtube-channel-for-makeup-maven/"><u>[New] 2024 Approved Aesthetic Ambitions Launching a YouTube Channel for Makeup Maven</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ffortless-entrepreneurship-top-10-easy-to-create-biz-channels-on-youtotube-for-2024/"><u>[New] Effortless Entrepreneurship Top 10 Easy-to-Create Biz Channels on YouToTube for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-ultimate-hash-tag-guide-for-gamers-youtube-channels/"><u>[New] In 2024, The Ultimate Hash Tag Guide for Gamers' YouTube Channels</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/outube-to-mp3-simple-recording-steps-for-2024/"><u>[New] YouTube to MP3 Simple Recording Steps for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-ignite-the-flames-strategies-for-growing-your-youtube-audience/"><u>[Updated] Ignite the Flames Strategies for Growing Your YouTube Audience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-unleashing-youtube-potential-with-effective-seo-methods-1-11/"><u>[Updated] Unleashing YouTube Potential with Effective SEO Methods (1-11)</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-leading-11-audio-recording-tools-guide/"><u>2024 Approved Leading 11 Audio Recording Tools Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/beware-iphone-and-ipad-bricking-incidents-linked-to-ios-18-upgrade-stay-informed-before-installation/"><u>Beware! IPhone and iPad Bricking Incidents Linked to iOS 18 Upgrade | Stay Informed Before Installation</u></a></li>
+<li><a href="https://win-able.techidaily.com/freezing-glitches-on-cod-vanguard-effective-solutions-and-tips-for-seamless-play/"><u>Freezing Glitches on COD: Vanguard – Effective Solutions and Tips for Seamless Play</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/increase-your-savings-with-a-huge-80-off-the-elegoo-neptune-plus-ideal-for-big-prints/"><u>Increase Your Savings with a Huge $80 Off the Elegoo Neptune Plus – Ideal for Big Prints</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-elite-selection-of-10-websites-offering-free-photos/"><u>The Elite Selection of 10 Websites Offering FREE Photos</u></a></li>
+</ul></div>
 

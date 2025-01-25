@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Words in Motion  A Guide to Lively Animation Methods\""
-date: 2024-08-08T14:38:27.985Z
-updated: 2024-08-09T14:38:27.985Z
+date: 2025-01-20T08:52:03.234Z
+updated: 2025-01-25T14:24:16.475Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/e6de0968842567a94bab861fcb9034374ea99c16c
  Mar 27, 2024• Proven solutions
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
@@ -56,13 +60,14 @@ You can customize the default effect by double-clicking the shake filter in the 
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
@@ -71,20 +76,8 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Method 2: Generate Animated Bouncing Texts Online
 
 If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
@@ -95,10 +88,11 @@ Some most trusted websites to generate **bounce text** are listed below:
 
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -124,10 +118,11 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 **Step 2: Customize the Text and Choose Animation Effect**
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
@@ -141,10 +136,11 @@ Click your preferred option from next to the **Download As** section to download
 
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -152,14 +148,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -168,4 +161,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-gopro-hero5-session-vs-hero-session/"><u>[New] 2024 Approved GoPro Hero5 Session Vs Hero Session</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-quick-steps-to-validate-your-youtube-login/"><u>[New] 2024 Approved Quick Steps to Validate Your YouTube Login</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-the-artistic-science-behind-youtube-live-imagery/"><u>[New] 2024 Approved The Artistic Science Behind YouTube Live Imagery</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-character-voiceovers-and-personas-for-dynamic-tiktok-content-for-2024/"><u>[New] Character Voiceovers and Personas for Dynamic TikTok Content for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-enhancing-mobile-broadcasting-via-obs-strategies/"><u>[New] In 2024, Enhancing Mobile Broadcasting via OBS Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-syncing-your-youtube-watchlist-with-instagram-feed/"><u>[Updated] 2024 Approved Syncing Your YouTube Watchlist with Instagram Feed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-add-text-to-youtube-video-before-or-after-uploading-for-2024/"><u>[Updated] How to Add Text to YouTube Video Before or After Uploading for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-exploring-income-derived-from-each-watch-on-video-platforms/"><u>[Updated] In 2024, Exploring Income Derived From Each Watch on Video Platforms</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-master-your-youtube-experience-with-premium-subscription-for-2024/"><u>[Updated] Master Your YouTube Experience with Premium Subscription for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mastering-youtube-video-free-transcription-techniques-for-2024/"><u>[Updated] Mastering YouTube Video Free Transcription Techniques for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-step-into-the-world-of-youtube-transcription-a-comprehensive-no-fee-guide/"><u>2024 Approved Step Into the World of YouTube Transcription A Comprehensive No-Fee Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-boredom-learn-to-shuffle-youtube-lists/"><u>Avoid Boredom Learn to Shuffle YouTube Lists</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ver-the-ultimate-blend-of-mind-body-and-spirit-in-yoga/"><u>Discover the Ultimate Blend of Mind, Body, and Spirit in Yoga</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-prime-fb-videos-deciding-on-the-best-ten/"><u>In 2024, Prime FB Videos Deciding on the Best Ten</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-step-by-step-guide-to-recording-on-your-macbook/"><u>In 2024, Step-By-Step Guide to Recording on Your MacBook</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-the-ipogo-get-you-banned-and-how-to-solve-it-on-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>In 2024, Will the iPogo Get You Banned and How to Solve It On Samsung Galaxy Z Fold 5 | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On OnePlus Nord 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/stop-unknown-numbers-from-ringing-guide-to-disabling-no-caller-id-on-ios-devices/"><u>Stop Unknown Numbers From Ringing: Guide to Disabling 'No Caller ID' On iOS Devices</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-call-history-from-samsung-by-fonelab-android-recover-call-logs/"><u>The way to get back lost call history from Samsung</u></a></li>
+</ul></div>
 

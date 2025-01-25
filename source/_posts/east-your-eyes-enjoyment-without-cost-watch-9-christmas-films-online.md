@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Feast Your Eyes, Enjoyment Without Cost  Watch 9 Christmas Films Online\""
-date: 2024-08-08T14:42:14.975Z
-updated: 2024-08-09T14:42:14.975Z
+date: 2025-01-24T13:18:52.315Z
+updated: 2025-01-25T12:32:29.376Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/de2a2439a12942f0b9808810580359ed4223c732c
 
 # Watch 9 Free Full Length Christmas Movies On Youtube
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -30,32 +27,32 @@ thumbnail: https://thmb.techidaily.com/de2a2439a12942f0b9808810580359ed4223c732c
 If you are looking for Christmas entertainment this season you may be quick to look towards a provider like iTunes or Netflix to give you some excellent Christmas movies. The good news is that you can also find a number of excellent classic Christmas movies on YouTube. Accessing these movies on YouTube while to save your rental fees as well as make sure that you can have a steady stream of Christmas entertainment whoever you might be visiting over the holiday season. Here are some of the top 10 classic movies that you can find for free on YouTube right now.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
@@ -69,12 +66,13 @@ This film stars the hulk Mark Ruffalo in one of his earlier roles as a store emp
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
@@ -82,20 +80,21 @@ In this recreation of the original film from 1947 this shortened full-length ver
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,4 +103,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-visual-storytelling-cropping-and-editing-tips-for-instagram-audiences/"><u>[New] 2024 Approved Visual Storytelling Cropping and Editing Tips for Instagram Audiences</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-inner-workings-of-youtubes-system-after-an-upload/"><u>[New] The Inner Workings of YouTube's System After an Upload</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/idying-up-old-youtube-tracks-bar-free-viewing/"><u>[New] Tidying Up Old YouTube Tracks Bar-Free Viewing</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-essential-tips-for-sims-4-video-gaming/"><u>[Updated] 2024 Approved Essential Tips for Sims 4 Video Gaming</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-comparative-review-samsungs-imaging-suite-2023-edition/"><u>[Updated] Comparative Review Samsung's Imaging Suite, 2023 Edition</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mobilize-your-marketing-easy-youtube-channel-launch-tips-for-entrepreneurs/"><u>[Updated] Mobilize Your Marketing Easy YouTube Channel Launch Tips for Entrepreneurs</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-whimsical-wonders-in-musical-worlds-for-2024/"><u>[Updated] Whimsical Wonders in Musical Worlds for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-game-capture-software-analysis-obs-vs-shadowplay/"><u>2024 Approved Game Capture Software Analysis OBS vs ShadowPlay</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-innovative-approaches-to-monitoring-and-snapping-digital-displays/"><u>2024 Approved Innovative Approaches to Monitoring and Snapping Digital Displays</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-the-apple-iphone-xs-icloud-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing the Apple iPhone XS iCloud Lock</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-lava-yuva-3-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Lava Yuva 3? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Oppo Reno 10 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ltimate-list-of-8-youtube-mistakes-to-evade/"><u>The Ultimate List of 8 Youtube Mistakes to Evade</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-views-into-revenue-mastering-youtubes-financial-landscape-for-2024/"><u>Turning Views Into Revenue Mastering YouTube's Financial Landscape for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-the-best-text-to-audio-converters-of-all-times/"><u>Updated 2024 Approved The Best Text-to-Audio Converters of All Times</u></a></li>
+</ul></div>
 

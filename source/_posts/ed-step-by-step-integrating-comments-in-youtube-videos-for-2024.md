@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step  Integrating Comments in YouTube Videos for 2024\""
-date: 2024-08-08T14:41:48.139Z
-updated: 2024-08-09T14:41:48.139Z
+date: 2025-01-21T04:27:54.948Z
+updated: 2025-01-25T08:09:55.896Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/c5a835a587cbde63390ec7ae0f646f52f65cc154a
 
 # How to Add YouTube Annotations and Cards?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -49,25 +46,24 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 2: How to Add YouTube Annotations](#part2)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
 
 * Click on the "Video Manager" tab
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -75,22 +71,14 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -101,10 +89,18 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -150,14 +146,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,4 +159,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/he-ultimate-breakdown-of-12-youtubes-best-in-class-gaming-openings-for-2024/"><u>[New] The Ultimate Breakdown of 12 YouTube's Best-in-Class Gaming Openings for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-loop-videos-on-iphone-in-2024/"><u>[Updated] How to Loop Videos on iPhone, In 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-masterclass-choose-your-development-stage-for-2024/"><u>[Updated] YouTube Masterclass Choose Your Development Stage for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://win-top.techidaily.com/gmail-e-mail-konvertierung-ins-pst-format-oder-komprimieren-als-zip-anleitung/"><u>Gmail E-Mail Konvertierung Ins PST Format Oder Komprimieren Als ZIP - Anleitung</u></a></li>
+<li><a href="https://some-tips.techidaily.com/illuminating-affordable-solar-power-how-singapores-innovative-startup-is-pioneering-change/"><u>Illuminating Affordable Solar Power: How Singapore's Innovative Startup Is Pioneering Change</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-top-5-from-tecno-spark-go-2023-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Top 5 from Tecno Spark Go (2023) to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-the-risks-7-reasons-to-think-twice-before-using-ai-for-messaging-applications/"><u>Understanding the Risks: 7 Reasons to Think Twice Before Using AI for Messaging Applications</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/bes-best-practices-amplifying-video-and-audio-clarity-for-2024/"><u>YouTube's Best Practices Amplifying Video and Audio Clarity for 2024</u></a></li>
+</ul></div>
 

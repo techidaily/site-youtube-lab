@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Create Captivating YT Thumbnails Fast!\""
-date: 2024-08-08T14:38:02.178Z
-updated: 2024-08-09T14:38:02.178Z
+date: 2025-01-22T02:12:42.590Z
+updated: 2025-01-25T00:38:24.747Z
 tags:
   - ai video
   - ai youtube
@@ -41,45 +41,42 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 **Step 01:** Open Filmora X. If it is not already installed on your computer, download and install its latest version from [here](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
@@ -88,16 +85,14 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
@@ -114,12 +109,13 @@ This is how your Youtube thumbnail will look like after applying all the above-m
 
 This article on making a thumbnail for your Youtube is just an idea for you, and you can use your creativity to create amazing thumbnails using other features of Filmora. These cool thumbnails will help you attract more viewers and click, which will ultimately help you grow your Youtube Channel. Unlike all other articles and tutorials that show you how to make a thumbnail for Youtube, this method is free and doesn't need any technical skills to be implemented.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -127,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -143,4 +136,16 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-avoiding-the-common-path-the-route-to-unique-streamer-identities/"><u>[New] In 2024, Avoiding the Common Path The Route to Unique Streamer Identities</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-mastering-youtubes-creative-commons-licensing-guide/"><u>[New] In 2024, Mastering YouTube’s Creative Commons Licensing Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-filmmaking-for-social-media-imovie-tips-for-crafting-square-content-for-2024/"><u>[Updated] Filmmaking for Social Media IMovie Tips for Crafting Square Content for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-top-9-smartphone-lenses-and-gimbals-for-dynamic-videography/"><u>2024 Approved Top 9 Smartphone Lenses & Gimbals for Dynamic Videography</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-bypass-google-frp-on-oppo-k11x-by-drfone-android-unlock-remove-google-frp/"><u>How To Bypass Google FRP on Oppo K11x</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-lock-apps-on-infinix-smart-8-pro-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Infinix Smart 8 Pro to Protect Your Individual Information</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-gionee-f3-pro-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Gionee F3 Pro</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-streamline-your-teamwork-zooming-through-screenshares/"><u>In 2024, Streamline Your Teamwork Zooming Through Screenshares</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/by-step-save-youtube-sounds-directly-for-2024/"><u>Step-by-Step Save YouTube Sounds Directly for 2024</u></a></li>
+</ul></div>
 

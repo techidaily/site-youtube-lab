@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Harnessing Real-Time Trends for Visionary Video Ideas for 2024\""
-date: 2024-08-08T14:41:35.947Z
-updated: 2024-08-09T14:41:35.947Z
+date: 2025-01-23T21:29:59.575Z
+updated: 2025-01-25T08:01:11.308Z
 tags:
   - ai video
   - ai youtube
@@ -34,23 +34,8 @@ Google Trends, of course!
 
 Google Trends is a completely free tool you can use to determine what’s trending on YouTube or in Google’s search engine. Here’s how you can use Google Trends to figure out what’s trending in your niche and make a video before there’s tons of competition.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ## Part 1: Seeing The Big Picture
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
 
 _You’ll need to be signed into your Google account to use Google Trends._
@@ -69,9 +54,6 @@ Then click from 'Daily Search Trends' to 'Realtime Search Trends'.
 
 On top you will see two drop-down menus, one is for the category and one is for location.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
 
 Under **All categories** select the general theme your channel falls under.
@@ -94,6 +76,10 @@ Having something to say doesn’t have to mean having a strong opinion. If you j
 
 Clicking on these results will give you more specific data including how often the topic has been searched recently and links to recent news articles. These can give you a better idea of why it is trending and help you come up with what you want to say.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Battle of the Keywords
 
 Once you have a topic in mind for your next video – whether it came from Google Trends or your own noggin – think about what the most important keyword for that topic might be.
@@ -108,9 +94,17 @@ What happens after you click **enter** is pretty much magic. Say I want to make 
 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
@@ -124,9 +118,6 @@ It’s pretty clear from the chart that ‘filmora review’ is the strongest of
 
 Although, when you do a comparison like this you should also go to YouTube and search for each potential keyword/phrase individually. It might turn out that there is a ton of strong competition for the most popular search term, and not as much for the second or third most popular. Here’s a search for ‘Filmora Review’ on YouTube:
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![YouTube search Filmora Keyword](https://images.wondershare.com/filmora/article-images/google-trends-youtube-keyword-search.jpg)
 
 _If my view of YouTube looks different from yours it’s because I’m using the [VidIQ plugin for Chrome](https://chrome.google.com/webstore/detail/vidiq-vision-for-youtube/pachckjkecffpdphbpmfolblodfkgbhl?hl=en). It’s free and it gives you all kinds of extra info about videos and channels._
@@ -140,21 +131,20 @@ One of the biggest benefits of identifying trends and making videos about them q
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Making Better YouTube Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -162,14 +152,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -178,4 +165,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/inute-by-minute-fortnite-tile-methods/"><u>[New] Minute-by-Minute Fortnite Tile Methods</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-path-to-powerdirector-proficiency-2024-edition/"><u>[New] The Ultimate Path to PowerDirector Proficiency - 2024 Edition</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-why-does-imovie-crop-my-videos-in-2024/"><u>[New] Why Does iMovie Crop My Videos, In 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-from-amateur-to-pro-gopro-vlogging-secrets-revealed/"><u>[Updated] From Amateur to Pro Gopro Vlogging Secrets Revealed</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-future-earning-potential-in-gaming-videos/"><u>[Updated] Future Earning Potential in Gaming Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-building-awesome-channel-art-for-your-youtube-presence/"><u>[Updated] In 2024, Building Awesome Channel Art for Your YouTube Presence</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-instagram-a-guide-to-sharing-gifs-in-4-simple-steps/"><u>[Updated] Mastering Instagram A Guide to Sharing GIFs in 4 Simple Steps</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-professionally-impressive-quick-made-valorant-game-thumbnails-for-2024/"><u>[Updated] Professionally Impressive, Quick-Made Valorant Game Thumbnails for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-zoom-optimization-top-three-transcoder-methods/"><u>[Updated] Zoom Optimization Top Three Transcoder Methods</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/44cm44ot44oh44kq5pig5yop44gm6kal44gl44kj44ge77yb44o744oi44op44ow44or44k344ol44o844og44kj44oz44kw44go5lplusu5q2j5oml6acg44cn/"><u>「ビデオ映像が見づらい！・トラブルシューティングと修正手順」</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-step-by-step-guide-to-background-dimming-in-videos/"><u>2024 Approved Step-by-Step Guide to Background Dimming in Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/niently-remove-downloaded-youtube-media-for-lightweight-devices-for-2024/"><u>Conveniently Remove Downloaded YouTube Media for Lightweight Devices for 2024</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/troubleshooting-non-responsive-desktops-insights-by-yl-software-professionals/"><u>Troubleshooting Non-Responsive Desktops: Insights by YL Software Professionals</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-samsung-galaxy-m34-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Samsung Galaxy M34? Here Is the Answer | Dr.fone</u></a></li>
+</ul></div>
 

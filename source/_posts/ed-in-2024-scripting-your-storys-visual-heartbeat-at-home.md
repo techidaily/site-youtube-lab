@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Scripting Your Story's Visual Heartbeat at Home"
-date: 2025-01-16T16:41:38.384Z
-updated: 2025-01-19T16:13:51.226Z
+date: 2025-01-23T17:12:07.637Z
+updated: 2025-01-25T14:27:13.333Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,17 +112,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/apture-the-action-crafting-best-in-class-sports-films-for-2024/"><u>[New] Capture the Action Crafting Best-in-Class Sports Films for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/onfirming-youtube-pro-rated-earnings-for-2024/"><u>[New] Confirming YouTube Pro-Rated Earnings for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/rom-script-to-screen-methods-of-inserting-dialogue-into-online-videos/"><u>[New] From Script to Screen Methods of Inserting Dialogue Into Online Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-the-essential-checklist-to-amplify-video-income-on-youtube/"><u>[New] In 2024, The Essential Checklist to Amplify Video Income on YouTube</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-samsung-bd-j5900-review/"><u>[Updated] 2024 Approved Samsung BD-J5900 Review</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-mastering-video-visibility-settings-on-youtube/"><u>[Updated] Mastering Video Visibility Settings on YouTube</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-speed-photography-showdown-gopro-hero-4-vs-ghost-s-drift/"><u>[Updated] Speed Photography Showdown GoPro Hero 4 VS Ghost-S Drift</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/1-transform-your-dvd-collection-a-step-by-step-guide-to-converting-dvd-video-format-to-480p60fps/"><u>1. Transform Your DVD Collection: A Step-by-Step Guide to Converting DVD Video Format to 480P/60fps</u></a></li>
-<li><a href="https://fox-zero.techidaily.com/high-end-rubik-design-elite-fullscreen-bootstrapped-web-templating-by-creatively-timed/"><u>High-End Rubik Design: Elite Fullscreen Bootstrapped Web Templating by Creatively Timed</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-xiaomi-14-pro-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Xiaomi 14 Pro? Fixed | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/synergy-between-chatgpt-and-siri-optimizing-your-iphone-experience/"><u>Synergy Between ChatGPT and Siri: Optimizing Your iPhone Experience</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/why-stellar-repair-for-video-doesnt-work-properly-on-some-of-my-files/"><u>Why Stellar Repair for Video Doesn’t Work Properly on Some of My Files?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-melodic-movement-choosing-among-the-best-free-mobile-apps-for-youtube-tunes/"><u>[New] 2024 Approved Melodic Movement Choosing Among The Best Free Mobile Apps for YouTube Tunes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-pause-non-selected-youtube-video-suggestions/"><u>[New] 2024 Approved Pause Non-Selected YouTube Video Suggestions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-premium-viewership-the-ultimate-youtube-wealth/"><u>[New] 2024 Approved Premium Viewership The Ultimate YouTube Wealth</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-navigating-the-nuances-of-snapchat-high-visibility-for-2024/"><u>[New] Navigating the Nuances of Snapchat High-Visibility for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-mastery-of-fb-instream-ad-setup-and-evaluation-techniques-in-digital-marketing/"><u>[Updated] In 2024, Mastery of FB Instream Ad Setup & Evaluation Techniques in Digital Marketing</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-step-up-your-game-mastering-effective-video-title-and-tag-techniques/"><u>2024 Approved Step Up Your Game Mastering Effective Video Title & Tag Techniques</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-the-podcasters-handbook-writing-strategies-and-sample-scripts-available-free/"><u>2024 Approved The Podcaster's Handbook Writing Strategies & Sample Scripts Available Free</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/asus-vivobook-11-user-guide-compact-design-and-budget-friendly-performance/"><u>ASUS VivoBook 11 User Guide: Compact Design and Budget-Friendly Performance</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-honor-90-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Honor 90? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/motorola-g24-power-won-t-play-avchd-mts-files-by-aiseesoft-video-converter-play-mts-on-android/"><u>Motorola G24 Power won’t play AVCHD .mts files</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/quash-unwanted-youtube-suggested-videos-for-2024/"><u>Quash Unwanted YouTube Suggested Videos for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-youtube-to-avi-convertors-explained-for-2024/"><u>Top 8 YouTube-to-AVI Convertors Explained for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Navigate to Visibility  A Compreayer of YouTube Live Imagery Standards\""
-date: 2024-08-08T14:35:47.597Z
-updated: 2024-08-09T14:35:47.597Z
+date: 2025-01-19T13:48:11.262Z
+updated: 2025-01-25T14:09:47.830Z
 tags:
   - ai video
   - ai youtube
@@ -34,6 +34,10 @@ What happens if you don't add a custom thumbnail to your live stream? YouTube wi
 
 The problem is that most of those frames are not suitable to be used as the video cover. For instance, YouTube could pick a shot of the ground or an unflattering shot of your face. So, it's a must to add a custom thumbnail for your live stream.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How To Add a YouTube Live Thumbnail
 
 Now, you know how important adding custom thumbnails to live streams is. You probably want to know how to do that. We got you covered. Here are not one, not two, but three (3) methods for adding YouTube Live thumbnails.
@@ -45,16 +49,10 @@ YouTube Studio is the place where you edit most of your videos on YouTube. It's 
 * Head to a computer, launch a browser, and go to YouTube.
 * Click your channel icon on the top-right and select "YouTube Studio."
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![going to youtube studio](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-studio-2.jpg)
 
 * Click "Create" > "Go Live."
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![starting live stream on youtube studio](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-studio-3.JPG)
 
 * Edit the metadata for the live video.
@@ -71,8 +69,9 @@ YouTube Studio is the place where you edit most of your videos on YouTube. It's 
 ![starting livestream with custom thumbnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-studio-7.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Method 2\. Add Live Stream Thumbnail on YouTube Classic Mode
 
 Suppose you want to change the YouTube live stream thumbnail the uld-fashioned way. You can change it on YouTube Classic Mode. How? Fullow these simple steps.
@@ -80,9 +79,6 @@ Suppose you want to change the YouTube live stream thumbnail the uld-fashioned w
 * Head to a computer, launch a browser, and go to YouTube.
 * Click "Creator Studio Classic" from the left panel.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ![youtube classic mode](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-classic-2.jpg)
 
 * Select "Live Streaming" from the left panel in the Creator Studio Classic mode.
@@ -91,33 +87,23 @@ Suppose you want to change the YouTube live stream thumbnail the uld-fashioned w
 
 * YouTube will bring you to the "Stream Now" section. Put in the video metadata.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![editing youtube live metada](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-classic-4.JPG)
 
 * Click "Change thumbnail."
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![going to youtube studio](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-classic-5.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Select the thumbnail image you have prepared. Click "Open."
 * Wait for the thumbnail image to refresh.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Method 3\. Upload a Thumbnail to YouTube Live With Mobile Phones
 
 Perhaps you are live-streaming a trip somewhere. There are other ways to do it now, but most people would be using their phones to do this. So how do you change a YouTube Live thumbnail on mobile phones? Fullow these instructions:
@@ -143,45 +129,21 @@ Perhaps you are live-streaming a trip somewhere. There are other ways to do it n
 
 * Select "Upload thumbnail."
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![upload thumbnail option](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-8.JPG)
 
 * Select the thumbnail image you have prepared.
 * Crop the image if you like. Click "Save."
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![editing uploaded custom thumbnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-10.JPG)
 
 * Click "Go Live."
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![going live on mobile with custom thumbneil](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-mobile-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## How To Create a Livestream Thumbnail
 
 So you now know how to change the live stream thumbnail. There's one more thing we need to address. Where will you get the custom thumbnails? There are a number of good YouTube thumbnail makers out there. Let's discuss this.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ### Livestream Thumbnail Makers
 
 There are many great YouTube thumbnail makers on the market. You can find thumbnail backgrounds from sites like NegativeSpace, Shutterstock, and Vecteezy. Then, edit them to your liking using photo editing apps. Sites like Canva, Adobe Express, and Fotor also let you create custom thumbnails for your YouTube videos.
@@ -192,9 +154,6 @@ There are many great YouTube thumbnail makers on the market. You can find thumbn
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Steps to Make an Amazing YouTube Livestream Thumbnail
 
 Here is a tutorial on how to create a YouTube Livestream thumbnail using Wondershare Filmora.
@@ -205,9 +164,6 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 
 * Click "Effect."
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![effects tab on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-2.JPG)
 
 * Drag the "Human Segmentation" effect to your image on the timeline. Do the same with "Human Border." Alternatively, click "Touls" > "Video" > "AI Portrait" > "Ok."
@@ -220,35 +176,18 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 
 * Add backgrounds, effects, titles, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![adding background to your thumbnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-5.JPG)
 
 * Click the "Camera" icon below the video preview to save the thumbnail. Select a format and a target fulder. Click "Ok."
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![taking a snapshot on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-6.JPG)
 
 * Right-click the screenshot on the Media panel. Select "Reveal in Explorer." That will open the fulder where the thumbnail image is saved.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ![revealing thumbnail image in explorer](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-7.jpg)
 
 Do you want to know more tips about making YouTube thumbnails using Wondershare Filmora? If so, watch this video:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ### How To Customize YouTube Livestream Thumbnail Online
 
 [Wave.video](https://wave.video/) is one of the best online YouTube thumbnail creators out there. Here's a guide on how to use this toul.
@@ -257,31 +196,15 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 * Hover your mouse on "Templates" at the top toulbar.
 * Select "Thumbnail" under Livestreaming.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![youtube live thumbnail templates on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-3.jpg)
 
 * Select a template that fits your idea.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ![choosing a template on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-4.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Edit the sample image and text. Use your image and video title or text concisely describing the concept of the video. Edit other aspects of the image as needed.
 
@@ -301,15 +224,13 @@ Key features:
 ![downloading the custom thumbnail from wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-9.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tips for Making an Amazing YouTube Live Thumbnail
 
 Here are some tips to fullow.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Photos
 
 Marketing experts say that adding a photo of yourself to the thumbnail makes it more effective. Needless to say, you should not choose just any photo. You must ensure it is of high quality. Using good cameras and lighting equipment is recommended.
@@ -330,9 +251,6 @@ For creating YouTube thumbnails, you can use Wondershare Filmora. It's a video e
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Steps to Make an Amazing YouTube Livestream Thumbnail
 
 Here is a tutorial on how to create a YouTube Livestream thumbnail using Wondershare Filmora.
@@ -343,9 +261,6 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 
 * Click "Effect."
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![effects tab on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-2.JPG)
 
 * Drag the "Human Segmentation" effect to your image on the timeline. Do the same with "Human Border." Alternatively, click "Touls" > "Video" > "AI Portrait" > "Ok."
@@ -360,11 +275,12 @@ Here is a tutorial on how to create a YouTube Livestream thumbnail using Wonders
 
 ![adding background to your thumbnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-5.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click the "Camera" icon below the video preview to save the thumbnail. Select a format and a target fulder. Click "Ok."
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![taking a snapshot on filmora](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-filmora-6.JPG)
 
 * Right-click the screenshot on the Media panel. Select "Reveal in Explorer." That will open the fulder where the thumbnail image is saved.
@@ -385,10 +301,11 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 
 * Select a template that fits your idea.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![choosing a template on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-4.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Edit the sample image and text. Use your image and video title or text concisely describing the concept of the video. Edit other aspects of the image as needed.
 
@@ -398,6 +315,10 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 
 ![exporting the custom thumbnail](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-6.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Set up your image. Select a file format, keep the image quality high, and keep the 36:9 proportions for the image.
 
 ![setting up the image on wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-7.JPG)
@@ -405,17 +326,15 @@ Do you want to know more tips about making YouTube thumbnails using Wondershare 
 * Click "Generate."
 * Please wait for it to finish, then click "Download."
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![downloading the custom thumbnail from wave](https://images.wondershare.com/filmora/article-images/youtube-live-thumbnail-wave-9.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## Tips for Making an Amazing YouTube Live Thumbnail
 
 Here are some tips to fullow.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Photos
 
@@ -425,16 +344,10 @@ Marketing experts say that adding a photo of yourself to the thumbnail makes it 
 
 If you're not new to YouTube, you have probably seen the "YouTube thumbnail face." YouTuber's faces on their thumbnails show an expression. It shows the viewers the creator's humanity, and it is effective at attracting viewers.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Text
 
 Add simple text with clear, buld, easy-to-read font.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Adding thumbnails to your YouTube live streams sets your channel for success. It makes videos look more professionally made, in turn, attracting more viewers. So, we recommend always adding thumbnails to your YouTube Live.
@@ -453,8 +366,6 @@ For creating YouTube thumbnails, you can use Wondershare Filmora. It's a video e
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -462,4 +373,26 @@ For creating YouTube thumbnails, you can use Wondershare Filmora. It's a video e
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-make-a-stunning-lyric-video-with-lyric-video-maker/"><u>[New] 2024 Approved How to Make a Stunning Lyric Video with Lyric Video Maker</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-best-choices-8-edits-suites-for-linux-users/"><u>[New] In 2024, Best Choices 8 Edits Suites for Linux Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-crafting-a-revenue-generating-online-presence/"><u>[New] In 2024, Crafting a Revenue-Generating Online Presence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-historical-wisdom-on-youtube-for-students/"><u>[New] In 2024, Historical Wisdom on YouTube for Students</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-watching-social-media-videos-on-appletv/"><u>[New] In 2024, Watching Social Media Videos on AppleTV</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-efficient-tagging-techniques-to-boost-your-youtube-traffic/"><u>[Updated] 2024 Approved Efficient Tagging Techniques to Boost Your Youtube Traffic</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-short-form-spectacularity-compile-the-top-10-video-editing-tools/"><u>[Updated] 2024 Approved Short-Form Spectacularity Compile the Top 10 Video Editing Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-crown-jewels-of-online-watching-youtubes-treasures/"><u>[Updated] In 2024, Crown Jewels of Online Watching YouTube's Treasures</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-master-the-art-of-tagging-a-compreited-guide-to-video-seo-for-2024/"><u>[Updated] Master the Art of Tagging A Compreited Guide to Video SEO for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-uninstalling-video-libraries-from-youtube-for-2024/"><u>[Updated] Uninstalling Video Libraries From YouTube for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024flt5-flv/"><u>2024年のベストFLT再生ソフト:無料版パワーアップ5推薦 - FLV動画鑑賞快適化</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mp4-3gpp3gp-movavi/"><u>無限量 MP4 到 3GPP/3GP 格式免費轉換器 - 運用 Movavi 工具</u></a></li>
+<li><a href="https://win11.techidaily.com/a-step-by-step-approach-to-recover-your-windows-apps/"><u>A Step-by-Step Approach to Recover Your Windows Apps</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1126913-9781612832111-closer-than-you-think/"><u>Closer Than You Think | Free Book</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-samsung-galaxy-s23-tactical-edition-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Samsung Galaxy S23 Tactical Edition Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/by-step-guide-to-skyrocketing-video-views/"><u>Step-by-Step Guide to Skyrocketing Video Views</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-vivo-v29-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Vivo V29 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/why-apples-new-m3-imac-falls-short-for-enthusiasts-of-the-27-inch-experience-a-critical-look-at-necessity/"><u>Why Apple's New M3 iMac Falls Short for Enthusiasts of the 27-Inch Experience - A Critical Look at Necessity</u></a></li>
+</ul></div>
 

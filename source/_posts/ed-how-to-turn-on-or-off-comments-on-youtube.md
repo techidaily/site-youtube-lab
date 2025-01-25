@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Turn on or Off Comments on YouTube"
-date: 2025-01-13T16:16:51.921Z
-updated: 2025-01-19T16:29:04.544Z
+date: 2025-01-20T14:39:51.410Z
+updated: 2025-01-25T11:03:26.476Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ Use your favorite web browser to go to YouTube and sign in to your Google accoun
 
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
@@ -52,7 +56,7 @@ From the bottom of the left pane, click the **Settings** icon, click **Channel**
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3: Turn Off Comments
@@ -68,7 +72,7 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\. Define Acceptable Comment Types
@@ -103,10 +107,6 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -128,13 +128,13 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -188,19 +188,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-stock-strategies-unveiled-essential-youtube-video-resources/"><u>[New] 2024 Approved Stock Strategies Unveiled Essential YouTube Video Resources</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-a-comprehensive-list-of-the-best-6-microphones-for-video-hosts/"><u>[New] A Comprehensive List of the Best 6 Microphones for Video Hosts</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-elite-aerial-assistants-tailored-for-gopro-cinematographers/"><u>[New] In 2024, Elite Aerial Assistants Tailored For GoPro Cinematographers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-leading-8-linux-tools-for-seamless-editing/"><u>[New] In 2024, Leading 8 Linux Tools for Seamless Editing</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nboxing-premium-game-devices-youtube-edition/"><u>[New] Unboxing Premium Game Devices YouTube Edition</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-in-depth-look-at-voice-memo-features-on-your-ios-device/"><u>[Updated] In 2024, In-Depth Look at Voice Memo Features on Your iOS Device</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-listing-from-the-tail-reordering-videos-in-a-reverse-sequence/"><u>[Updated] In 2024, Listing From the Tail Reordering Videos in a Reverse Sequence</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-journey-through-the-stars-with-these-innovative-science-youtubers-for-2024/"><u>[Updated] Journey Through the Stars with These Innovative Science YouTubers for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-top-tier-tips-for-naming-your-podcast-right-plus-inspiring-title-ideas-countdown/"><u>[Updated] Top-Tier Tips for Naming Your Podcast Right + Inspiring Title Ideas Countdown</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-excellence-in-depth-look-at-the-arcshell-ar-5s-exceptional-value/"><u>Affordable Excellence: In-Depth Look at the ArcShell AR-5's Exceptional Value</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/key-considerations-for-choosing-quality-video-capture-equipment/"><u>Key Considerations for Choosing Quality Video Capture Equipment</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mp4-won-t-play-on-my-redmi-k70-by-aiseesoft-video-converter-play-mp4-on-android/"><u>MP4 won't play on my Redmi K70</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ering-the-future-of-online-filmmaking-with-sony-vegas-and-youtube/"><u>Pioneering the Future of Online Filmmaking with Sony Vegas and YouTube</u></a></li>
-<li><a href="https://blog-min.techidaily.com/understanding-digiarty-winxdvd-eula-key-terms-and-conditions-explained/"><u>Understanding Digiarty WinXDVD EULA: Key Terms and Conditions Explained</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-capturing-moments-with-the-best-5-photo-and-video-apps-for-iphonesandroid/"><u>[New] 2024 Approved Capturing Moments with the Best 5 Photo & Video Apps for iPhones/Android</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-chorus-of-creators-guidelines-for-sharing-sounds-online/"><u>[New] 2024 Approved Chorus of Creators Guidelines for Sharing Sounds Online</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-endless-creativity-free-youtube-art-resources/"><u>[New] 2024 Approved Endless Creativity FREE YouTube Art Resources</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-gaming-hits-with-powerful-hashtag-strategies/"><u>[New] 2024 Approved Gaming Hits with Powerful Hashtag Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-add-video-to-text-for-free/"><u>[New] 2024 Approved How to Add Video to Text for Free</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-premium-peak-predictor-unveil-top-8-rankings/"><u>[New] 2024 Approved Premium Peak Predictor Unveil Top 8 Rankings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-dynamic-fitness-series-ideas-to-enhance-viewer-retention-for-2024/"><u>[New] 5 Dynamic Fitness Series Ideas to Enhance Viewer Retention for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-effortless-methods-to-archive-slideshows/"><u>[Updated] In 2024, Effortless Methods to Archive Slideshows</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-your-go-to-tools-for-screen-recording/"><u>[Updated] In 2024, Your Go-To Tools for Screen Recording</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-on-guide-to-optimize-your-youtube-channels-with-adsense-for-2024/"><u>Hands-On Guide to Optimize Your YouTube Channels with AdSense for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-premier-tools-upload-and-convert-vids-for-tweeting/"><u>In 2024, Premier Tools Upload & Convert Vids for Tweeting</u></a></li>
+<li><a href="https://fox-access.techidaily.com/navigate-the-past-reversing-media-on-iphones-for-2024/"><u>Navigate the Past Reversing Media on iPhones for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/quick-data-retrieval-on-pc-adopting-everythingapp/"><u>Quick Data Retrieval on PC: Adopting EverythingApp</u></a></li>
+<li><a href="https://windows11.techidaily.com/shine-bright-again-the-5-must-do-fixes-for-dead-backlight-on-windows/"><u>Shine Bright Again: The 5 Must-Do Fixes for Dead Backlight on Windows</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/software-editare-video-gratuita-cel-mai-performant-pentru-windows-vechi-7-la-gura-in-2024/"><u>Software Editare Video Gratuita Cel Mai Performant Pentru Windows Vechi (7) La Gura În 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/omplete-playbook-for-broadcasting-spherical-content-on-youtube/"><u>The Complete Playbook for Broadcasting Spherical Content on Youtube</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/understanding-the-408-request-timed-out-error-causes-and-solutions/"><u>Understanding the 408 Request Timed Out Error: Causes and Solutions</u></a></li>
 </ul></div>
 

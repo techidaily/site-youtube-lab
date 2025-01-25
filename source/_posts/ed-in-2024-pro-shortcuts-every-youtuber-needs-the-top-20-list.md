@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Pro Shortcuts Every YouTuber Needs - The Top 20 List\""
-date: 2024-08-08T14:42:44.002Z
-updated: 2024-08-09T14:42:44.002Z
+date: 2025-01-18T08:50:22.185Z
+updated: 2025-01-25T09:38:45.476Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/15954b5de302fb65bb19b216711303e6c7127c1ad
 
 # YouTube Shortcuts You Should Know in 2024
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -31,16 +28,14 @@ YouTube, as one of the most popular free streaming video portals, the majority o
 
 With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -49,6 +44,10 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -70,17 +69,9 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -102,9 +93,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -114,6 +102,10 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -130,8 +122,9 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -172,14 +165,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -188,4 +178,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/astering-the-market-essential-youtube-finance-channels/"><u>[New] Mastering the Market Essential YouTube Finance Channels</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-screenshare-catcher-fb-groups/"><u>[Updated] 2024 Approved ScreenShare Catcher - Fb Groups</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-perfecting-online-visuals-beauty-focused-color-correction/"><u>[Updated] In 2024, Perfecting Online Visuals Beauty-Focused Color Correction</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-profitable-pathways-8-steps-for-youtube-earning-for-2024/"><u>[Updated] Profitable Pathways 8 Steps for YouTube Earning for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-tweak-twitter-video-clip-cover/"><u>[Updated] Tweak Twitter Video Clip Cover</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-perfect-screen-recording-made-simple-and-orderly/"><u>2024 Approved Perfect Screen Recording Made Simple & Orderly</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/our-video-masterful-use-of-hash-tags-in-games/"><u>Ace Your Video Masterful Use of Hash Tags in Games</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-xiaomi-redmi-note-13-pro-5g-device-sim-by-drfone-android/"><u>Easily Unlock Your Xiaomi Redmi Note 13 Pro 5G Device SIM</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-harness-the-potential-of-gratuitous-timer-tools/"><u>In 2024, Harness the Potential of Gratuitous Timer Tools</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-vivo-y55s-5g-2023-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Vivo Y55s 5G (2023)</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-in-depth-earnings-analysis-adsense-payout-for-every-1000-viewers-on-youtube/"><u>In 2024, In-Depth Earnings Analysis AdSense Payout for Every 1,000 Viewers on YouTube</u></a></li>
+</ul></div>
 

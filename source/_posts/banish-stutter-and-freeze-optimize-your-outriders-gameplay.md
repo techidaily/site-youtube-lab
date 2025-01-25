@@ -1,7 +1,7 @@
 ---
 title: "Banish Stutter and Freeze: Optimize Your Outriders Gameplay"
-date: 2024-08-08T14:42:24.562Z
-updated: 2024-08-09T14:42:24.562Z
+date: 2025-01-22T06:30:37.807Z
+updated: 2025-01-24T17:34:23.704Z
 tags:
   - win11
   - win10
@@ -17,9 +17,6 @@ thumbnail: https://thmb.techidaily.com/ae200a2185b5d6e93408c97ace7b66b8254fa8676
 
 Half Life: Alyx is no doubt the best VR game in 2020\. While the game is amazing, many players have reported a lag and stuttering issue that spoils all the fun. If you happen to be one of them, don’t worry. Here’re some working fixes you can try.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Try these fixes
 
  You might not need to try them all. Simply work your way down until you find the one that helps.
@@ -45,6 +42,10 @@ Half Life: Alyx is no doubt the best VR game in 2020\. While the game is amazing
 
  If your specs are more than capable for the game, simply continue to the next fix below.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Fix 2: Change your power plan
 
  Power plan is a scheme that manages the way your PC consumes energy. The recent Windows build introduces a new power plan called Ultimate Performance, which provides a certain level of performance boost. You can start from here when troubleshooting stuttering issues.
@@ -54,19 +55,8 @@ Here’s how:
 1. On your keyboard, press **Win+R** (the Windows logo key and the r key) at the same time. Type or paste **powercfg.cpl**  and press **Enter** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/09/cmd-run-power-option.jpg)
 2. Select **Ultimate Performance** . If you don’t see this power plan, simply continue to the next step to unhide it.  
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/change-power-plan-ultimate-performance.jpg)
 3. On your keyboard, press Win (the Windows logo key) and type **cmd** . Select **Run as Administrator** .  
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2020/08/run-cmd-as-administrator.jpg)
 4. In the command prompt, type or paste the following command and press **Enter** .  
 powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61  
@@ -78,8 +68,9 @@ powercfg -duplicatescheme e9a42b02-d5df-448d-aa00-03f14749eb61
  If this trick doesn’t give you luck, you can take a look at the next one.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Fix 3: Disable overlays
 
  In-game overlays allow you to interact with friends and place orders while you’re enjoying the game. But this handy feature might also be an interference to performance according to some. So if you’re using overlays such as**Steam** or**Discord** , try disabling them and see how it goes.
@@ -91,8 +82,9 @@ After disabling all the overlays, check if Half Life: Alyx lags again.
  If this fix doesn’t help you, simply move on to the next one below.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Fix 4: Update your graphics driver
 
  In most cases, the lag and stuttering simply means you’re using**a** **faulty or outdated graphics driver** . Manufacturers keep updating their drivers so as to deliver the best possible performance. If the last time you updated your drivers feels like ages ago, definitely do it now as it might save your day.
@@ -104,10 +96,11 @@ After disabling all the overlays, check if Half Life: Alyx lags again.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/last-scan-never.png)
 3. Click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system.  
  (This requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All. If you don’t want to pay for the Pro version, you can still download and install all the drivers you need with the free version; you just have to download them one at a time, and manually install them, the normal Windows way.)  
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2021/04/2060-super-update.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
@@ -116,8 +109,9 @@ After disabling all the overlays, check if Half Life: Alyx lags again.
  If the latest driver doesn’t do the trick, you can continue to the next method.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Fix 5: Install all Windows updates
 
  Microsoft releases system updates on a regular basis, providing bug patches and performance boost. You can manually check for system updates as it could help with the compatibility improvement.
@@ -127,8 +121,18 @@ Here’s how you can check for updates manually:
 1. On your keyboard, press **Win** (the Windows logo key). At the bottom left corner of your screen, click the**gear icon** to open Settings.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-gear-icon.jpg)
 2. Scroll down and select**Update & Security** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update.jpg)
 3. Click**Windows Update** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-2.jpg)
 4. Click**Check for updates** . Then wait for the process to complete. After that, restart your PC.  
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/windows-10-start-menu-open-settings-update-3.jpg)
@@ -147,15 +151,9 @@ To do so, follow these steps:
 
 1. Go to your Steam Library.
 2. Right click**Half Life: Alyx** and select**Properties…** .  
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2021/01/half-life-launch-options-1.jpg)
 3. Under the LAUNCH OPTIONS section, click the input area and type or paste the code below. Then close the window to save the changes.  
 -novid -console -vconsole +vr_fidelity_level_auto 0 +vr_fidelity_level 3 +vr_render_scale 1.0  
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.drivereasy.com/wp-content/uploads/2021/01/half-life-launch-options-2.jpg)
 
 ---
@@ -168,8 +166,6 @@ To do so, follow these steps:
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -177,4 +173,21 @@ To do so, follow these steps:
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/new-evaluating-itop-as-a-screen-recording-solution/"><u>[New] Evaluating ITop as a Screen Recording Solution?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-farm-frontier-favorites-similar-titles-galore/"><u>[New] Farm Frontier Favorites Similar Titles Galore</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rom-scripts-to-subscribers-mastering-the-production-of-engaging-educational-videos-for-youtube/"><u>[New] From Scripts to Subscribers Mastering the Production of Engaging Educational Videos for YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-explore-the-top-15-scientific-channels-to-grow-wisdom/"><u>[New] In 2024, Explore the Top 15 Scientific Channels to Grow Wisdom</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-squaring-the-circle-your-imovie-path-to-perfect-instagram-videos/"><u>[Updated] 2024 Approved Squaring the Circle Your iMovie Path to Perfect Instagram Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-navigating-the-world-of-youtube-titling-and-tagging/"><u>[Updated] In 2024, Navigating the World of YouTube Titling and Tagging</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-mycam-reviewed-how-it-meets-expectations-for-home-recorders-for-2024/"><u>[Updated] MyCam Reviewed How It Meets Expectations for Home Recorders for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-crafting-journeys-a-comprehensive-guide-for-aspiring-travel-content-creators/"><u>In 2024, Crafting Journeys A Comprehensive Guide for Aspiring Travel Content Creators</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Infinix Note 30 VIP Racing Edition? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-journey-from-content-creator-to-money-maker-on-youtube/"><u>In 2024, The Journey From Content Creator to Money-Maker on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/cting-content-rights-in-youtube-to-mp4-transfers-for-2024/"><u>Protecting Content Rights in Youtube-to-MP4 Transfers for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/unlock-iphone-8-without-passcode-easily-by-drfone-ios/"><u>Unlock iPhone 8 Without Passcode Easily</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-features-iphone-15-pro-max-against-samsung-s2eus-24-ultra-showdown/"><u>Unpacking the Features: IPhone 15 Pro Max Against Samsung S2eus 24 Ultra Showdown</u></a></li>
+<li><a href="https://fox-info.techidaily.com/videographers-choice-top-audio-for-unboxing-experiences/"><u>Videographers' Choice Top Audio for Unboxing Experiences</u></a></li>
+</ul></div>
 

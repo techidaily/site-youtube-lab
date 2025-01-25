@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Countering Harshness  Maintaining Poise Online\""
-date: 2024-08-08T14:41:37.047Z
-updated: 2024-08-09T14:41:37.047Z
+date: 2025-01-17T23:13:31.502Z
+updated: 2025-01-25T11:30:57.613Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/26300a30b40be91fd1403de278cb19bb64bc0cc7c
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/26300a30b40be91fd1403de278cb19bb64bc0cc7c
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://thmb.techidaily.com/26300a30b40be91fd1403de278cb19bb64bc0cc7c
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,14 +68,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,4 +81,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/est-3d-software-for-dynamic-youtube-intros/"><u>[New] Best 3D Software for Dynamic YouTube Intros</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-whatsapp-transfers-broadcasting-twitter-videos-with-ease/"><u>[New] In 2024, WhatsApp Transfers Broadcasting Twitter Videos with Ease</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/obile-and-desktop-techniques-for-youtube-short-video-submission-for-2024/"><u>[New] Mobile & Desktop Techniques for YouTube Short Video Submission for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-ultimate-vr-showdown-scoring-the-best-oculus-models/"><u>[New] Ultimate VR Showdown Scoring the Best Oculus Models</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-effortless-mp3-conversion-from-youtube-for-mac-users/"><u>2024 Approved Effortless MP3 Conversion From YouTube for Mac Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-top-15-youtube-openers-that-boost-viewership-and-engagement/"><u>2024 Approved Top 15 YouTube Openers That Boost Viewership and Engagement</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/boosting-your-photography-skills-master-zoom-on-iphoneipad/"><u>Boosting Your Photography Skills: Master Zoom on iPhone/iPad</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-touch-screen-on-honor-magic-vs-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Honor Magic Vs 2 | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-fcpx-tutorial-elevate-your-edits-with-l-cuts-and-j-cuts/"><u>New In 2024, FCPX Tutorial Elevate Your Edits with L-Cuts and J-Cuts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/oming-virtual-negativity-a-content-makers-guide-for-2024/"><u>Overcoming Virtual Negativity A Content Maker's Guide for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-instagram-edge-rotating-videos-like-a-pro-for-2024/"><u>The Instagram Edge Rotating Videos Like a Pro for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-picshot-advantage-flawless-collage-construction/"><u>The Picshot Advantage Flawless Collage Construction</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/to-retweet-or-not-to-retweet-that-is-the-question/"><u>To Retweet or Not to Retweet, That Is the Question</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-productive-ipad-applications-enhance-efficiency-with-these-must-have-tools-insights-from-zdnet/"><u>Top Productive iPad Applications: Enhance Efficiency with These Must-Have Tools - Insights From ZDNet</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ng-youtube-music-into-mp3-files-with-macos-for-2024/"><u>Turning YouTube Music Into MP3 Files with MacOS for 2024</u></a></li>
+</ul></div>
 

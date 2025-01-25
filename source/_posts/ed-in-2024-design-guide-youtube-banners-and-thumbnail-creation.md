@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Design Guide  YouTube Banners & Thumbnail Creation\""
-date: 2024-08-08T14:39:26.664Z
-updated: 2024-08-09T14:39:26.664Z
+date: 2025-01-20T23:21:39.766Z
+updated: 2025-01-24T19:55:07.476Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/8122148ffac7fe0a0e1d193ba9a136b7cccae081b
 
 # How to Make YouTube Banners and Thumbnails
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/8122148ffac7fe0a0e1d193ba9a136b7cccae081b
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Make YouTube Banners and Thumbnails
 
 YouTube Banners and Thumbnails are two of the most important pieces of channel art you will need. This article will explain the best practices for both, and suggest sites where you will be able to build your own banners and thumbnails for free.
@@ -69,24 +67,27 @@ One thumbnail taboo that you should never break is using an image that has nothi
 
 There are sites online that will allow you to edit images and use them in templates for YouTube banners. You can also use these services to edit your thumbnails. Two of the most popular, free, online photo editors are PicMonkey.com and Canva.com.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -94,14 +95,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -110,4 +108,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-global-scoreboard-the-premier-six-of-video-downloads/"><u>[New] 2024 Approved Global Scoreboard The Premier Six of Video Downloads</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-step-by-step-manual-for-estimating-youtube-ad-revenue-and-views/"><u>[New] 2024 Approved Step-by-Step Manual for Estimating YouTube Ad Revenue & Views</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-rising-from-the-crowd-post-vidcon-video-events/"><u>[New] In 2024, Rising From the Crowd Post-VidCon Video Events</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unveiling-8-honest-video-promotion-services/"><u>[Updated] In 2024, Unveiling 8 Honest Video Promotion Services</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-mastering-the-art-of-virtual-visuals-zooms-step-by-step-filters-guide-for-2024/"><u>[Updated] Mastering the Art of Virtual Visuals Zoom's Step-By Step Filters Guide for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-personalize-your-pixelated-world-the-ultimate-guide-to-discovering-creator-types-via-6-tests/"><u>[Updated] Personalize Your Pixelated World The Ultimate Guide to Discovering Creator Types via 6 Tests</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-behind-the-drone-a-close-look-at-dji-phantom-3-pros-features/"><u>2024 Approved Behind the Drone A Close Look at DJI Phantom 3 Pro's Features</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-your-gateway-to-youtube-entrepreneurship-the-best-10-easy-to-create-channels/"><u>2024 Approved Your Gateway to YouTube Entrepreneurship The Best 10 Easy-to-Create Channels</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-migrate-android-data-from-oppo-find-x6-to-new-android-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Migrate Android Data From Oppo Find X6 to New Android Phone? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-from-scratch-to-screen-video-editing-with-youtube-and-others/"><u>In 2024, From Scratch to Screen Video Editing with YouTube & Others</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/peekvids-file-saver-effortless-conversion-and-download-of-videos-as-mp4-mov-or-avi/"><u>PeekVids File Saver: Effortless Conversion and Download of Videos as MP4, MOV, or AVI</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/revamping-your-digital-publications-addingcreating-tables-of-contents-using-flipbuilder-platform/"><u>Revamping Your Digital Publications: Adding/Creating Tables of Contents Using FlipBuilder Platform</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/solace-for-strugglers-dannys-foundation-in-colombia/"><u>Solace for Strugglers: Danny's Foundation in Colombia</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-infinix-hot-30i-drfone-by-drfone-virtual-android/"><u>What is Fake GPS Location Pro and Is It Good On Infinix Hot 30i? | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/pcmp4url/"><u>クリーンな手順で、PCを使って高画質MP4にURLを変換する方法</u></a></li>
+</ul></div>
 

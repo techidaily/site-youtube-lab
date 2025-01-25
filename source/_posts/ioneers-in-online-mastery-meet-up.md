@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Pioneers in Online Mastery Meet-Up\""
-date: 2025-01-12T07:37:01.542Z
-updated: 2025-01-13T04:31:18.931Z
+date: 2025-01-23T22:04:06.053Z
+updated: 2025-01-25T10:57:33.300Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,10 @@ There were some clues as to what the rest of the summit was like hiding amongst 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -73,7 +77,7 @@ One of the major benefits of attending this summit would have been networking wi
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Branded slippers
@@ -82,18 +86,18 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-_thinknoodles wearing his YouTube slippers._
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+_thinknoodles wearing his YouTube slippers._
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Denim jacket
@@ -103,7 +107,7 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
@@ -113,10 +117,6 @@ Most creators here on Filmora are still trying to grow their channels, but one d
 Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -141,18 +141,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-digital-artisans-exclusive-summit-for-2024/"><u>[New] Digital Artisans' Exclusive Summit for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/irect-to-youtube-stepwise-process-of-mobile-and-desktop-video-posting/"><u>[New] Direct to YouTube Stepwise Process of Mobile & Desktop Video Posting</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-skyrocketing-traffic-the-ultimate-guide-to-youtube-outros-partnerships/"><u>[New] In 2024, Skyrocketing Traffic The Ultimate Guide to YouTube Outros Partnerships</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-youtubes-financial-frontier-strategies-for-maximum-gains/"><u>[New] In 2024, Youtube's Financial Frontier Strategies for Maximum Gains</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/recise-codex-of-conduct-in-the-digital-realm/"><u>[New] Precise Codex of Conduct in the Digital Realm</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-remove-background-in-logitech-webcam-recording/"><u>[New] Remove Background in Logitech Webcam Recording</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-most-viewed-vids-worldwide-roundup/"><u>[Updated] In 2024, Most Viewed Vids Worldwide Roundup</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-evaluation-why-the-iphone-se-2020-might-just-be-your-ideal-smartphone/"><u>Comprehensive Evaluation: Why the iPhone SE (2020) Might Just Be Your Ideal Smartphone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/garmin-vivoactive-3-music-review/"><u>Garmin Vivoactive 3 Music Review</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/o-download-youtube-thumbnail-in-3-ways-onlinewinmac/"><u>How to Download YouTube Thumbnail in 3 Ways [Online/Win/Mac]</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Oppo Reno 11 5G | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-ideas-to-maximize-gopro-battery-performance/"><u>In 2024, Ideas to Maximize GoPro Battery Performance</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-streamline-the-age-update-process-on-tiktok/"><u>In 2024, Streamline the Age Update Process on TikTok</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-best-tips-to-use-zoom-on-chromebook/"><u>[New] 2024 Approved Best Tips to Use Zoom on Chromebook</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-blur-out-not-into-discovering-photo-clarity-web-tools/"><u>[New] 2024 Approved Blur Out, Not Into! Discovering Photo Clarity Web Tools</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-efficient-guide-to-transforming-gifs-into-engaging-whatsapp-and-telegram-stickers-for-2024/"><u>[New] Efficient Guide to Transforming GIFs Into Engaging WhatsApp & Telegram Stickers for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-making-money-with-youtube-understanding-partner-program/"><u>[New] In 2024, Making Money with YouTube Understanding Partner Program</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-secret-language-of-success-top-20-market-phrases/"><u>[New] The Secret Language of Success - Top 20 Market Phrases</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-global-youtube-rich-list-pinnacle/"><u>[Updated] Global YouTube Rich List Pinnacle</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-maximize-content-experience-with-these-top-6-youtube-shorts-downloader-apps/"><u>2024 Approved Maximize Content Experience with These Top 6 YouTube Shorts Downloader Apps</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-streaming-masterpieces-best-movie-directories-on-yt/"><u>2024 Approved Streaming Masterpieces Best Movie Directories on YT</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ngs-on-youtube-a-monthly-perspective-for-2024/"><u>Earnings on YouTube A Monthly Perspective for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-vivo-v30-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Vivo V30</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-samsung-galaxy-z-flip-5-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Samsung Galaxy Z Flip 5 | Dr.fone</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/professional-hd-1080p-image-collection-for-your-screen-ultra-clear-graphics-yl-computing-solutions/"><u>Professional HD 1080P Image Collection for Your Screen | Ultra-Clear Graphics – YL Computing Solutions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/eal-deal-behind-asmr-videos/"><u>The Real Deal Behind ASMR Videos</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Top Thumbnails  The Ultimate Guide to Optimal YouTube Sizes\""
-date: 2024-08-08T14:40:05.705Z
-updated: 2024-08-09T14:40:05.705Z
+date: 2025-01-20T20:07:54.830Z
+updated: 2025-01-25T00:09:12.169Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ So you may be wondering what the best **youtube thumbnail size** is, and how to 
 * [**Part 2:** **Upload and Change a Custom YouTube Thumbnail to Your Video**](#part2)
 * [**Part 3:** **Q&A-- About Creating YouTube Thumbnails**](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 1: The Ultimate Guide of Youtube Thumbnail Size**
 
 Every content creator needs to select the right youtube thumbnail size for any given video.
@@ -52,9 +56,6 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
 
 With a verified account, you can upload custom thumbnail on new videos as well as change the thumbnail of uploaded videos.
@@ -65,9 +66,6 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 * Upload your desired video to YouTube in the Upload section.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
@@ -81,9 +79,6 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
 
 #### 2\. For Already Uploaded Video
@@ -95,10 +90,18 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
 
@@ -107,9 +110,6 @@ You may want to know:
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
 YouTube will not allow you to upload a custom thumbnail image if it is bigger than the 2MB limit. So, you need to make sure the file size is below the limit to be able to successfully upload a custom thumbnail. To reduce the image size you can follow the steps below:
@@ -120,8 +120,9 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2\. How can I create an attractive youtube thumbnail?
 
 Utilizing online platforms and software tools to make your thumbnail image informative and attractive can potentially increase your views and traffic. You can use any advanced tools like Wondershare Filmora, Wondershare PixStudio, or Canva to create an aspiring and luring image that will get more views on YouTube just because of the thumbnail image. Here we will show you how to do it with Wondershare Filmora, Wondershare PixStudio and Canva:
@@ -132,9 +133,6 @@ Wondershare Filmora is an outstanding tool if you want to make a perfect thumbna
 
 Let's see how you can create your thumbnail using Wondershare Filmora:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 **[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 #### 2\. [Try Wondershare PixStudio>>](https://tools.techidaily.com/wondershare/fotophire/download/)
@@ -150,8 +148,9 @@ With Canva you can make a distinct and stand-out YouTube thumbnail image. Canva 
 To download the image without the watermark you’ll need to sign-up for a premium account on the Canva.
 
 <!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **To sum up**
 
 YouTube thumbnail plays an important part for the audience's first impression on your video. And it is of essential essence as it can attract more viewers to your content. So you should get the right **youtube thumbnail size** before you start customing your thumbnail. We’ve gone through all the detailed requirements of **youtube thumbnail size** and how to make the best thumbnail by using the best software solutions. Please leave your comments below if any suggestions. We'd love to hear them!
@@ -164,14 +163,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,4 +176,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-crafting-the-perfect-anime-story-best-ideas-for-viral-videos/"><u>[New] 2024 Approved Crafting the Perfect Anime Story Best Ideas for Viral Videos</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-examining-video-comments-on-youtube/"><u>[New] 2024 Approved Examining Video Comments on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ssential-low-cost-footage-source-directory/"><u>[New] Essential Low-Cost Footage Source Directory</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ree-mobile-downloader-the-ultimate-apps-for-video-buffs-for-2024/"><u>[New] Free Mobile Downloader The Ultimate Apps for Video Buffs for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-boost-your-online-presence-by-mastering-video-editing-in-sony-vegas/"><u>[New] In 2024, Boost Your Online Presence by Mastering Video Editing in Sony Vegas</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-boosting-channel-profitability-famebit-powered-sponsorship-tactics/"><u>[New] In 2024, Boosting Channel Profitability FameBit-Powered Sponsorship Tactics</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-revolutionize-live-streaming-top-4-approaches-to-record-on-fb-for-2024/"><u>[New] Revolutionize Live Streaming Top 4 Approaches to Record on FB for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/mooth-integration-of-timestamps-into-desktopmobile-youtube-videos-for-2024/"><u>[New] Smooth Integration of Timestamps Into Desktop/Mobile YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-perfect-idea-sparkle-top-youtube-videos-to-energize-your-channel/"><u>[Updated] 2024 Approved The Perfect Idea Sparkle Top YouTube Videos to Energize Your Channel</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/te-content-discovery-the-tubebuddy-way/"><u>Elevate Content Discovery The TubeBuddy Way</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-nokia-c22-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Nokia C22 Phone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/how-to-record-webcam-and-screen-simultaneously/"><u>How to Record Webcam and Screen Simultaneously</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-essential-guide-to-choosing-youtube-friendly-video-formats/"><u>In 2024, The Essential Guide to Choosing YouTube-Friendly Video Formats</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-ultimate-guide-to-channel-evolution-via-studio/"><u>In 2024, The Ultimate Guide to Channel Evolution via Studio</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-unveil-the-secrets-to-excellent-youtube-thumbnails/"><u>In 2024, Unveil the Secrets to Excellent YouTube Thumbnails</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/lyric-learning-labyrinas-accelerated-speech-through-song/"><u>Lyric Learning Labyrinas: Accelerated Speech Through Song</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/step-by-step-guide-uploading-content-from-previous-ios-devices-to-latest-iphone-x-and-android-systems/"><u>Step-by-Step Guide: Uploading Content From Previous iOS Devices to Latest iPhone X and Android Systems</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/techniques-for-stunning-shadow-photography-on-your-iphone-for-2024/"><u>Techniques for Stunning Shadow Photography on Your iPhone for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-effortless-video-import-and-export-tips-and-tricks-for-adobe-premiere-users-for-2024/"><u>Updated Effortless Video Import and Export Tips and Tricks for Adobe Premiere Users for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Next Level Content Workshop for 2024"
-date: 2024-08-08T14:42:18.133Z
-updated: 2024-08-09T14:42:18.133Z
+date: 2025-01-22T04:17:06.114Z
+updated: 2025-01-25T02:00:30.426Z
 tags:
   - ai video
   - ai youtube
@@ -52,8 +52,9 @@ _Nick talks about arriving in New York and goes through the swag box waiting in 
 There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -62,25 +63,27 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ## 4\. Branded slippers
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
 
@@ -89,16 +92,18 @@ _thinknoodles wearing his YouTube slippers._
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -108,9 +113,6 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -119,14 +121,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,4 +134,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/nhancing-views-with-these-premium-tools-for-youtube-seo-for-2024/"><u>[New] Enhancing Views with These Premium Tools for YouTube SEO for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ssential-compliance-rules-for-thriving-on-youtube/"><u>[New] Essential Compliance Rules for Thriving on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-digital-freedom-list-best-10-mp3-makers/"><u>[New] In 2024, Digital Freedom List Best 10 MP3 Makers</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-instant-recording-shutdown-quicktime-hacks/"><u>[New] In 2024, Instant Recording Shutdown QuickTime Hacks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-seamless-screenshot-synergy-for-pc-users/"><u>[New] Seamless Screenshot Synergy for PC Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nleash-your-brands-potential-with-expert-naming-guide/"><u>[New] Unleash Your Brand's Potential with Expert Naming Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-roadmap-for-effective-education-videos-making-a-mark-on-youtube/"><u>[Updated] 2024 Approved The Roadmap for Effective Education Videos - Making a Mark on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-stream-to-youtube-facebook-twitch-and-over-30-platforms/"><u>[Updated] How to Stream to YouTube, Facebook, Twitch and Over 30 Platforms</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-avoiding-common-errors-perfect-tripod-usage-in-video-production/"><u>[Updated] In 2024, Avoiding Common Errors Perfect Tripod Usage in Video Production</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-complete-blueprint-for-success-adding-channels-as-features-on-youtube-for-2024/"><u>[Updated] The Complete Blueprint for Success Adding Channels as Features on Youtube for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/discovering-my-ideal-wrist-companion-the-apple-watch-ultra-2-at-a-sweet-labor-day-discount-insights-from-zdnet/"><u>Discovering My Ideal Wrist Companion: The Apple Watch Ultra 2 at a Sweet Labor Day Discount – Insights From ZDNet</u></a></li>
+<li><a href="https://fox-access.techidaily.com/from-novice-to-expert-film-cameras-you-can-trust/"><u>From Novice to Expert Film Cameras You Can Trust</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/quick-tips-modifying-your-discord-display-image/"><u>Quick Tips: Modifying Your Discord Display Image</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95684149-9781440523878-the-everything-tarot-book/"><u>The Everything Tarot Book | Free Book</u></a></li>
+</ul></div>
 

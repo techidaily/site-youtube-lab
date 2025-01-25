@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, PowerPoint Guide to Adding YouTube Links with Ease"
-date: 2024-08-08T14:35:34.286Z
-updated: 2024-08-09T14:35:34.286Z
+date: 2025-01-21T17:00:01.003Z
+updated: 2025-01-24T23:51:17.004Z
 tags:
   - ai video
   - ai youtube
@@ -30,14 +30,15 @@ When talking about PowerPoint, it is an efficient and powerful tool to prepare a
 
 That said, here you will learn a couple of methods to **embed YouTube video in PowerPoint**.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Insert YouTube Video into PowerPoint? (4 Methods)
 
 After understanding the benefits of have a video embedded to your presentation, it is now time to learn **how to add YouTube video to PowerPoint**.
 
 The four most used methods of getting this done are discussed in detailed in the following sections:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 1: Using YouTube Video’s URL
 
@@ -60,8 +61,9 @@ Launch PowerPoint if it is not already open, go to the slide you want to embed t
 Once the video is added to the PowerPoint slide, drag its frame and reposition it to a suitable location.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Method 2: Embed a YouTube Video with Embed Code (For Microsoft PowerPoint 2016)
 
 Unlike PowerPoint 2019 that accepts URLs and embed codes in a single URL field, MS PowerPoint 2016 lets you choose how you want to insert a video. The step-by-step instructions given below explain how this can be done:
@@ -70,9 +72,6 @@ Unlike PowerPoint 2019 that accepts URLs and embed codes in a single URL field, 
 
 Go to the YouTube video you want to embed to your PowerPoint slide, click the **SHARE** icon from the left area under the video player, click the **Embed** icon in the **Share** box, and click **COPY** from the bottom-right corner of the **Embed Video** box that appears next.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ embed YouTube video code to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-embed-code.jpg)
 
 **Step 2: Get to the PowerPoint’s Insert Video Box**
@@ -82,6 +81,10 @@ Launch MS PowerPoint 2016, click **Insert** from the menu bar at the top, from t
 **Step 3: Embed the Video**
 
 Paste the embed code you copied earlier in the **Paste embed code here** field present next to the **From a Video Embed Code** option, and press **Enter** to **embed YouTube video in PowerPoint**.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 3: Insert YouTube Video into PowerPoint by Searching Names (For Microsoft PowerPoint 2016)
 
@@ -96,8 +99,9 @@ Use the process explained in **Step 2** of **Method 2** to get to the **Insert V
 In the **Search YouTube** field next to the **YouTube** option, type the name of the video you want to search on YouTube, press **Enter**, select the video you want to embed, and click **Insert** to **insert YouTube video into PowerPoint**.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Method 4: Insert Video from PC
 
 Another method to **embed YouTube video in PowerPoint** is by downloading the clip to your PC, and then inserting the footage from there. You can use any free YouTube downloader to obtain a video that is available on YouTube.
@@ -118,10 +122,6 @@ Click the **Video** icon from the **Media** section of the Ribbon, click **Video
 
 Grab any of the six handles of the video you inserted, and drag it inward to decrease the size of the frame. It is advisable to use the corner handle and drag them diagonally to maintain proper aspect ratio of the player’s frame. Next, right-click anywhere inside the frame, click **Format Video** from the context menu, and use the options that appear in the right pane to make necessary adjustments to the clip like color correction, manage brightness and contrast, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## YouTube Embedding Supported PowerPoint Version Checklist
 
 Depending on the version of Microsoft Office you are using, you may or may not be able to embed a YouTube video in PowerPoint. Also, if your version of PowerPoint allows you to do so, the interface and the options may vary from those you see on your friends’ computer or in some online tutorials.
@@ -137,9 +137,6 @@ That said, the following table gives a clear picture of which version of Microso
 | PowerPoint 2010             | No                     | No (Adobe Flash Player Support Discontinued) | No (Adobe Flash Player Support Discontinued) | No                                  |
 | PowerPoint 365/2019 for Mac | Yes                    | No                                           | No                                           | No                                  |
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ### Frequently Asked Questions About Embedding YouTube Videos in PowerPoint
 
 #### 1\. Why Can’t I Embed a YouTube Video in PowerPoint 2010?
@@ -164,20 +161,21 @@ Although the above sections explain **how to embed a YouTube video in PowerPoint
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -186,4 +184,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-relish-in-9-festive-full-length-films-exclusive-youtube-offering/"><u>[New] 2024 Approved Relish in 9 Festive, Full-Length Films Exclusive YouTube Offering</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-hdr-brilliance-justified-choice-or-overkill-for-2024/"><u>[New] HDR Brilliance Justified Choice or Overkill for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-epicurean-escapades-crafting-kitchen-films/"><u>[New] In 2024, Epicurean Escapades Crafting Kitchen Films</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ound-surprises-androidioss-disruptive-selection/"><u>[New] Sound Surprises Android/iOS's Disruptive Selection</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-elevate-your-video-rankings-with-effective-seo-tactics/"><u>[Updated] In 2024, Elevate Your Video Rankings with Effective SEO Tactics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-quick-beats-lasting-impact-navigating-the-world-of-short-music/"><u>2024 Approved Quick Beats, Lasting Impact Navigating the World of Short Music</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-facts-you-need-to-know-about-screen-mirroring-nokia-c210-drfone-by-drfone-android/"><u>3 Facts You Need to Know about Screen Mirroring Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/t-zero-cost-web-based-film-makers/"><u>7 Best Zero-Cost Web-Based Film Makers</u></a></li>
+<li><a href="https://games-able.techidaily.com/analyzing-the-price-point-of-ea-play/"><u>Analyzing the Price Point of EA Play</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-resolve-prolonged-display-turnoff-issues-on-your-iphone-swiftly-and-easily/"><u>How to Resolve Prolonged Display Turnoff Issues on Your iPhone Swiftly and Easily</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-samsung-galaxy-a05-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Samsung Galaxy A05 Without PUK Codes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-step-by-step-guide-transforming-viewers-into-profit/"><u>In 2024, Step-By-Step Guide Transforming Viewers Into Profit</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/oming-the-invisible-screen-hurdle-youtube-fixes/"><u>Overcoming the Invisible Screen Hurdle YouTube Fixes</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/steps-to-rectify-dsounddll-not-located-or-missing-issues-effectively/"><u>Steps to Rectify 'dsound.dll Not Located or Missing' Issues Effectively</u></a></li>
+<li><a href="https://fox-info.techidaily.com/swift-file-salvation-deleted-items-back-on-track/"><u>Swift File Salvation: Deleted Items Back on Track</u></a></li>
+</ul></div>
 
