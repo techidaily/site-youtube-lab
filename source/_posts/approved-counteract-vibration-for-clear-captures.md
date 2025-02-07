@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Counteract Vibration for Clear Captures\""
-date: 2025-01-17T22:06:00.211Z
-updated: 2025-01-25T09:31:17.345Z
+date: 2025-02-03T05:31:18.848Z
+updated: 2025-02-06T23:43:56.444Z
 tags:
   - ai video
   - ai youtube
@@ -33,21 +33,17 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -64,20 +60,20 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -96,6 +92,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -103,10 +103,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -130,6 +126,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -151,22 +151,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-resolved-shorts-display-issue-on-youtube/"><u>[New] 2024 Approved Resolved Shorts Display Issue on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-rookie-riches-economical-channels-for-monetization/"><u>[New] 2024 Approved Rookie Riches Economical Channels for Monetization</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-stream-like-a-champion-youtubes-ultimate-techniques/"><u>[New] 2024 Approved Stream Like a Champion YouTube's Ultimate Techniques</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-tailoring-thumbnails-for-increased-video-engagement-on-youtube/"><u>[New] 2024 Approved Tailoring Thumbnails for Increased Video Engagement on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-the-streamers-crossroad-navigating-between-vimeo-youtube-dailymotion/"><u>[New] 2024 Approved The Streamer's Crossroad Navigating Between Vimeo, YouTube, Dailymotion</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-transforming-channels-with-powerful-visual-branding-strategies/"><u>[New] 2024 Approved Transforming Channels with Powerful Visual Branding Strategies</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-winning-the-subscriber-race-on-youtube/"><u>[New] 2024 Approved Winning the Subscriber Race on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-worldwide-web-watchers-10-top-youtube-stars/"><u>[New] 2024 Approved Worldwide Web Watchers 10 Top YouTube Stars</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/astering-your-content-delivery-insights-on-igtv-and-youtube-for-2024/"><u>[New] Mastering Your Content Delivery Insights on IGTV and YouTube for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-farm-family-bonding-the-ultimate-agritainment-guide/"><u>[Updated] 2024 Approved Farm Family Bonding The Ultimate Agritainment Guide</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-ultimate-drone-shopping-list-ready/"><u>2024 Approved Ultimate Drone Shopping List Ready</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/best-resources-to-explore-for-personalized-text-enhancements-online-for-2024/"><u>Best Resources to Explore for Personalized Text Enhancements Online for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-realme-v30-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Realme V30 Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/maximize-organic-visibility-using-cookiebot-technology-a-leading-edge-in-seo-strategies/"><u>Maximize Organic Visibility Using Cookiebot Technology: A Leading Edge in SEO Strategies</u></a></li>
-<li><a href="https://win-premium.techidaily.com/tutoriel-complet-sur-la-duplication-dun-serveur-physique-vers-une-nouvelle-machine-virtual-dans-vmware/"><u>Tutoriel Complet Sur La Duplication D'un Serveur Physique Vers Une Nouvelle Machine Virtual Dans VMware</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/visualpiece-macbookplusiphone-photo-blend/"><u>VisualPiece MacBook+iPhone Photo Blend</u></a></li>
-<li><a href="https://win11.techidaily.com/why-you-shouldnt-switch-7-benefits-from-using-win10/"><u>Why You Shouldn't Switch: 7 Benefits From Using Win10</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-pros-choice-top-15-luts-for-excellent-gopro-videos/"><u>[New] 2024 Approved Pro's Choice Top 15 LUTs For Excellent GoPro Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/uide-to-youtubes-latest-income-strategies-for-2024/"><u>[New] Guide to YouTube's Latest Income Strategies for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ransform-your-youtube-presence-effortlessly-for-2024/"><u>[New] Transform Your YouTube Presence Effortlessly for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-audio-visual-choreography-for-viral-content/"><u>[Updated] Audio-Visual Choreography for Viral Content</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-tips-for-youtube-thumbnail-size/"><u>[Updated] In 2024, Tips for YouTube Thumbnail Size</u></a></li>
+<li><a href="https://blog-min.techidaily.com/discover-the-ultimate-list-of-mp3-extractors-for-pcs-and-browsers-ranked-by-movavi/"><u>Discover the Ultimate List of MP3 Extractors for PCs and Browsers, Ranked by Movavi</u></a></li>
+<li><a href="https://common-error.techidaily.com/efficiently-using-windows-10s-file-explorer-a-step-by-step-guide/"><u>Efficiently Using Windows 10'S File Explorer: A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ious-youtube-moments-top-10-quirky-short-film-concepts/"><u>Hilarious YouTube Moments Top 10 Quirky Short Film Concepts</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-foremost-spots-for-youtube-video-promotion/"><u>In 2024, Foremost Spots for YouTube Video Promotion</u></a></li>
+<li><a href="https://solve-news.techidaily.com/quick-and-effortless-transformation-of-ac3-into-high-quality-flac-format-for-your-computer/"><u>Quick and Effortless Transformation of AC3 Into High-Quality FLAC Format for Your Computer</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-iphone-15-pros-a-must-have-upgrade-for-tech-enthusiasts-insights-from-zdnet/"><u>Unveiling the iPhone 15 Pros: A Must-Have Upgrade for Tech Enthusiasts - Insights From ZDNet</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nary-graphs-on-upcoming-23-trends/"><u>Visionary Graphs on Upcoming '23 Trends</u></a></li>
 </ul></div>
 

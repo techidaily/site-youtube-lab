@@ -1,7 +1,7 @@
 ---
 title: "[New] Essential Steps to Implement Video Card Anchors on YouTube"
-date: 2025-01-23T03:35:13.120Z
-updated: 2025-01-25T10:08:42.537Z
+date: 2025-02-02T19:16:11.567Z
+updated: 2025-02-06T18:52:31.476Z
 tags:
   - ai video
   - ai youtube
@@ -58,14 +58,14 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -74,14 +74,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -95,13 +91,17 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -142,7 +142,7 @@ No matter what kind of annotations you are using, you should never use more than
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -166,24 +166,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-achieve-10-free-tools-for-thumbnail-extraction/"><u>[New] 2024 Approved Achieve 10 Free Tools for Thumbnail Extraction</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-beyond-blockbuster-horizons-favorite-films/"><u>[New] 2024 Approved Beyond Blockbuster Horizons Favorite Films</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-direct-from-spotify-to-youtube-best-apps-for-streaming-conversions/"><u>[New] 2024 Approved Direct From Spotify to YouTube Best Apps for Streaming Conversions</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-add-featured-channels-on-youtube-a-complete-guide/"><u>[New] 2024 Approved How to Add Featured Channels on YouTube A Complete Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-ignite-imagination-top-inspiration-driven-youtube-content/"><u>[New] 2024 Approved Ignite Imagination Top Inspiration-Driven YouTube Content</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-journey-journaling-paving-your-way-in-the-world-of-travel-vlogging/"><u>[New] 2024 Approved Journey Journaling Paving Your Way in the World of Travel Vlogging</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-monetizing-carryminati-journey-to-2023-income/"><u>[New] 2024 Approved Monetizing CarryMinati Journey to 2023 Income</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-mp3ify-your-favorite-videos-top-free-converters-online/"><u>[New] 2024 Approved MP3ify Your Favorite Videos Top Free Converters Online</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-cutting-edge-zoom-recording-techniques/"><u>[Updated] 2024 Approved Cutting-Edge Zoom Recording Techniques</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-blueprinting-a-buzz-creating-movie-snippet/"><u>[Updated] Blueprinting a Buzz-Creating Movie Snippet</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2023s-leading-vr-game-development-tools-for-2024/"><u>2023'S Leading VR Game Development Tools for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-top-10-gloves-revolutionizing-vr-interaction/"><u>2024 Approved Top 10 Gloves Revolutionizing VR Interaction</u></a></li>
-<li><a href="https://media-tips.techidaily.com/discover-the-latest-verizon-package-featuring-no-commercials-on-netflix-and-amcplus/"><u>Discover the Latest Verizon Package Featuring No Commercials on Netflix & AMC+</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-oppo-a58-4g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Oppo A58 4G Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-scaling-up-likes-in-tiktok-unboxing-videos/"><u>In 2024, Scaling up 'Likes' In TikTok Unboxing Videos</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/installing-nvme-driver-updates-on-windows-quick-and-easy-steps/"><u>Installing NVMe Driver Updates on Windows: Quick and Easy Steps</u></a></li>
-<li><a href="https://common-error.techidaily.com/solving-the-failed-connection-problem-in-overwatch-a-step-by-step-guide/"><u>Solving the 'Failed Connection' Problem in Overwatch: A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-methods-to-capture-youtube-images-for-macwindows-users-for-2024/"><u>Three Methods to Capture YouTube Images for Mac/Windows Users for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-your-payout-per-view-on-sponsored-content-in-youtube/"><u>What's Your Payout Per View on Sponsored Content in Youtube?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-transformative-techniques-to-mute-background-noise/"><u>[New] In 2024, Transformative Techniques to Mute Background Noise</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ero-cost-techniques-for-video-and-text-combination/"><u>[New] Zero-Cost Techniques for Video and Text Combination</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-do-reviewers-get-dollars-for-commentary-for-2024/"><u>[Updated] Do Reviewers Get Dollars for Commentary for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-illuminating-your-content-youtube-video-lighting-secrets/"><u>[Updated] Illuminating Your Content YouTube Video Lighting Secrets</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-channel-success-across-social-networks-youtube-plus-more/"><u>[Updated] In 2024, Channel Success Across Social Networks YouTube + More</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unlisting-youtube-videos-a-guide-to-non-indexable-content/"><u>[Updated] In 2024, Unlisting YouTube Videos A Guide to Non-Indexable Content</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-instant-video-posting-to-twitter-from-phone-avoid-the-retweet-for-2024/"><u>[Updated] Instant Video Posting to Twitter From Phone – Avoid the Retweet for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-downloading-the-latest-hits-top-youtube-playlist-savers-for-pc/"><u>2024 Approved Downloading the Latest Hits Top YouTube Playlist Savers for PC</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-walls-facebooks-policies-now-visible-via-new-hq/"><u>Behind the Walls: Facebook's Policies Now Visible via New HQ</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/cat-s42-resilient-phone-evaluation-unmatched-protection-coupled-with-limited-velocity/"><u>CAT S42 Resilient Phone Evaluation: Unmatched Protection Coupled with Limited Velocity</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/error-resolution-incompatible-data-entry-showing-up-on-screen/"><u>Error Resolution: Incompatible Data Entry Showing Up on Screen</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-controlling-who-sees-your-youtube-productions/"><u>In 2024, Controlling Who Sees Your Youtube Productions</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/macxdvd-unveils-major-update-macxtranscend-v30-now-fully-compatible-with-ios-10-and-iphone-7/"><u>Macxdvd Unveils Major Update: Macxtranscend v3.0 Now Fully Compatible with iOS 10 and iPhone 7</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/on-the-horizon-android-13-release-but-will-it-reach-your-device/"><u>On the Horizon: Android 13 Release - But Will It Reach Your Device?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/passos-facilissimos-para-salvar-uma-conversa-de-video-no-facebook-messenger-com-o-movavi/"><u>Passos Facilíssimos Para Salvar Uma Conversa De Vídeo No Facebook Messenger Com O Movavi</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-guide-returning-purchased-games-via-steams-customer-support/"><u>Ultimate Guide: Returning Purchased Games via Steam's Customer Support</u></a></li>
 </ul></div>
 

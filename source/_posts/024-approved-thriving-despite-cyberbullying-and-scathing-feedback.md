@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Thriving Despite Cyberbullying and Scathing Feedback\""
-date: 2024-07-29T16:59:13.333Z
-updated: 2024-07-30T16:59:13.333Z
+date: 2025-02-05T21:17:30.146Z
+updated: 2025-02-06T22:03:26.642Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/8f68fe379c1fc55633560bfb567af056a8ac88cb0
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/8f68fe379c1fc55633560bfb567af056a8ac88cb0
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://thmb.techidaily.com/8f68fe379c1fc55633560bfb567af056a8ac88cb0
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,14 +68,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,4 +81,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-crafting-a-resume-that-shines-in-design-industry/"><u>[New] 2024 Approved Crafting a Resume that Shines in Design Industry</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-unblock-your-youtube-experience-easy-solutions-for-chromefirefox/"><u>[New] In 2024, Unblock Your YouTube Experience Easy Solutions for Chrome/Firefox</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-your-first-steps-for-youtube-earning-8-methods/"><u>[New] In 2024, Your First Steps for YouTube Earning - 8 Methods</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ource-unlimited-stock-media-from-top-tier-4-youtube-channels-for-2024/"><u>[New] Source Unlimited Stock Media From Top-Tier 4 YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-behind-the-sequence-celebrating-youtubes-top-cosmetics-artists/"><u>2024 Approved Behind the Sequence Celebrating YouTube's Top Cosmetics Artists</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-efficiently-archive-your-gaming-adventures-on-windows-10/"><u>2024 Approved Efficiently Archive Your Gaming Adventures on Windows 10</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-swift-ways-to-reorder-youtube-watchlist-alphabetically/"><u>2024 Approved Swift Ways to Reorder YouTube Watchlist Alphabetically</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-ultimate-microphone-list-for-best-asmr-sound/"><u>2024 Approved The Ultimate Microphone List for Best ASMR Sound</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-critique-of-vivas-video-capabilities-for-2024/"><u>A Critique of Viva's Video Capabilities for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/digital-retrofit-modernizing-windows-11-with-a-98-twist/"><u>Digital Retrofit: Modernizing Windows 11 with a '98 Twist</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/t-conversion-of-spotify-music-5-tools-for-youtube-streaming/"><u>Direct Conversion of Spotify Music 5 Tools for YouTube Streaming</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-msi-afterburner-cant-recognize-graphics-card-in-windows-10-and-11/"><u>How to Fix: MSI Afterburner Can't Recognize Graphics Card in Windows 10 & 11</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, How to Watch Hulu Outside US On Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-the-art-of-crafting-perfect-boomerangs-in-snap/"><u>In 2024, The Art of Crafting Perfect Boomerangs in Snap</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-in-the-world-of-youtube-broadcasting-master-class-for-2024/"><u>Thriving in the World of YouTube Broadcasting Master Class for 2024</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/top-5-tracking-apps-to-track-apple-iphone-6-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>Top 5 Tracking Apps to Track Apple iPhone 6 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/top-strategies-for-troubleshooting-windows-10s-unresponsive-bluetooth-pairing/"><u>Top Strategies for Troubleshooting Windows 10'S Unresponsive Bluetooth Pairing</u></a></li>
+</ul></div>
 

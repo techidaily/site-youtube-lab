@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Understanding the Core of ASMR Media\""
-date: 2024-07-29T17:00:17.979Z
-updated: 2024-07-30T17:00:17.979Z
+date: 2025-02-02T01:11:57.910Z
+updated: 2025-02-06T22:20:54.903Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/533486c883f0e15f79a205d8fe00d7b629c80c76e
 
 # Things About ASMR Video You Should Know
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -53,20 +50,16 @@ In addition, those who are capable of experiencing AMSR cannot initiate the sens
 
 Most ASMR videos are long so that the viewer can take their time to unwind before falling asleep. Whether or not the ASMR video will achieve the desired effect largely depends on the person watching it, because the AMSR trigger the video features may not affect the viewer who is sensitive to different types of stimuli.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Most Common ASMR Triggers
 
 It is still unclear what can trigger an ASMR since scientific research in this field has been scarce. Hence, it is difficult to know exactly what and under which circumstances can initiate such a reaction.
 
 However, this phenomenon can be triggered by the following stimuli:
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ### 1\. Whispering or a Low Soft Voice
 
 This is by far the most common ASMR trigger. Speaking in a low soft voice will likely create a tingling and pleasant sensation that will ultimately relax the listener. Consequently, the vast majority of ASMR video hosts are whispering or speaking softly into the microphone.
@@ -75,19 +68,21 @@ This is by far the most common ASMR trigger. Speaking in a low soft voice will l
 
 The sounds created while turning the pages of a book, crumpling a piece of paper, or typing on a mechanical keyboard can all be potential ASMR triggers. It seems that the pleasant sensation is associated with the repetitiveness of these sounds, as they create a calming atmosphere.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Watching someone perform an everyday task
 
 Seeing someone draw, paint, chop up food, or even write on a piece of paper can trigger the ASMR. Some people find the visual aspect of these actions relaxing, which in turn helps them get rid of the stress and sleep better.
 
 <!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\. Sounds generated while a person is eating or drinking
 
 Chewing food loudly or slurping can generate a tingling sensation at the top of your head that later spreads through the entire body.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Getting attention
 
@@ -97,20 +92,22 @@ Although almost everyone likes receiving attention, some people have a strong AS
 
 Some people have the ability to trigger ASMR consciously without having to resort to audio or visual stimuli. However, this is quite rare as most members of the ASMR community rely on video and audio content to trigger the ASMR.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. Tapping on a surface
 
 Tapping on the surface of a microphone or the surface of plastic or metal objects is yet another common ASMR trigger. The reparative tapping sound initiates a pleasant sensation that relaxes a person.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 8\. A hand touching a face
 
 Tactile stimuli like a hand touching a face are known to be ASMR triggers. Besides touching a face, touching someone’s hand or hair can also trigger ASMR.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 9\. Hearing a particular genre of music
 
 People who love music often have a physical reaction to it. Hearing your favorite genre of music can produce the ASMR sensation.
@@ -119,9 +116,6 @@ People who love music often have a physical reaction to it. Hearing your favorit
 
 This ASMR trigger is frequently used in ASMR videos. Like all other audio ASMR triggers, blowing air into a microphone can help a person relax and fall asleep.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Makes ASMR Videos So Popular?
 
 A little over a year ago there were more than 13 million ASMR videos on YouTube, which shows vividly how popular this genre of video has become. Moreover, the videos containing hosts and animals eating different types of food have amassed billions of views.
@@ -129,8 +123,9 @@ A little over a year ago there were more than 13 million ASMR videos on YouTube,
 The stressful lives we all lead, boredom, or simply the need to experience something different are the most common reasons why people watch ASMR videos. In addition, the viewers of these videos suggest that they help them deal with depression, anxiety, and other psychological problems. Over the course of the last decade, the ASMR videos have risen from obscurity to become one of the most popular genres of YouTube videos largely due to their uniqueness and their relaxing nature.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Where to Find ASMR videos?
 
 A simple google search will reveal a variety of ASMR videos, since all major video hosting platforms like YouTube, Instagram, Twitch, or Vimeo offer a broad selection of ASMR videos. Their contents vary from simple videos of hosts whispering into a microphone to carefully planned and staged role plays. Also, you try installing the app called Tingles on your Smartphone if you want to have access to a huge collection of ASMR triggers.
@@ -153,14 +148,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -169,4 +161,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-youtube-video-aspect-ratio-guide-optimal-upload-sizes/"><u>[New] 2024 Approved YouTube Video Aspect Ratio Guide Optimal Upload Sizes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/voiding-storage-woes-removing-youtube-media-for-2024/"><u>[New] Avoiding Storage Woes Removing YouTube Media for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ive-into-filmoras-certified-creative-program-for-2024/"><u>[New] Dive Into Filmora’s Certified Creative Program for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/onetizing-video-how-much-does-a-single-streamer-earn-for-2024/"><u>[New] Monetizing Video How Much Does a Single Streamer Earn for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-mastering-free-melodies-a-guide-for-youtube-producers/"><u>[Updated] 2024 Approved Mastering Free Melodies A Guide for YouTube Producers</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-tips-and-tricks-for-exceptional-steam-playback-footage/"><u>[Updated] 2024 Approved Tips and Tricks for Exceptional Steam Playback Footage</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-avoid-the-biggest-slip-ups-for-new-youtube-enthusiasts/"><u>[Updated] How to Avoid the Biggest Slip-Ups for New YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-guaranteed-safe-approaches-for-turning-youtube-songs-into-mp3-files/"><u>[Updated] In 2024, Guaranteed Safe Approaches for Turning YouTube Songs Into MP3 Files</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-whats-youtube-creative-commons-and-how-to-use-it-to-make-video/"><u>[Updated] What's YouTube Creative Commons and How to Use It to Make Video</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-capturing-perfection-a-deep-dive-into-nikon-d7500/"><u>2024 Approved Capturing Perfection A Deep Dive Into Nikon D7500</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-where-creators-converge-and-craft-visual-stories-in-youtube-studio/"><u>2024 Approved Where Creators Converge and Craft Visual Stories in Youtube Studio</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-samsung-galaxy-a05-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/discord-camera-malfunction-heres-how-you-can-resolve-it-now/"><u>Discord Camera Malfunction? Here's How You Can Resolve It Now!</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-the-official-samsung-m220-drivers-now/"><u>Download the Official Samsung M2#20-Drivers Now!</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-easy-tutorial-for-activating-icloud-from-iphone-12-pro-max-safe-and-legal-by-drfone-ios/"><u>In 2024, Easy Tutorial for Activating iCloud from iPhone 12 Pro Max Safe and Legal</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-elite-channel-analyzer-top-youtube-positioning-tool/"><u>In 2024, Elite Channel Analyzer Top YouTube Positioning Tool</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-screen-and-webcam-recording-made-easy-top-10-windows-10-software/"><u>New In 2024, Screen and Webcam Recording Made Easy Top 10 Windows 10 Software</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-music-from-oppo-reno-9a-by-fonelab-android-recover-music/"><u>The way to get back lost music from Oppo Reno 9A</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723015550205-troubleshooting-onikuma-headsets-non-functional-mic-fixed-now/"><u>Troubleshooting Onikuma Headset's Non-Functional Mic - Fixed Now</u></a></li>
+</ul></div>
 

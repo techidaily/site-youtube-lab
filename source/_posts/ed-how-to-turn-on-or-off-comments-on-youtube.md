@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Turn on or Off Comments on YouTube"
-date: 2025-01-20T14:39:51.410Z
-updated: 2025-01-25T11:03:26.476Z
+date: 2025-02-03T05:36:25.457Z
+updated: 2025-02-06T20:16:36.041Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,6 @@ Use your favorite web browser to go to YouTube and sign in to your Google accoun
 
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 2: Go to Channel’s Advanced Settings
 
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
@@ -56,7 +52,7 @@ From the bottom of the left pane, click the **Settings** icon, click **Channel**
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3: Turn Off Comments
@@ -71,15 +67,15 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
 
@@ -128,14 +124,10 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -153,6 +145,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -166,6 +162,10 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -188,22 +188,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-capturing-moments-with-the-best-5-photo-and-video-apps-for-iphonesandroid/"><u>[New] 2024 Approved Capturing Moments with the Best 5 Photo & Video Apps for iPhones/Android</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-chorus-of-creators-guidelines-for-sharing-sounds-online/"><u>[New] 2024 Approved Chorus of Creators Guidelines for Sharing Sounds Online</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-endless-creativity-free-youtube-art-resources/"><u>[New] 2024 Approved Endless Creativity FREE YouTube Art Resources</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-gaming-hits-with-powerful-hashtag-strategies/"><u>[New] 2024 Approved Gaming Hits with Powerful Hashtag Strategies</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-add-video-to-text-for-free/"><u>[New] 2024 Approved How to Add Video to Text for Free</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-premium-peak-predictor-unveil-top-8-rankings/"><u>[New] 2024 Approved Premium Peak Predictor Unveil Top 8 Rankings</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-dynamic-fitness-series-ideas-to-enhance-viewer-retention-for-2024/"><u>[New] 5 Dynamic Fitness Series Ideas to Enhance Viewer Retention for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-effortless-methods-to-archive-slideshows/"><u>[Updated] In 2024, Effortless Methods to Archive Slideshows</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-your-go-to-tools-for-screen-recording/"><u>[Updated] In 2024, Your Go-To Tools for Screen Recording</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-on-guide-to-optimize-your-youtube-channels-with-adsense-for-2024/"><u>Hands-On Guide to Optimize Your YouTube Channels with AdSense for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-premier-tools-upload-and-convert-vids-for-tweeting/"><u>In 2024, Premier Tools Upload & Convert Vids for Tweeting</u></a></li>
-<li><a href="https://fox-access.techidaily.com/navigate-the-past-reversing-media-on-iphones-for-2024/"><u>Navigate the Past Reversing Media on iPhones for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/quick-data-retrieval-on-pc-adopting-everythingapp/"><u>Quick Data Retrieval on PC: Adopting EverythingApp</u></a></li>
-<li><a href="https://windows11.techidaily.com/shine-bright-again-the-5-must-do-fixes-for-dead-backlight-on-windows/"><u>Shine Bright Again: The 5 Must-Do Fixes for Dead Backlight on Windows</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/software-editare-video-gratuita-cel-mai-performant-pentru-windows-vechi-7-la-gura-in-2024/"><u>Software Editare Video Gratuita Cel Mai Performant Pentru Windows Vechi (7) La Gura În 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/omplete-playbook-for-broadcasting-spherical-content-on-youtube/"><u>The Complete Playbook for Broadcasting Spherical Content on Youtube</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/understanding-the-408-request-timed-out-error-causes-and-solutions/"><u>Understanding the 408 Request Timed Out Error: Causes and Solutions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-essential-guidelines-to-create-impactful-youtube-banners/"><u>[Updated] 2024 Approved Essential Guidelines to Create Impactful YouTube Banners</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-eye-appeal-the-top-3-ways-to-increase-instagram-visibility/"><u>[Updated] Eye Appeal The Top 3 Ways to Increase Instagram Visibility</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-enhance-video-production-7-best-free-sounds-for-editors/"><u>[Updated] In 2024, Enhance Video Production - 7 Best Free Sounds for Editors</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-5-good-book-trailer-examples/"><u>2024 Approved 5 Good Book Trailer Examples</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-best-apps-for-3d-video-intros-on-social-platforms/"><u>2024 Approved Best Apps for 3D Video Intros on Social Platforms</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/experience-effortless-wireless-network-expansion-with-the-tp-link-deco-p9-reviewed-here/"><u>Experience Effortless Wireless Network Expansion with the TP-Link Deco P9 Reviewed Here!</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-channel-visualization-selecting-the-ideal-size-and-placement-for-yt/"><u>In 2024, Channel Visualization Selecting the Ideal Size and Placement for YT</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-harness-your-view-count-cross-platform-studio-methods/"><u>In 2024, Harness Your View Count Cross-Platform Studio Methods</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-secrets-to-saving-switch-gameplay-on-video/"><u>In 2024, Secrets to Saving Switch Gameplay on Video</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/er-vids-for-rapid-channelnode-growth-for-2024/"><u>Partner Vids for Rapid Channelnode Growth for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-roadmap-for-seamless-screen-recording-using-adobe-captivity-for-2024/"><u>The Roadmap for Seamless Screen Recording Using Adobe Captivity for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-ultimate-checklist-for-transforming-your-tiktok-handle/"><u>The Ultimate Checklist for Transforming Your TikTok Handle</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/errupted-access-to-9-premium-christmas-films-enjoyment-at-zero-cost/"><u>Uninterrupted Access to 9 Premium Christmas Films Enjoyment at Zero Cost</u></a></li>
 </ul></div>
 
