@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  YouTube's User Interface for Comment Management\""
-date: 2025-01-07T14:00:52.223Z
-updated: 2025-01-13T04:20:38.088Z
+date: 2025-02-14T16:27:24.682Z
+updated: 2025-02-16T17:51:06.218Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Keeping all these points in mind, the following sections explain **how to enable
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -44,6 +48,10 @@ If you don’t want any comments on any of the videos that you publish, you must
 Use your favorite web browser to go to YouTube and sign in to your Google account. Click your profile picture from the top-right corner of the webpage, and click **YouTube Studio** from the menu that appears.
 
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 2: Go to Channel’s Advanced Settings
 
@@ -64,7 +72,7 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\. Define Acceptable Comment Types
@@ -74,7 +82,7 @@ Click the **Settings** icon from the bottom of the left pane one more time. On t
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
@@ -123,15 +131,7 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -150,7 +150,7 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -188,20 +188,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-hardware-hurdles-whats-necessary-for-big-sur-for-2024/"><u>[New] Hardware Hurdles What's Necessary for Big Sur for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ow-to-craft-engaging-trailers-that-drive-channels-sales-for-2024/"><u>[New] How to Craft Engaging Trailers that Drive Channels' Sales for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-magixs-legacy-in-vectors-finding-future-software/"><u>[New] In 2024, Magix's Legacy in Vectors Finding Future Software</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-perfect-tripod-positioning-for-quality-vlogs/"><u>[New] In 2024, Perfect Tripod Positioning for Quality Vlogs</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-introducing-sw320s-visionary-approach-to-4k-monitoring/"><u>[New] Introducing Sw320’s Visionary Approach to 4K Monitoring</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/93099493-updated-2024-approved-best-free-youtube-ending-creators-top-6-picks/"><u>[Updated] 2024 Approved Best Free YouTube Ending Creators - Top 6 Picks!</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-demystifying-youtube-premium-membership-benefits/"><u>[Updated] 2024 Approved Demystifying YouTube Premium Membership Benefits</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-editors-compendium-top-devices-transforming-media-projects/"><u>[Updated] 2024 Approved Editor's Compendium Top Devices Transforming Media Projects</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-seek-out-stimulating-youtube-snippets/"><u>[Updated] In 2024, Seek Out Stimulating YouTube Snippets</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/effortless-file-conversion-convert-your-nsv-media-to-wmv-format-on-the-go-using-moveavi/"><u>Effortless File Conversion - Convert Your NSV Media to WMV Format on the Go Using Moveavi</u></a></li>
-<li><a href="https://techidaily.com/full-guide-to-hard-reset-your-tecno-spark-10-pro-drfone-by-drfone-reset-android-reset-android/"><u>Full Guide to Hard Reset Your Tecno Spark 10 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-guide-the-ultimate-list-of-video-converters/"><u>In 2024, Guide The Ultimate List of Video Converters</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/reviving-missing-videos-expert-strategies-from-yl-computings-top-solutions/"><u>Reviving Missing Videos: Expert Strategies From YL Computing's Top Solutions</u></a></li>
-<li><a href="https://win11.techidaily.com/the-5-best-procreate-alternatives-for-windows/"><u>The 5 Best Procreate Alternatives for Windows</u></a></li>
-<li><a href="https://article-files.techidaily.com/the-finest-unboxing-content-15-top-ranked-youtube-vids-for-2024/"><u>The Finest Unboxing Content 15 Top-Ranked YouTube Vids for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-unleash-your-brands-potential-with-expert-naming-guide/"><u>[New] In 2024, Unleash Your Brand's Potential with Expert Naming Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/urn-your-tactical-talks-into-a-thriving-youtube-trade/"><u>[New] Turn Your Tactical Talks Into a Thriving YouTube Trade</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-copycat-cinema-steps-for-satirical-video-making/"><u>[Updated] 2024 Approved Copycat Cinema Steps for Satirical Video Making</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-create-professional-minecraft-graphics-for-2024/"><u>[Updated] Create Professional Minecraft Graphics for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unlock-6-free-youtube-endings-for-pros/"><u>[Updated] In 2024, Unlock 6 Free YouTube Endings for Pros!</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-mastering-desktop-image-blending-techniques/"><u>[Updated] Mastering Desktop Image Blending Techniques</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mastering-zero-cost-youtube-intros-essential-tips-and-templates/"><u>[Updated] Mastering Zero-Cost YouTube Intros Essential Tips & Templates</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-navigating-youtubes-landscape-a-beginners-primer-for-2024/"><u>[Updated] Navigating YouTube's Landscape A Beginner's Primer for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-virtual-battles-real-money-gamer-prospects-2024/"><u>[Updated] Virtual Battles, Real Money Gamer Prospects 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-omnipresent-connectors-identifying-the-right-cms/"><u>2024 Approved Omnipresent Connectors Identifying the Right CMS</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comprehensive-ereader-showdown-ipad-vs-kindle-vs-nook/"><u>Comprehensive eReader Showdown: IPad Vs. Kindle Vs. Nook</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-transition-tunes-mastering-crossfading-in-music/"><u>In 2024, Transition Tunes Mastering Crossfading in Music</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/learn-how-to-use-dvd-play-and-rip-with-our-step-by-step-faq-for-gratis-download-of-windows-dvd-ripper-software/"><u>Learn How To Use DVD Play & Rip With Our Step-by-Step Faq for Gratis Download of Windows DVD Ripper Software</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/liberating-your-media-experience-free-movplay-software/"><u>Liberating Your Media Experience Free MOV/PLAY Software</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-powerful-performance-of-the-kensun-portable-air-compressor/"><u>Unveiling the Powerful Performance of the Kensun Portable Air Compressor</u></a></li>
 </ul></div>
 

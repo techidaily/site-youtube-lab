@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Cutting-Edge Techniques for Excellent Sound, No Mic Included\""
-date: 2025-02-02T06:24:42.899Z
-updated: 2025-02-06T18:26:43.685Z
+date: 2025-02-15T16:43:54.948Z
+updated: 2025-02-16T16:57:33.762Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
@@ -65,10 +69,6 @@ There’s more that goes into picking a good room than how quiet it is. If you t
 You should also pay attention to what’s in the room you’re recording in. Avoid hard, reflective, surfaces like appliances and mirrors which your voice will bounce off of. The same conditions that make you sound great when you sing in the shower will – like recording in a small space -make your voiceover unpleasantly echo-y.
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
 
@@ -85,7 +85,7 @@ If your built-in mic is on top of your camera you can get something called a ‘
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
@@ -93,7 +93,7 @@ _You use the adhesive backing to attach the base velcro to your camera. The othe
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Use a Free Audio App
@@ -103,10 +103,6 @@ If you’re recording on a smartphone, you can download a free app that will let
 Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
 
@@ -122,10 +118,14 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -149,21 +149,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/hannel-success-strategy-standard-studio-or-beta-edge-for-2024/"><u>[New] Channel Success Strategy Standard Studio or Beta Edge for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-creative-commons-legalities-explained-simply/"><u>[New] In 2024, Creative Commons Legalities Explained Simply</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/he-mobility-of-art-filming-and-thumbnail-design-for-youtubes/"><u>[New] The Mobility of Art Filming and Thumbnail Design for YouTubes</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-crossing-thresholds-in-ctas-anticipating-fb-ad-shifts/"><u>[Updated] In 2024, Crossing Thresholds in CTAs Anticipating FB Ad Shifts</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-infographic-guide-effective-video-promotion-tools/"><u>[Updated] In 2024, Infographic Guide Effective Video Promotion Tools</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-prime-choices-for-valheims-agricultural-success-for-2024/"><u>[Updated] Prime Choices for Valheim's Agricultural Success for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-harmonious-social-media-incorporating-soundtracks-into-fb-videos/"><u>2024 Approved Harmonious Social Media Incorporating Soundtracks Into FB Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-optimal-voice-modification-software-for-video-makers/"><u>2024 Approved Optimal Voice Modification Software for Video Makers</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/icloud-unlocker-download-unlock-icloud-lock-for-your-apple-iphone-xs-by-drfone-ios/"><u>iCloud Unlocker Download Unlock iCloud Lock for your Apple iPhone XS</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ney-no-problem-adding-videos-to-written-pieces-for-2024/"><u>No Money, No Problem Adding Videos to Written Pieces for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-resolution-of-the-critical-error-0x800f020b-during-xerox-printer-updates-in-windows/"><u>Step-by-Step Resolution of the Critical Error 0X800F020b During Xerox Printer Updates in Windows</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-art-of-pinpointing-perfect-pexels-photographs-for-2024/"><u>The Art of Pinpointing Perfect Pexels Photographs for 2024</u></a></li>
-<li><a href="https://discover-cheats.techidaily.com/top-no-cost-file-synchronization-tools-replacing-synctoy-on-windows-111087/"><u>Top No-Cost File Synchronization Tools Replacing SyncToy on Windows 11/10/8/7</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-honor-90-pro-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Honor 90 Pro without Him Knowing | Dr.fone</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-effortless-gopro-video-editing-a-beginners-guide/"><u>Updated Effortless GoPro Video Editing A Beginners Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/al-artisans-haven-retreat-for-2024/"><u>Virtual Artisans' Haven Retreat for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nveiling-excellent-video-keywords-on-youtube/"><u>[New] Unveiling Excellent Video Keywords on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-mapping-memorable-media-metaphors/"><u>[Updated] 2024 Approved Mapping Memorable Media Metaphors</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-streaming-success-monetization-unlocked-with-500-subscribers/"><u>[Updated] 2024 Approved Streaming Success Monetization Unlocked with 500 Subscribers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-chortle-chronicles-recording-7-amusing-video-adventures-for-2024/"><u>[Updated] Chortle Chronicles Recording 7 Amusing Video Adventures for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-exclusive-software-gamers-streaming-companions/"><u>[Updated] Exclusive Software Gamers' Streaming Companions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-professional-tricks-for-youtube-audio-amplification/"><u>[Updated] In 2024, Professional Tricks for YouTube Audio Amplification</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-enigma-of-unlisted-deciphering-hidden-youtube-footage/"><u>[Updated] In 2024, The Enigma of 'Unlisted' Deciphering Hidden YouTube Footage</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-innovative-methods-for-iphone-image-arrangement/"><u>[Updated] Innovative Methods for iPhone Image Arrangement</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-premium-notebooks-select-the-best-for-professional-edits/"><u>[Updated] Premium Notebooks Select the Best for Professional Edits</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-maximizing-engagement-ideal-youtube-thumbnail-dimensions/"><u>2024 Approved Maximizing Engagement Ideal YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/aerial-artistry-mastering-the-craft-of-drone-video-editing/"><u>Aerial Artistry Mastering the Craft of Drone Video Editing</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-motorola-moto-g73-5g-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Motorola Moto G73 5G</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-key-steps-to-preserve-and-broadcast-live-sports-successfully/"><u>In 2024, Key Steps to Preserve & Broadcast Live Sports Successfully</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/tackling-the-launch-delay-fixes-for-football-manager-2021s-stalled-startup-sequence/"><u>Tackling the Launch Delay: Fixes for Football Manager 2021'S Stalled Startup Sequence</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/windows-compatible-drivers-for-your-logitech-high-definition-c52er-camera/"><u>Windows-Compatible Drivers for Your Logitech High Definition C52er Camera</u></a></li>
 </ul></div>
 

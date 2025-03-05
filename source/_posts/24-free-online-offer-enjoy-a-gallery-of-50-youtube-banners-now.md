@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Free Online Offer  Enjoy a Gallery of 50 YouTube Banners Now\""
-date: 2025-01-04T01:12:25.984Z
-updated: 2025-01-06T19:09:53.677Z
+date: 2025-02-10T18:12:42.126Z
+updated: 2025-02-16T18:00:44.341Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,6 @@ Here’s what you’ll be getting:
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. YouTube Banners for Beauty Channels
 
 Beauty, makeup, fashion, and lifestyle YouTubers are always there with advice and tutorials, helping the world look and feel better with every video. These channel art templates reflect the different tones and messages found in the complex genre of beauty.
@@ -78,19 +74,11 @@ This banner is simple, fun, and ideal for channels that have a positive message.
 
 ![YouTube Beauty Banner](https://images.wondershare.com/filmora/article-images/youtube-banner-for-beauty-channels-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Beauty Banner 4: Hello, Sunshine
 
 Bright, upbeat, and sunshiney! This cheerful banner background feels young and fresh.
 
 ![YouTube Beauty Banner](https://images.wondershare.com/filmora/article-images/youtube-banner-for-beauty-channels-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Beauty Banner 5: Cool Watercolors
 
@@ -130,10 +118,6 @@ Denim and funky doodles are the perfect combinations for showing off your fun, c
 
 Creative, colorful, splatters might be the best way to let your viewers know they can expect fantastical things from you. This one’s great for any type of channel, but especially great for crafts and lifestyle.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. YouTube Banners for Comedy Channels
 
 A lot of viewers go to YouTube to laugh, and the banner for a comedy channel is all about letting someone who found one of your videos funny know there’s more like it on the way. There are banners here for different styles of comedy, so you can choose the one that fits your brand of funny.
@@ -168,6 +152,10 @@ In an endless sea of identical rubber duckies, you’re that wonderful bird that
 
 This is a serious business comedy banner. It’s such serious business that it might actually be good for a short film channel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Comic-Inspired YouTube Banners
 
 These channel art templates were inspired by comic book artwork. They’ll be great for channels that talk about comics or comic book movies, but there’s also some great stuff here for comedy or gaming channels.
@@ -191,10 +179,6 @@ This bright, exciting, banner is inspired by comic book panels. Whether you revi
 Are you a hero in your own mind? This banner could be perfect for any type of channel, so long as the person running it has a larger-than-life personality.
 
 ![Comic Banner 4: Defender of the City](https://images.wondershare.com/filmora/article-images/comic-inspired-youtube-banners-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Comic Banner 4: Defender of the City
 
@@ -230,10 +214,6 @@ This banner says that you think learning should be fun! This is a better choice 
 
  ![Education Banner 4: Classroom](https://images.wondershare.com/filmora/article-images/youtube-banners-for-education-channels-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Education Banner 4: Classroom
 
 This banner was designed with teachers in mind, but it’s a good choice for anyone who wants to educate kids.
@@ -244,15 +224,15 @@ This banner was designed with teachers in mind, but it’s a good choice for any
 
 Another great choice for teachers, this banner suggests you might be teaching subjects like art or music in addition to math and science.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 6\. Funky YouTube Banners
 
 You’ll find a little bit of everything in this category. These banners weren’t designed for different types of YouTube channels; they were designed for different types of personalities. If you’re looking for something that communicates who you are loud and clear, you might find it in this section.
 
 ![Funky Banner 1: Urban Graffiti](https://images.wondershare.com/filmora/article-images/funky-youtube-banners-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Funky Banner 1: Urban Graffiti
 
@@ -282,11 +262,19 @@ A bright, modern, banner for bright, modern, YouTubers. It’s fun, but it’s s
 
 This summer-inspired banner is both very on-trend, and a great seasonal choice for any lifestyle, beauty, or vlog channel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 7\. Galaxy YouTube Banners Featuring Outer Space
 
 Space-themed banners have become popular with a lot of different types of channels, from gaming to vlogging to comedy. We’ve put together some awesome space scenes for you to choose from.
 
 ![Galaxy Banner 1: Colorful Space](https://images.wondershare.com/filmora/article-images/galaxy-youtube-banners-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Galaxy Banner 1: Colorful Space
 
@@ -312,10 +300,6 @@ This banner would be great for an educational space or science channel. It could
 
  ![Galaxy Banner 5: Nebula](https://images.wondershare.com/filmora/article-images/galaxy-youtube-banners-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Galaxy Banner 5: Nebula
 
 An epic, gorgeous, space scene that is both cool and inspiring. Are you cool or inspiring? Consider using this in your channel art.
@@ -338,6 +322,10 @@ It’s kill or be killed out there, but your mission is important and you’re g
 
  ![Gaming Banner 3: Special Ops](https://images.wondershare.com/filmora/article-images/youtube-banners-for-gaming-channels-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Gaming Banner 3: Special Ops
 
 Mount the perfect tactical strike against YouTube viewers’ eyeballs with this gaming-themed channel art template.
@@ -349,6 +337,10 @@ Mount the perfect tactical strike against YouTube viewers’ eyeballs with this 
 Choose a banner that says you’ve got real skills to show off. This channel art template is inspired by shooters and tactical games.
 
 ![Gaming Banner 5: Esports Champ](https://images.wondershare.com/filmora/article-images/youtube-banners-for-gaming-channels-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Gaming Banner 5: Esports Champ
 
@@ -367,7 +359,7 @@ This tidy white and baby blue banner will be great for anybody who stresses bala
 ![Minimalist Banner 2: Serious Business](https://images.wondershare.com/filmora/article-images/minimalist-youtube-banners-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Minimalist Banner 2: Serious Business
@@ -388,6 +380,10 @@ This serene channel art template will be ideal for anyone who champions wellness
 
 ![Minimalist Banner 5: Parentheses](https://images.wondershare.com/filmora/article-images/minimalist-youtube-banners-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Minimalist Banner 5: Parentheses
 
 Minimalism doesn’t have to be soft. This bold, simple, red banner is for YouTubers who want to be a bit louder.
@@ -404,15 +400,15 @@ This channel art template is for creators who are also adventurers. Do you love 
 
 ![Travel Banner 2: Wanderlust](https://images.wondershare.com/filmora/article-images/youtube-banners-for-travel-channels-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Travel Banner 2: Wanderlust
 
 This postcard-themed banner is for the globetrotting travel vlogger. Backpackers, and anyone else determined to see the world and make videos about it, might want to consider this channel art.
 
 ![Travel Banner 3: Beachy](https://images.wondershare.com/filmora/article-images/youtube-banners-for-travel-channels-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Travel Banner 3: Beachy
 
@@ -436,6 +432,10 @@ Which of these YouTube banners is your favorite? And which video editing softwar
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -457,19 +457,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-automate-your-snapshot-backup-from-snapchat-app/"><u>[New] Automate Your Snapshot Backup From Snapchat App</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ssential-tips-for-producing-engaging-educational-content-for-youtube/"><u>[New] Essential Tips for Producing Engaging Educational Content for YouTube</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-beginning-with-youtube-essential-steps-to-create-your-space/"><u>[Updated] 2024 Approved Beginning with YouTube Essential Steps to Create Your Space</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-from-editing-to-sharing-using-premiere-with-youtube/"><u>[Updated] 2024 Approved From Editing to Sharing Using Premiere with YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-premium-screener-tech-perfect-for-youtube-videos/"><u>[Updated] 2024 Approved Premium Screener Tech Perfect for YouTube Videos</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-video-content-battlefront-short-form-supremacy-youtubes-vs-tiktoks/"><u>[Updated] 2024 Approved Video Content Battlefront Short Form Supremacy – YouTubes Vs. TikToks</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-crafting-artistry-your-ultimate-companion-for-boomerangs-for-2024/"><u>[Updated] Crafting Artistry Your Ultimate Companion for Boomerangs for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-how-to-snip-and-save-from-youtube-the-ultimate-guide/"><u>[Updated] In 2024, How to Snip and Save From YouTube The Ultimate Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-creative-splitscreens-in-youtube-filmmaking/"><u>[Updated] In 2024, Mastering Creative Splitscreens in YouTube Filmmaking</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unveiling-the-top-5-non-youtube-editing-choices/"><u>[Updated] In 2024, Unveiling the Top 5 Non-YouTube Editing Choices</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-top-ranked-hd-screen-replay-units/"><u>[Updated] Top-Ranked HD Screen Replay Units</u></a></li>
-<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-motorola-razr-40-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Motorola Razr 40</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/effective-fixes-for-when-your-lenovo-computers-fn-key-stops-working/"><u>Effective Fixes for When Your Lenovo Computer's Fn Key Stops Working</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-freezes-in-rocket-league-tips-and-solutions/"><u>Troubleshooting Freezes in Rocket League - Tips & Solutions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/rom-long-winded-to-concise-the-art-of-youtube-trimming/"><u>[New] From Long-Winded to Concise The Art of YouTube Trimming</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-7-star-rated-apps-for-effortless-youtube-live-broadcast-from-iphone-and-android/"><u>[Updated] 2024 Approved 7 Star-Rated Apps for Effortless YouTube LIVE Broadcast From iPhone and Android</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-exploring-8-truly-effective-video-marketing-strategies/"><u>[Updated] 2024 Approved Exploring 8 Truly Effective Video Marketing Strategies</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-first-steps-in-ps-essential-editing-techniques-unlocked/"><u>[Updated] 2024 Approved First Steps in PS Essential Editing Techniques Unlocked</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-from-fringe-to-mainstream-highlighting-top-10-gender-balanced-youtubers/"><u>[Updated] In 2024, From Fringe to Mainstream Highlighting Top 10 Gender-Balanced YouTubers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-ignite-engagement-how-to-employ-youtubes-featured-channel-spotlighting-strategies/"><u>[Updated] In 2024, Ignite Engagement How to Employ YouTube’s Featured Channel Spotlighting Strategies</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-film-makers-guide-to-selecting-between-hero-and-cube-videos/"><u>2024 Approved Film Maker's Guide to Selecting Between Hero and Cube Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-step-into-worlds-youtubes-premier-selection-of-vr-movies/"><u>2024 Approved Step Into Worlds YouTube's Premier Selection of VR Movies</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/facebook-featured-best-10-music-clips-today-for-2024/"><u>Facebook Featured Best 10 Music Clips Today for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nic-hub-curating-exceptional-dj-visual-downloads-for-2024/"><u>Harmonic Hub Curating Exceptional DJ Visual Downloads for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-itel-p55-5g-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Itel P55 5G Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-find-x7-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Oppo Find X7 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-win11s-zenith-achieved-with-advanced-zoom-usage/"><u>In 2024, Win11's Zenith Achieved with Advanced Zoom Usage</u></a></li>
+<li><a href="https://driver-install.techidaily.com/install-latest-logitech-mouse-on-windows-10/"><u>Install Latest Logitech Mouse on Windows 10</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/orm-faceoff-for-quick-viewers-a-clash-between-youtube-shorts-and-tiktok/"><u>Platform Faceoff for Quick Viewers A Clash Between YouTube Shorts and TikTok</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/resolving-audio-codec-drivers-for-intels-idt-hd-sound-in-windows-11-step-by-step-tutorial/"><u>Resolving Audio Codec Drivers for Intel's IDT HD Sound in Windows 11 - Step-by-Step Tutorial</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ess-transition-transferring-exclusive-youtube-content-to-gmail/"><u>Seamless Transition Transferring Exclusive YouTube Content to Gmail</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/streamline-your-study-avoiding-edgenuity-videos-efficiently/"><u>Streamline Your Study Avoiding Edgenuity Videos Efficiently</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-nubia-z50-ultra-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Nubia Z50 Ultra</u></a></li>
 </ul></div>
 

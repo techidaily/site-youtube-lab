@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Idea to Execution  An Essential Guide to YouTube Shorts Template Design\""
-date: 2024-08-08T14:27:09.361Z
-updated: 2024-08-09T14:27:09.361Z
+date: 2025-02-15T17:15:52.678Z
+updated: 2025-02-16T17:40:07.215Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,10 @@ As a result of the popularity of YouTube Shorts, many creators are now turning t
 There are a few ways to monetize your YouTube Shorts videos and turn them into a source of profit. One way is through YouTube's built-in monetization options, such as displaying ads on your videos, sponsorships, and affiliate marketing. Another way is to use your Shorts videos' popularity to promote your products or services.
 
 You can also use YouTube Shorts to drive traffic to your website, where you can sell products or services. Collaborating with brands and promoting their products in your videos can also be a great way to monetize your content. It's important to remember that building a sizable audience and creating high-quality content is key to monetizing your YouTube Shorts.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Benefits of Using Templates to Create YouTube Shorts
 
@@ -97,6 +101,10 @@ Step 5\. Click the "**Export**" button on the upper part to save your clip.
 
 When creating YouTube Shorts, it is important to remember that these videos are vertical. You can easily find vertical video templates in Filmora's template library. So select the one that best fits your needs and style.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step-by-Step Guide to Use YouTube Shorts Video Templates With Filmora for Mobile
 
 Creating professional-looking YouTube Shorts on mobile devices is now more accessible than ever. This step-by-step guide will show you how to use Filmora's video templates feature to create visually appealing YouTube Shorts on your mobile device.
@@ -154,114 +162,16 @@ Fashion YouTube Shorts templates are pre-designed video templates that can be us
 **4\. Life Style Shorts Template**
 
 ![life style shorts template](https://images.wondershare.com/filmora/article-images/life-style-shorts-template.jpg)
-
-Lifestyle YouTube Shorts templates often include elements such as different lifestyle scenes, like traveling, cooking, home decor, and DIY projects, and can be easily customized to suit the creator's specific needs and aesthetic. They can create various videos, including travel vlogs, recipe videos, and DIY tutorials.
-
-## Conclusion
-
-YouTube Shorts are a great way to connect with your audience and promote your brand. Using a video editor like Filmora, you can easily create high-quality YouTube Shorts using templates. Filmora offers various video templates that can be used to create YouTube Shorts, including templates for events, sports, fashion, and lifestyle.
-
-Filmora templates are fully customizable, meaning you can change the text, images, and colors to match your brand. These templates can be found in Filmora's library, making it easy for users to find the perfect template for their YouTube Short. With the help of Filmora, you can easily create professional-looking YouTube Shorts that stand out and capture your audience's attention.
-
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
-
-### Step-by-Step Guide to Create YouTube Shorts With Templates Using Filmora for Desktop
-
-Creating professional-looking YouTube Shorts can be time-consuming and daunting, especially if you have limited experience with video editing. However, using a video editor like Filmora, you can easily create high-quality YouTube Shorts using templates. This step-by-step guide will show you how to use Filmora's video templates feature to create visually appealing YouTube Shorts on your desktop.
-
-Step 1\. Start Wondershare Filmora on your computer. On the "**Templates"** tab, you will find a variety of component templates to choose from.
-
-![filmora template tab](https://images.wondershare.com/filmora/article-images/filmora-template-tab.jpg)
-
-Step 2\. Select the template you want to use and **place** it on the timeline point.
-
-![filmora drag template](https://images.wondershare.com/filmora/article-images/filmora-drag-template.jpg)
-
-Step 3\. Add your videos, pictures, and audio files to the designated placeholders in the template to replace the sample ones.
-
-![filmora add media](https://images.wondershare.com/filmora/article-images/filmora-add-media.jpg)
-
-Step 4\. Trim, edit the clip or add other **effects, texts** and **stickers** as you like.
-
-![edit template filmora](https://images.wondershare.com/filmora/article-images/filmora-desktop-edit-template.jpg)
-
-Step 5\. Click the "**Export**" button on the upper part to save your clip.
-
-![filmora export video](https://images.wondershare.com/filmora/article-images/filmora-desktop-export-video.jpg)
-
-When creating YouTube Shorts, it is important to remember that these videos are vertical. You can easily find vertical video templates in Filmora's template library. So select the one that best fits your needs and style.
-
-### Step-by-Step Guide to Use YouTube Shorts Video Templates With Filmora for Mobile
-
-Creating professional-looking YouTube Shorts on mobile devices is now more accessible than ever. This step-by-step guide will show you how to use Filmora's video templates feature to create visually appealing YouTube Shorts on your mobile device.
-
-**Step 1\. Install** the Filmora app on your device, then **open** it.
-
-![open filmora app](https://images.wondershare.com/filmora/article-images/filmora-template.jpg)
-
-**Step 2\. Tap** the "**Template**" button on the screen's bottom right.
-
-![filmora app template](https://images.wondershare.com/filmora/article-images/filmora-choose-template.jpg)
-
-**Step 3\. Select** the template you wish to use.
-
-**Step 4\. Press** the "**Make Video**" button to **download** the chosen template.
-
-![make video with template](https://images.wondershare.com/filmora/article-images/filmora-download-template.jpg)
-
-**Step 5\. Add** the necessary footage to **edit** the template, then tap "**Next**."
-
-![tap next](https://images.wondershare.com/filmora/article-images/filmora-edit-template.jpg)
-
-**Step 6**. You can preview the video and make any necessary changes.
-
-![preview video filmora app](https://images.wondershare.com/filmora/article-images/filmora-video-preview.jpg)
-
-**Step 7\. Tap** the "**Export**" button to **save** the completed video.
-
-![export video filmora app](https://images.wondershare.com/filmora/article-images/filmora-export-video.jpg)
-
-If you want to learn more about using Filmora's video templates feature to create YouTube Shorts on your mobile device, we recommend watching this video tutorial:
-
-## YouTube Shorts Video Template Resources in Filmora
-
-Filmora offers a wide variety of video templates that can be used to create YouTube Shorts. These templates include various themes such as an event, sports, fashion, lifestyle, and more. These templates can be found in Filmora's library, making it easy for users to find the perfect template for their YouTube Short.
-
-**1\. Event YouTube Shorts Template**
-
-![event shorts template](https://images.wondershare.com/filmora/article-images/event-youtube-shorts-template.jpg)
-
-Event YouTube Shorts Templates are an interactive way for creators to showcase their events dynamically and engagingly. These templates come with pre-designed elements such as animations, backgrounds, and text styles that are perfect for highlighting the key moments and creating excitement among the audience. It's an effective way to make the event more engaging and interactive for the audience.
-
-**2\. Sports YouTube Shorts Video Template**
-
-![sports youtube shorts video](https://images.wondershare.com/filmora/article-images/sports-youtube-shorts-video-template.jpg)
-
-Sports YouTube Shorts video templates are pre-designed, customizable video templates for creating short, engaging sports-related content for YouTube's Shorts feature. These templates often include scoreboards, team logos, and highlights footage and can be easily customized with your text, images, and videos. They are ideal for sports teams, athletes, and content creators looking to quickly and easily create professional-looking videos.
-
-**3\. Fashion YouTube Shorts Template**
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-![fashion youtube shorts template](https://images.wondershare.com/filmora/article-images/fashion-youtube-shorts-template.jpg)
-
-Fashion YouTube Shorts templates are pre-designed video templates that can be used to create visually appealing and engaging content for fashion-related YouTube Shorts. These templates often include elements such as fashion models, clothing and accessory displays, and trendy backgrounds and can be easily customized to suit the creator's specific needs and aesthetic. They can be used to create various types of videos, including fashion lookbooks, product reviews, and styling tutorials.
-
-**4\. Life Style Shorts Template**
-
-![life style shorts template](https://images.wondershare.com/filmora/article-images/life-style-shorts-template.jpg)
 
 Lifestyle YouTube Shorts templates often include elements such as different lifestyle scenes, like traveling, cooking, home decor, and DIY projects, and can be easily customized to suit the creator's specific needs and aesthetic. They can create various videos, including travel vlogs, recipe videos, and DIY tutorials.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -278,6 +188,120 @@ Creating professional-looking YouTube Shorts can be time-consuming and daunting,
 Step 1\. Start Wondershare Filmora on your computer. On the "**Templates"** tab, you will find a variety of component templates to choose from.
 
 ![filmora template tab](https://images.wondershare.com/filmora/article-images/filmora-template-tab.jpg)
+
+Step 2\. Select the template you want to use and **place** it on the timeline point.
+
+![filmora drag template](https://images.wondershare.com/filmora/article-images/filmora-drag-template.jpg)
+
+Step 3\. Add your videos, pictures, and audio files to the designated placeholders in the template to replace the sample ones.
+
+![filmora add media](https://images.wondershare.com/filmora/article-images/filmora-add-media.jpg)
+
+Step 4\. Trim, edit the clip or add other **effects, texts** and **stickers** as you like.
+
+![edit template filmora](https://images.wondershare.com/filmora/article-images/filmora-desktop-edit-template.jpg)
+
+Step 5\. Click the "**Export**" button on the upper part to save your clip.
+
+![filmora export video](https://images.wondershare.com/filmora/article-images/filmora-desktop-export-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+When creating YouTube Shorts, it is important to remember that these videos are vertical. You can easily find vertical video templates in Filmora's template library. So select the one that best fits your needs and style.
+
+### Step-by-Step Guide to Use YouTube Shorts Video Templates With Filmora for Mobile
+
+Creating professional-looking YouTube Shorts on mobile devices is now more accessible than ever. This step-by-step guide will show you how to use Filmora's video templates feature to create visually appealing YouTube Shorts on your mobile device.
+
+**Step 1\. Install** the Filmora app on your device, then **open** it.
+
+![open filmora app](https://images.wondershare.com/filmora/article-images/filmora-template.jpg)
+
+**Step 2\. Tap** the "**Template**" button on the screen's bottom right.
+
+![filmora app template](https://images.wondershare.com/filmora/article-images/filmora-choose-template.jpg)
+
+**Step 3\. Select** the template you wish to use.
+
+**Step 4\. Press** the "**Make Video**" button to **download** the chosen template.
+
+![make video with template](https://images.wondershare.com/filmora/article-images/filmora-download-template.jpg)
+
+**Step 5\. Add** the necessary footage to **edit** the template, then tap "**Next**."
+
+![tap next](https://images.wondershare.com/filmora/article-images/filmora-edit-template.jpg)
+
+**Step 6**. You can preview the video and make any necessary changes.
+
+![preview video filmora app](https://images.wondershare.com/filmora/article-images/filmora-video-preview.jpg)
+
+**Step 7\. Tap** the "**Export**" button to **save** the completed video.
+
+![export video filmora app](https://images.wondershare.com/filmora/article-images/filmora-export-video.jpg)
+
+If you want to learn more about using Filmora's video templates feature to create YouTube Shorts on your mobile device, we recommend watching this video tutorial:
+
+## YouTube Shorts Video Template Resources in Filmora
+
+Filmora offers a wide variety of video templates that can be used to create YouTube Shorts. These templates include various themes such as an event, sports, fashion, lifestyle, and more. These templates can be found in Filmora's library, making it easy for users to find the perfect template for their YouTube Short.
+
+**1\. Event YouTube Shorts Template**
+
+![event shorts template](https://images.wondershare.com/filmora/article-images/event-youtube-shorts-template.jpg)
+
+Event YouTube Shorts Templates are an interactive way for creators to showcase their events dynamically and engagingly. These templates come with pre-designed elements such as animations, backgrounds, and text styles that are perfect for highlighting the key moments and creating excitement among the audience. It's an effective way to make the event more engaging and interactive for the audience.
+
+**2\. Sports YouTube Shorts Video Template**
+
+![sports youtube shorts video](https://images.wondershare.com/filmora/article-images/sports-youtube-shorts-video-template.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Sports YouTube Shorts video templates are pre-designed, customizable video templates for creating short, engaging sports-related content for YouTube's Shorts feature. These templates often include scoreboards, team logos, and highlights footage and can be easily customized with your text, images, and videos. They are ideal for sports teams, athletes, and content creators looking to quickly and easily create professional-looking videos.
+
+**3\. Fashion YouTube Shorts Template**
+
+![fashion youtube shorts template](https://images.wondershare.com/filmora/article-images/fashion-youtube-shorts-template.jpg)
+
+Fashion YouTube Shorts templates are pre-designed video templates that can be used to create visually appealing and engaging content for fashion-related YouTube Shorts. These templates often include elements such as fashion models, clothing and accessory displays, and trendy backgrounds and can be easily customized to suit the creator's specific needs and aesthetic. They can be used to create various types of videos, including fashion lookbooks, product reviews, and styling tutorials.
+
+**4\. Life Style Shorts Template**
+
+![life style shorts template](https://images.wondershare.com/filmora/article-images/life-style-shorts-template.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+Lifestyle YouTube Shorts templates often include elements such as different lifestyle scenes, like traveling, cooking, home decor, and DIY projects, and can be easily customized to suit the creator's specific needs and aesthetic. They can create various videos, including travel vlogs, recipe videos, and DIY tutorials.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Conclusion
+
+YouTube Shorts are a great way to connect with your audience and promote your brand. Using a video editor like Filmora, you can easily create high-quality YouTube Shorts using templates. Filmora offers various video templates that can be used to create YouTube Shorts, including templates for events, sports, fashion, and lifestyle.
+
+Filmora templates are fully customizable, meaning you can change the text, images, and colors to match your brand. These templates can be found in Filmora's library, making it easy for users to find the perfect template for their YouTube Short. With the help of Filmora, you can easily create professional-looking YouTube Shorts that stand out and capture your audience's attention.
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+### Step-by-Step Guide to Create YouTube Shorts With Templates Using Filmora for Desktop
+
+Creating professional-looking YouTube Shorts can be time-consuming and daunting, especially if you have limited experience with video editing. However, using a video editor like Filmora, you can easily create high-quality YouTube Shorts using templates. This step-by-step guide will show you how to use Filmora's video templates feature to create visually appealing YouTube Shorts on your desktop.
+
+Step 1\. Start Wondershare Filmora on your computer. On the "**Templates"** tab, you will find a variety of component templates to choose from.
+
+![filmora template tab](https://images.wondershare.com/filmora/article-images/filmora-template-tab.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 2\. Select the template you want to use and **place** it on the timeline point.
 
@@ -449,6 +473,10 @@ Fashion YouTube Shorts templates are pre-designed video templates that can be us
 
 ![life style shorts template](https://images.wondershare.com/filmora/article-images/life-style-shorts-template.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lifestyle YouTube Shorts templates often include elements such as different lifestyle scenes, like traveling, cooking, home decor, and DIY projects, and can be easily customized to suit the creator's specific needs and aesthetic. They can create various videos, including travel vlogs, recipe videos, and DIY tutorials.
 
 ## Conclusion
@@ -468,8 +496,6 @@ Filmora templates are fully customizable, meaning you can change the text, image
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -478,6 +504,22 @@ Filmora templates are fully customizable, meaning you can change the text, image
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-professional-gif-designers-choice-list/"><u>[New] 2024 Approved Professional GIF Designers' Choice List</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/aximizing-your-youtube-investments-through-famebit-networking-tactics/"><u>[New] Maximizing Your YouTube Investments Through FameBit Networking Tactics</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-most-essential-5-earbuds-for-gaming/"><u>[Updated] 2024 Approved The Most Essential 5 Earbuds for Gaming</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-content-distribution-showdown-vimeo-vs-youtubes-and-dailymotions/"><u>[Updated] Content Distribution Showdown Vimeo vs YouTubes and DailyMotions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boosting-youtube-videos-activating-av1-support/"><u>[Updated] In 2024, Boosting YouTube Videos Activating AV1 Support</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-laughters-legacy-the-process-of-parody-film-making-for-2024/"><u>[Updated] Laughter's Legacy The Process of Parody Film-Making for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-dive-into-youtube-tv-tips-and-tricks-for-optimal-viewing/"><u>2024 Approved Dive Into YouTube TV Tips & Tricks for Optimal Viewing</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-sprint-towards-subscriber-goal-reach-1000/"><u>2024 Approved Sprint Towards Subscriber Goal Reach 1,000</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-spotify-playlists-into-a-youtube-music-format/"><u>Adapting Spotify Playlists Into a YouTube Music Format</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ngs-engineering-crafting-a-high-yield-strategy-for-your-youtube-channel/"><u>Earnings Engineering Crafting a High Yield Strategy for Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-edit-with-ease-10-video-to-mp3-tools-of-the-trade/"><u>In 2024, Edit with Ease #10 Video-to-Mp3 Tools of the Trade</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-experience-unlimited-recording-review-of-free-screen-tools-for-cameras/"><u>In 2024, Experience Unlimited Recording – Review of Free Screen Tools for Cameras</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-motorola-moto-g-stylus-5g-2023-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Motorola Moto G Stylus 5G (2023) Phone without Any Data Loss</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-itel-p55-5g-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Itel P55 5G</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/umental-showcase-highlighting-the-best-15-video-techniques-for-2024/"><u>Instrumental Showcase Highlighting the Best 15 Video Techniques for 2024</u></a></li>
+</ul></div>
 

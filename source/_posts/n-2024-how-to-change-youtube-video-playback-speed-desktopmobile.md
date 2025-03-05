@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Change YouTube Video Playback Speed [Desktop/Mobile]"
-date: 2025-01-30T21:41:01.092Z
-updated: 2025-02-07T08:44:07.776Z
+date: 2025-02-09T18:29:05.135Z
+updated: 2025-02-16T18:32:22.232Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ More so, you could want to save time while playing your choice YouTube video and
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Change YouTube's Playback Speed on Computer
 
 To **fast-forward YouTube** playback videos or slow it down on the computer, you must follow the proper steps. Changing **YouTube's playback speed** on a computer is not a complex thing to do. You can achieve it if you follow the steps we will show you.
@@ -49,20 +53,176 @@ Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0
 
 ![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
 
+These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
+
+To do this, go back to playback speed. Select **custom** in the top-right side of the pop-up menu**,** then adjust the speed using a slider that you will see there.
+
+**Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
+
+## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
+
+If you are watching a YouTube Video on your computer and want to adjust the playback speed, you can change the speed with keyboard shortcuts.
+
+Here's another way to adjust the **playback speed of YouTube** videos more quickly.
+
+To **fast-forward the YouTube** video, press your shift button and hold down, then tap your greater than(>) symbol on your keyboard. Your **YouTube playback speed** will increase by 0.25 as you keep tapping.
+
+To reduce the **playback speed YouTube** videos, the reverse is the case. Press and hold down the shift tab, then tap less than the (<) symbol.
+
+Changing the playback speed using these keyboard shortcuts increases by 0.25 increments. You have to use custom if you want other values, as earlier mentioned.
+
+The best thing about this method of changing the speed is that you can do it while watching the movie or while paused.
+
+## Part 3: How to Change YouTube's Video Playback Speed on Mobile
+
+If you'd like to know **how to speed up YouTube videos** on your Android, iPhone, or iPad, here's it.
+
+First, you must open your YouTube App on your device and play the video you want to watch.
+
+Then tap the video once, and it will bring up the toolbar.
+
+At the top right corner, select the vertically aligned three dots. This will bring out a menu for you—select playback speed.
+
+![youtube playback speed option mobile](https://images.wondershare.com/filmora/article-images/youtube-playback-speed-option-mobile.jpg)
+
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Then you will see a list containing the preset speed provided by YouTube.
+
+![change youtube video speed mobile](https://images.wondershare.com/filmora/article-images/change-youtube-video-speed-mobile.jpg)
+
+1 is the average speed. Any value below than 1 will slow down the video, while any value above it will increase it.
+
+Once done, close the menu, and the video will resume from where it stopped.
+
+## Part 4: How YouTube's Playback Speed Controls Work?
+
+YouTube has an added feature known as 'playback speed.' This feature allows you to select a speed from 0.25x to 2x the normal speed. With this **YouTube's speed control**, 1 is the normal speed, with 0.25 being one-quarter (1/4th) of the actual speed and slowing the video. In the same vein, 2x is twice the average speed, increasing the video speed.
+
+However, in as much as **YouTube speed control** slows or speeds up the video, it does not change the pitch of the video. All it does is either expand or compress the video samples while still maintaining the video or audio pitch. It would still sound like the podcaster or video blogger is just talking faster or slower.
+
+Music would still maintain the same musical key and pitch while playing faster or slower.
+
+If you are watching a presentation or interview that seems like everyone is talking like they have all the time in the world, you can **fast forward YouTube** video by using the feature.
+
+Also, you can slow down a tutorial or the video you are watching if you feel they are too fast using this **YouTube speed control**.
+
+**Conclusion**
+
+**YouTube speed control** has made it easier to change **YouTube playback speed** to either speed up or slow down the video. This enables you to capture important moments or information you may miss if the video was fast. Also, you can save time and get to the information you are searching for as soon as possible by speeding the YouTube video.
+
+02 [How to Change Video Speed with Keyboard Shortcuts on YouTube](#part2)
+
+03 [How to Change YouTube's Video Playback Speed on Mobile](#part3)
+
+04 [How YouTube's Playback Speed Controls Work?](#part4)
+
+05 [How to Change a YouTube Video's Speed Online](#part5)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+## Part 1: How to Change YouTube's Playback Speed on Computer
+
+To **fast-forward YouTube** playback videos or slow it down on the computer, you must follow the proper steps. Changing **YouTube's playback speed** on a computer is not a complex thing to do. You can achieve it if you follow the steps we will show you.
+
+On the website, you can manually alter the **YouTube video's playback speed** with your computer while watching it.
+
+To start, at the bottom right corner of your YouTube video, click the **gear wheel icon** there. You'll see a list of other settings like quality, subtitles, and playback speed.
+
+Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0.75x, normal, 1.25x, 1.5x, 1.75 x to 2.0x.
+
+![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
 
 These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
 
 To do this, go back to playback speed. Select **custom** in the top-right side of the pop-up menu**,** then adjust the speed using a slider that you will see there.
 
 **Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
+
+## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
+
+If you are watching a YouTube Video on your computer and want to adjust the playback speed, you can change the speed with keyboard shortcuts.
+
+Here's another way to adjust the **playback speed of YouTube** videos more quickly.
+
+To **fast-forward the YouTube** video, press your shift button and hold down, then tap your greater than(>) symbol on your keyboard. Your **YouTube playback speed** will increase by 0.25 as you keep tapping.
+
+To reduce the **playback speed YouTube** videos, the reverse is the case. Press and hold down the shift tab, then tap less than the (<) symbol.
+
+Changing the playback speed using these keyboard shortcuts increases by 0.25 increments. You have to use custom if you want other values, as earlier mentioned.
+
+The best thing about this method of changing the speed is that you can do it while watching the movie or while paused.
+
+## Part 3: How to Change YouTube's Video Playback Speed on Mobile
+
+If you'd like to know **how to speed up YouTube videos** on your Android, iPhone, or iPad, here's it.
+
+First, you must open your YouTube App on your device and play the video you want to watch.
+
+Then tap the video once, and it will bring up the toolbar.
+
+At the top right corner, select the vertically aligned three dots. This will bring out a menu for you—select playback speed.
+
+![youtube playback speed option mobile](https://images.wondershare.com/filmora/article-images/youtube-playback-speed-option-mobile.jpg)
+
+Then you will see a list containing the preset speed provided by YouTube.
+
+![change youtube video speed mobile](https://images.wondershare.com/filmora/article-images/change-youtube-video-speed-mobile.jpg)
+
+1 is the average speed. Any value below than 1 will slow down the video, while any value above it will increase it.
+
+Once done, close the menu, and the video will resume from where it stopped.
+
+## Part 4: How YouTube's Playback Speed Controls Work?
+
+YouTube has an added feature known as 'playback speed.' This feature allows you to select a speed from 0.25x to 2x the normal speed. With this **YouTube's speed control**, 1 is the normal speed, with 0.25 being one-quarter (1/4th) of the actual speed and slowing the video. In the same vein, 2x is twice the average speed, increasing the video speed.
+
+However, in as much as **YouTube speed control** slows or speeds up the video, it does not change the pitch of the video. All it does is either expand or compress the video samples while still maintaining the video or audio pitch. It would still sound like the podcaster or video blogger is just talking faster or slower.
+
+Music would still maintain the same musical key and pitch while playing faster or slower.
+
+If you are watching a presentation or interview that seems like everyone is talking like they have all the time in the world, you can **fast forward YouTube** video by using the feature.
+
+Also, you can slow down a tutorial or the video you are watching if you feel they are too fast using this **YouTube speed control**.
+
+**Conclusion**
+
+**YouTube speed control** has made it easier to change **YouTube playback speed** to either speed up or slow down the video. This enables you to capture important moments or information you may miss if the video was fast. Also, you can save time and get to the information you are searching for as soon as possible by speeding the YouTube video.
+
+02 [How to Change Video Speed with Keyboard Shortcuts on YouTube](#part2)
+
+03 [How to Change YouTube's Video Playback Speed on Mobile](#part3)
+
+04 [How YouTube's Playback Speed Controls Work?](#part4)
+
+05 [How to Change a YouTube Video's Speed Online](#part5)
 
 <!-- affiliate ads begin -->
 <iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
+## Part 1: How to Change YouTube's Playback Speed on Computer
+
+To **fast-forward YouTube** playback videos or slow it down on the computer, you must follow the proper steps. Changing **YouTube's playback speed** on a computer is not a complex thing to do. You can achieve it if you follow the steps we will show you.
+
+On the website, you can manually alter the **YouTube video's playback speed** with your computer while watching it.
+
+To start, at the bottom right corner of your YouTube video, click the **gear wheel icon** there. You'll see a list of other settings like quality, subtitles, and playback speed.
+
+Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0.75x, normal, 1.25x, 1.5x, 1.75 x to 2.0x.
+
+![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
+
+These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
+
+To do this, go back to playback speed. Select **custom** in the top-right side of the pop-up menu**,** then adjust the speed using a slider that you will see there.
+
+**Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
+
 ## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
 
 If you are watching a YouTube Video on your computer and want to adjust the playback speed, you can change the speed with keyboard shortcuts.
@@ -89,13 +249,13 @@ At the top right corner, select the vertically aligned three dots. This will bri
 
 ![youtube playback speed option mobile](https://images.wondershare.com/filmora/article-images/youtube-playback-speed-option-mobile.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Then you will see a list containing the preset speed provided by YouTube.
 
 ![change youtube video speed mobile](https://images.wondershare.com/filmora/article-images/change-youtube-video-speed-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1 is the average speed. Any value below than 1 will slow down the video, while any value above it will increase it.
 
@@ -136,100 +296,20 @@ To start, at the bottom right corner of your YouTube video, click the **gear whe
 Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0.75x, normal, 1.25x, 1.5x, 1.75 x to 2.0x.
 
 ![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
-
-These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
-
-To do this, go back to playback speed. Select **custom** in the top-right side of the pop-up menu**,** then adjust the speed using a slider that you will see there.
-
-**Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
-
-## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
-
-If you are watching a YouTube Video on your computer and want to adjust the playback speed, you can change the speed with keyboard shortcuts.
-
-Here's another way to adjust the **playback speed of YouTube** videos more quickly.
-
-To **fast-forward the YouTube** video, press your shift button and hold down, then tap your greater than(>) symbol on your keyboard. Your **YouTube playback speed** will increase by 0.25 as you keep tapping.
-
-To reduce the **playback speed YouTube** videos, the reverse is the case. Press and hold down the shift tab, then tap less than the (<) symbol.
-
-Changing the playback speed using these keyboard shortcuts increases by 0.25 increments. You have to use custom if you want other values, as earlier mentioned.
-
-The best thing about this method of changing the speed is that you can do it while watching the movie or while paused.
 
 <!-- affiliate ads begin -->
 <iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
-## Part 3: How to Change YouTube's Video Playback Speed on Mobile
-
-If you'd like to know **how to speed up YouTube videos** on your Android, iPhone, or iPad, here's it.
-
-First, you must open your YouTube App on your device and play the video you want to watch.
-
-Then tap the video once, and it will bring up the toolbar.
-
-At the top right corner, select the vertically aligned three dots. This will bring out a menu for you—select playback speed.
-
-![youtube playback speed option mobile](https://images.wondershare.com/filmora/article-images/youtube-playback-speed-option-mobile.jpg)
-
-Then you will see a list containing the preset speed provided by YouTube.
-
-![change youtube video speed mobile](https://images.wondershare.com/filmora/article-images/change-youtube-video-speed-mobile.jpg)
-
-1 is the average speed. Any value below than 1 will slow down the video, while any value above it will increase it.
-
-Once done, close the menu, and the video will resume from where it stopped.
-
-## Part 4: How YouTube's Playback Speed Controls Work?
-
-YouTube has an added feature known as 'playback speed.' This feature allows you to select a speed from 0.25x to 2x the normal speed. With this **YouTube's speed control**, 1 is the normal speed, with 0.25 being one-quarter (1/4th) of the actual speed and slowing the video. In the same vein, 2x is twice the average speed, increasing the video speed.
-
-However, in as much as **YouTube speed control** slows or speeds up the video, it does not change the pitch of the video. All it does is either expand or compress the video samples while still maintaining the video or audio pitch. It would still sound like the podcaster or video blogger is just talking faster or slower.
-
-Music would still maintain the same musical key and pitch while playing faster or slower.
-
-If you are watching a presentation or interview that seems like everyone is talking like they have all the time in the world, you can **fast forward YouTube** video by using the feature.
-
-Also, you can slow down a tutorial or the video you are watching if you feel they are too fast using this **YouTube speed control**.
-
-**Conclusion**
-
-**YouTube speed control** has made it easier to change **YouTube playback speed** to either speed up or slow down the video. This enables you to capture important moments or information you may miss if the video was fast. Also, you can save time and get to the information you are searching for as soon as possible by speeding the YouTube video.
-
-02 [How to Change Video Speed with Keyboard Shortcuts on YouTube](#part2)
-
-03 [How to Change YouTube's Video Playback Speed on Mobile](#part3)
-
-04 [How YouTube's Playback Speed Controls Work?](#part4)
-
-05 [How to Change a YouTube Video's Speed Online](#part5)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-## Part 1: How to Change YouTube's Playback Speed on Computer
-
-To **fast-forward YouTube** playback videos or slow it down on the computer, you must follow the proper steps. Changing **YouTube's playback speed** on a computer is not a complex thing to do. You can achieve it if you follow the steps we will show you.
-
-On the website, you can manually alter the **YouTube video's playback speed** with your computer while watching it.
-
-To start, at the bottom right corner of your YouTube video, click the **gear wheel icon** there. You'll see a list of other settings like quality, subtitles, and playback speed.
-
-Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0.75x, normal, 1.25x, 1.5x, 1.75 x to 2.0x.
-
-![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
 
 To do this, go back to playback speed. Select **custom** in the top-right side of the pop-up menu**,** then adjust the speed using a slider that you will see there.
 
 **Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
 
@@ -257,101 +337,21 @@ At the top right corner, select the vertically aligned three dots. This will bri
 
 ![youtube playback speed option mobile](https://images.wondershare.com/filmora/article-images/youtube-playback-speed-option-mobile.jpg)
 
-Then you will see a list containing the preset speed provided by YouTube.
-
-![change youtube video speed mobile](https://images.wondershare.com/filmora/article-images/change-youtube-video-speed-mobile.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-
-1 is the average speed. Any value below than 1 will slow down the video, while any value above it will increase it.
-
-Once done, close the menu, and the video will resume from where it stopped.
-
-## Part 4: How YouTube's Playback Speed Controls Work?
-
-YouTube has an added feature known as 'playback speed.' This feature allows you to select a speed from 0.25x to 2x the normal speed. With this **YouTube's speed control**, 1 is the normal speed, with 0.25 being one-quarter (1/4th) of the actual speed and slowing the video. In the same vein, 2x is twice the average speed, increasing the video speed.
-
-However, in as much as **YouTube speed control** slows or speeds up the video, it does not change the pitch of the video. All it does is either expand or compress the video samples while still maintaining the video or audio pitch. It would still sound like the podcaster or video blogger is just talking faster or slower.
-
-Music would still maintain the same musical key and pitch while playing faster or slower.
-
-If you are watching a presentation or interview that seems like everyone is talking like they have all the time in the world, you can **fast forward YouTube** video by using the feature.
-
-Also, you can slow down a tutorial or the video you are watching if you feel they are too fast using this **YouTube speed control**.
-
-**Conclusion**
-
-**YouTube speed control** has made it easier to change **YouTube playback speed** to either speed up or slow down the video. This enables you to capture important moments or information you may miss if the video was fast. Also, you can save time and get to the information you are searching for as soon as possible by speeding the YouTube video.
-
-02 [How to Change Video Speed with Keyboard Shortcuts on YouTube](#part2)
-
-03 [How to Change YouTube's Video Playback Speed on Mobile](#part3)
-
-04 [How YouTube's Playback Speed Controls Work?](#part4)
-
-05 [How to Change a YouTube Video's Speed Online](#part5)
-
-## Part 1: How to Change YouTube's Playback Speed on Computer
-
-To **fast-forward YouTube** playback videos or slow it down on the computer, you must follow the proper steps. Changing **YouTube's playback speed** on a computer is not a complex thing to do. You can achieve it if you follow the steps we will show you.
-
-On the website, you can manually alter the **YouTube video's playback speed** with your computer while watching it.
-
-To start, at the bottom right corner of your YouTube video, click the **gear wheel icon** there. You'll see a list of other settings like quality, subtitles, and playback speed.
-
-Select **playback speed,** and you will see a list of speeds from 0.25x, 0.5x, 0.75x, normal, 1.25x, 1.5x, 1.75 x to 2.0x.
-
-![change youtube video playback speed option](https://images.wondershare.com/filmora/article-images/change-youtube-video-playback-speed-option.jpg)
-
-These are preset speeds. If they are not suitable for you, you will have to select a custom speed, but they must be in the same range of 0.25x to 2.0x.
-
-To do this, go back to playback speed. Select **custom** in the top-right side of the pop-up menu**,** then adjust the speed using a slider that you will see there.
-
-**Related**: [How to Make a YouTube Video](https://tools.techidaily.com/wondershare/filmora/download/).
-
-## Part 2: How to Change Video Speed with Keyboard Shortcuts on YouTube
-
-If you are watching a YouTube Video on your computer and want to adjust the playback speed, you can change the speed with keyboard shortcuts.
-
-Here's another way to adjust the **playback speed of YouTube** videos more quickly.
-
-To **fast-forward the YouTube** video, press your shift button and hold down, then tap your greater than(>) symbol on your keyboard. Your **YouTube playback speed** will increase by 0.25 as you keep tapping.
-
-To reduce the **playback speed YouTube** videos, the reverse is the case. Press and hold down the shift tab, then tap less than the (<) symbol.
-
-Changing the playback speed using these keyboard shortcuts increases by 0.25 increments. You have to use custom if you want other values, as earlier mentioned.
-
-The best thing about this method of changing the speed is that you can do it while watching the movie or while paused.
-
-## Part 3: How to Change YouTube's Video Playback Speed on Mobile
-
-If you'd like to know **how to speed up YouTube videos** on your Android, iPhone, or iPad, here's it.
-
-First, you must open your YouTube App on your device and play the video you want to watch.
-
-Then tap the video once, and it will bring up the toolbar.
-
-At the top right corner, select the vertically aligned three dots. This will bring out a menu for you—select playback speed.
-
-![youtube playback speed option mobile](https://images.wondershare.com/filmora/article-images/youtube-playback-speed-option-mobile.jpg)
 
 Then you will see a list containing the preset speed provided by YouTube.
 
 ![change youtube video speed mobile](https://images.wondershare.com/filmora/article-images/change-youtube-video-speed-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1 is the average speed. Any value below than 1 will slow down the video, while any value above it will increase it.
 
 Once done, close the menu, and the video will resume from where it stopped.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How YouTube's Playback Speed Controls Work?
 
@@ -390,24 +390,16 @@ Also, you can slow down a tutorial or the video you are watching if you feel the
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-essential-ios-gif-apps-compendium-for-latest-iphones/"><u>[New] Essential iOS GIF Apps Compendium for Latest iPhones</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/dentifying-and-accessing-your-music-picks-on-youtube-for-2024/"><u>[New] Identifying and Accessing Your Music Picks on Youtube for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-ps4-broadcasting-basics-with-a-focus-on-obs-integration-for-2024/"><u>[New] PS4 Broadcasting Basics with a Focus on OBS Integration for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/plitscreen-designer-for-2024/"><u>[New] SplitScreen Designer for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/tream-titling-service-for-2024/"><u>[New] Stream Titling Service for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/op-10-best-flvto-alternatives-youtube-converter-you-can-try/"><u>[New] Top 10 Best Flvto Alternatives YouTube Converter You Can Try</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-essential-steps-to-apply-a-creative-commons-copyright/"><u>[Updated] Essential Steps to Apply a Creative Commons Copyright</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-key-conduct-criteria-in-the-youtube-sphere/"><u>[Updated] In 2024, Key Conduct Criteria in the YouTube Sphere</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-ios-and-android-tips-for-silent-youtube-viewing-for-2024/"><u>[Updated] IOS & Android Tips for Silent YouTube Viewing for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/t-friendly-designs-for-youtube-content-creators-for-2024/"><u>Budget-Friendly Designs for YouTube Content Creators for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-htc-u23-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide HTC U23 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/innovating-visual-stories-through-hyperlapse/"><u>Innovating Visual Stories Through Hyperlapse</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/isotopic-studies-offer-precise-dating-of-metamorphic-events-and-correlation-with-tectonic-history/"><u>Isotopic Studies Offer Precise Dating of Metamorphic Events and Correlation with Tectonic History.</u></a></li>
-<li><a href="https://fake-location.techidaily.com/life360-learn-how-everything-works-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Life360 Learn How Everything Works On Poco M6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/v-joshis-financial-acumen-in-the-world-of-youtube-earnings/"><u>Sourav Joshi's Financial Acumen in the World of YouTube Earnings</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/utting-room-floor-experts-share-tips-on-video-editing/"><u>The Cutting Room Floor Experts Share Tips on Video Editing</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ultimate-guide-to-choosing-the-right-mac-vpn-expert-testing-reviews-unveiled-zdnet/"><u>Ultimate Guide to Choosing the Right Mac VPN: Expert Testing, Reviews Unveiled | ZDNet</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/unusual-food-hacks-why-google-advises-against-using-non-edible-substances/"><u>Unusual Food Hacks: Why Google Advises Against Using Non-Edible Substances</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/updating-your-apple-studio-displays-firmware-a-simple-guide/"><u>Updating Your Apple Studio Display's Firmware - A Simple Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-revolutionize-your-photos-pro-level-pixlr-techniques/"><u>[New] Revolutionize Your Photos Pro-Level Pixlr Techniques</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-streamers-choice-should-you-opt-for-vlc-or-mpc/"><u>[New] Streamer's Choice Should You Opt for VLC or MPC?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-directing-the-flow-of-digital-storytelling-through-youtube-fusion/"><u>[Updated] In 2024, Directing the Flow of Digital Storytelling Through Youtube Fusion</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-virtual-victory-channel-over-a-hundred-heroes-rise/"><u>[Updated] In 2024, Virtual Victory Channel Over a Hundred Heroes Rise</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-calculating-storage-total-gb-for-a-days-long-film/"><u>2024 Approved Calculating Storage Total GB for a Day's Long Film</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/fine-tuning-online-discussions-with-advanced-zooming-skills/"><u>Fine-Tuning Online Discussions with Advanced Zooming Skills</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-design-guide-youtube-banners-and-thumbnail-creation/"><u>In 2024, Design Guide YouTube Banners & Thumbnail Creation</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-unlocking-asmrs-health-perks-a-guide/"><u>In 2024, Unlocking ASMR's Health Perks A Guide</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/personalize-your-pc-experience-with-yls-guide-to-tweaking-windows/"><u>Personalize Your PC Experience with YL's Guide to Tweaking Windows</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/t-power-up-innovative-ways-to-earning-with-youtube-mobile-views/"><u>Profit Power-Up Innovative Ways to Earning with YouTube Mobile Views</u></a></li>
 </ul></div>
 

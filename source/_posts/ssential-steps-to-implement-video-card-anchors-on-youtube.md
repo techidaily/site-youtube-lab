@@ -1,7 +1,7 @@
 ---
 title: "[New] Essential Steps to Implement Video Card Anchors on YouTube"
-date: 2025-02-02T19:16:11.567Z
-updated: 2025-02-06T18:52:31.476Z
+date: 2025-02-13T17:15:26.129Z
+updated: 2025-02-16T17:20:52.167Z
 tags:
   - ai video
   - ai youtube
@@ -58,13 +58,17 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -74,10 +78,14 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -90,17 +98,13 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -141,10 +145,6 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -166,21 +166,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-transformative-techniques-to-mute-background-noise/"><u>[New] In 2024, Transformative Techniques to Mute Background Noise</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ero-cost-techniques-for-video-and-text-combination/"><u>[New] Zero-Cost Techniques for Video and Text Combination</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-do-reviewers-get-dollars-for-commentary-for-2024/"><u>[Updated] Do Reviewers Get Dollars for Commentary for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-illuminating-your-content-youtube-video-lighting-secrets/"><u>[Updated] Illuminating Your Content YouTube Video Lighting Secrets</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-channel-success-across-social-networks-youtube-plus-more/"><u>[Updated] In 2024, Channel Success Across Social Networks YouTube + More</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unlisting-youtube-videos-a-guide-to-non-indexable-content/"><u>[Updated] In 2024, Unlisting YouTube Videos A Guide to Non-Indexable Content</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-instant-video-posting-to-twitter-from-phone-avoid-the-retweet-for-2024/"><u>[Updated] Instant Video Posting to Twitter From Phone – Avoid the Retweet for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-downloading-the-latest-hits-top-youtube-playlist-savers-for-pc/"><u>2024 Approved Downloading the Latest Hits Top YouTube Playlist Savers for PC</u></a></li>
-<li><a href="https://facebook.techidaily.com/behind-the-walls-facebooks-policies-now-visible-via-new-hq/"><u>Behind the Walls: Facebook's Policies Now Visible via New HQ</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/cat-s42-resilient-phone-evaluation-unmatched-protection-coupled-with-limited-velocity/"><u>CAT S42 Resilient Phone Evaluation: Unmatched Protection Coupled with Limited Velocity</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/error-resolution-incompatible-data-entry-showing-up-on-screen/"><u>Error Resolution: Incompatible Data Entry Showing Up on Screen</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-controlling-who-sees-your-youtube-productions/"><u>In 2024, Controlling Who Sees Your Youtube Productions</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/macxdvd-unveils-major-update-macxtranscend-v30-now-fully-compatible-with-ios-10-and-iphone-7/"><u>Macxdvd Unveils Major Update: Macxtranscend v3.0 Now Fully Compatible with iOS 10 and iPhone 7</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/on-the-horizon-android-13-release-but-will-it-reach-your-device/"><u>On the Horizon: Android 13 Release - But Will It Reach Your Device?</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/passos-facilissimos-para-salvar-uma-conversa-de-video-no-facebook-messenger-com-o-movavi/"><u>Passos Facilíssimos Para Salvar Uma Conversa De Vídeo No Facebook Messenger Com O Movavi</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ultimate-guide-returning-purchased-games-via-steams-customer-support/"><u>Ultimate Guide: Returning Purchased Games via Steam's Customer Support</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-dominating-the-youtube-sphere-key-strategies-for-top-tier-presence/"><u>[Updated] 2024 Approved Dominating the YouTube Sphere Key Strategies for Top-Tier Presence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-blueprint-for-youtube-video-success/"><u>[Updated] 2024 Approved The Blueprint for YouTube Video Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-enabling-your-brands-mobile-reach-launching-youtube-channels-with-ease/"><u>[Updated] In 2024, Enabling Your Brand's Mobile Reach Launching YouTube Channels with Ease</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-disabling-recommended-podcast-episodes-in-spotify-app/"><u>2024 Approved Disabling Recommended Podcast Episodes in Spotify App</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-the-key-to-more-views-expert-backlink-methods-for-youtubers/"><u>2024 Approved The Key to More Views Expert Backlink Methods for YouTubers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/biting-into-language-a-chocolate-lexicon-in-30plus-languages/"><u>Biting Into Language: A Chocolate Lexicon in 30+ Languages</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/comprehensive-solutions-for-connectivity-glitches-including-no-ping-detected-on-halo-infinite/"><u>Comprehensive Solutions for Connectivity Glitches, Including No Ping Detected on Halo Infinite</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/cracking-linguistic-codes-comparing-gpt-with-bert-models/"><u>Cracking Linguistic Codes: Comparing GPT with BERT Models</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/deciding-between-constructing-and-procuring-your-own-computer-whats-best-suited-for-your-needs/"><u>Deciding Between Constructing and Procuring Your Own Computer - What's Best Suited For Your Needs</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-editmaster-insights-extensive-coverage/"><u>In 2024, EditMaster Insights – Extensive Coverage</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-intelligent-viewing-syncing-youtube-with-televisions/"><u>In 2024, Intelligent Viewing Syncing YouTube with Televisions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-reach-new-heights-boosting-youtube-viewership/"><u>In 2024, Reach New Heights Boosting YouTube Viewership</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/al-media-transfer-top-free-youtube-mp3-apps-revealed-for-2024/"><u>Optimal Media Transfer Top Free YouTube-MP3 Apps Revealed for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722990530862-revamp-your-experience-resolving-robocop-rogue-city-pc-launch-problems-successfully/"><u>Revamp Your Experience - Resolving 'Robocop: Rogue City' PC Launch Problems Successfully</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/screenrecorder-evaluation-tool/"><u>ScreenRecorder Evaluation Tool</u></a></li>
 </ul></div>
 

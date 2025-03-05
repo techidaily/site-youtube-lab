@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Building Mental Armor Against Online Critics for 2024"
-date: 2025-01-12T06:54:23.943Z
-updated: 2025-01-13T05:50:56.512Z
+date: 2025-02-15T16:17:36.059Z
+updated: 2025-02-16T18:22:59.331Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/9a9907ac5dbaa04f31e369bac93b279f477635cd1
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/9a9907ac5dbaa04f31e369bac93b279f477635cd1
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,20 +83,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-video-recordings.techidaily.com/new-creative-channel-themes-get-them-for-free/"><u>[New] Creative Channel Themes Get Them for Free</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-navigating-youtubes-algorithm-as-a-game-streamer/"><u>[New] In 2024, Navigating YouTube's Algorithm as a Game Streamer</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/aking-control-of-quality-edit-your-published-videos-on-youtube/"><u>[New] Taking Control of Quality Edit Your Published Videos on YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-10-stellar-tools-that-amplify-your-videos-youtube-presence-for-2024/"><u>[Updated] 10 Stellar Tools That Amplify Your Video's YouTube Presence for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-advanced-screen-recording-techniques-for-enhanced-productivity-in-adobe-captive-for-2024/"><u>[Updated] Advanced Screen Recording Techniques for Enhanced Productivity in Adobe Captive for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-breaking-through-youtubes-walls-using-advanced-creator-studio-skills/"><u>[Updated] In 2024, Breaking Through YouTube's Walls Using Advanced Creator Studio Skills</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-discover-8-trusted-platforms-for-online-video-advancement/"><u>2024 Approved Discover 8 Trusted Platforms for Online Video Advancement</u></a></li>
-<li><a href="https://fox-access.techidaily.com/elevate-your-imagery-top-lights-tactics-on-iphones-for-2024/"><u>Elevate Your Imagery Top Lights Tactics on iPhones for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/te-your-online-presence-with-this-all-inclusive-youtube-upload-manual-for-2024/"><u>Elevate Your Online Presence with This All-Inclusive YouTube Upload Manual for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elevating-your-viewing-pleasure-with-the-lg-oled-c9-65-an-in-depth-review-by-tech-experts/"><u>Elevating Your Viewing Pleasure with The LG OLED C9 65: An In-Depth Review by Tech Experts</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-the-ultimate-guide-to-free-online-video-tools-for-all/"><u>In 2024, The Ultimate Guide to Free Online Video Tools for All</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-unlock-your-disabled-iphone-6s-plus-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>In 2024, Unlock Your Disabled iPhone 6s Plus Without iTunes in 5 Ways | Dr.fone</u></a></li>
-<li><a href="https://sound-tweaking.techidaily.com/new-essential-insights-into-image-stock-sourcing-pexels-uncovered/"><u>New Essential Insights Into Image Stock Sourcing Pexels Uncovered</u></a></li>
-<li><a href="https://win-manuals.techidaily.com/standard-features-showdown-aomei-backupper-versus-acronis-true-image-for-reliable-system-recovery/"><u>Standard Features Showdown: AOMEI Backupper Versus Acronis True Image for Reliable System Recovery</u></a></li>
-<li><a href="https://extra-information.techidaily.com/top-tricks-for-achieving-high-quality-slow-motion-videos-on-android/"><u>Top Tricks for Achieving High-Quality Slow Motion Videos on Android</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-diy-guide-assembling-an-advanced-pc-for-cutting-edge-editing-for-2024/"><u>[New] DIY Guide Assembling an Advanced PC for Cutting-Edge Editing for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/aking-money-with-media-mastery-of-merchandise-musings/"><u>[New] Making Money with Media Mastery of Merchandise Musings</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastery-of-photo-date-annotation-methods/"><u>[New] Mastery of Photo Date Annotation Methods</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-windows-movie-maker-6-download-and-install-in-minutes-for-2024/"><u>[New] Windows Movie Maker 6 Download and Install in Minutes for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-step-by-step-process-for-making-a-stellar-podcast-launch-video/"><u>[Updated] In 2024, Step-By-Step Process for Making a Stellar Podcast Launch Video</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-strategies-in-tagging-and-titling-videos-for-success/"><u>[Updated] In 2024, Strategies in Tagging and Titling Videos for Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-lighting-the-way-enhancing-your-youtube-videos-with-pro-tips-for-2024/"><u>[Updated] Lighting the Way Enhancing Your YouTube Videos with Pro Tips for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-premium-vectors-leading-sites-in-quality-stock/"><u>[Updated] Premium Vectors Leading Sites in Quality Stock</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-home-studio-heroics-your-path-to-effectful-artistry/"><u>2024 Approved Home Studio Heroics Your Path to Effectful Artistry</u></a></li>
+<li><a href="https://fox-info.techidaily.com/elevate-your-storytelling-with-these-8-androidiphone-apps-for-2024/"><u>Elevate Your Storytelling with These 8 Android/iPhone Apps for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-motorola-moto-g04-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Motorola Moto G04 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-persistent-automatic-restarts-in-windows-11-explained/"><u>Troubleshooting: Persistent Automatic Restarts in Windows 11 Explained</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ultimate-source-for-online-video-to-mp3-downloads/"><u>Your Ultimate Source for Online Video to MP3 Downloads</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How Big Should a Good Thumbnail Be? YouTube's Ultimate Guide"
-date: 2024-12-30T20:01:06.129Z
-updated: 2025-01-06T16:40:29.142Z
+date: 2025-02-11T18:47:28.933Z
+updated: 2025-02-16T18:06:40.914Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ So you may be wondering what the best **youtube thumbnail size** is, and how to 
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Part 1: The Ultimate Guide of Youtube Thumbnail Size**
 
@@ -78,6 +82,10 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
@@ -91,17 +99,13 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
@@ -112,7 +116,7 @@ You may want to know:
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. How do I make my youtube thumbnail less than 2mb?
@@ -123,10 +127,6 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 2\. Now go to the File menu and click **Save as** then select JPEG picture
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
 
@@ -153,7 +153,7 @@ With Canva you can make a distinct and stand-out YouTube thumbnail image. Canva 
 To download the image without the watermark you’ll need to sign-up for a premium account on the Canva.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **To sum up**
@@ -183,16 +183,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-top-ranked-switch-console-simulations-online/"><u>[New] 2024 Approved Top-Ranked Switch Console Simulations Online</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/arnessing-the-power-of-filmora-for-youtube-video-promotions/"><u>[New] Harnessing the Power of Filmora for YouTube Video Promotions</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/deal-image-lengths-boost-video-engagement/"><u>[New] Ideal Image Lengths Boost Video Engagement</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/evitalizing-urban-areas-with-environmental-vision-and-purpose-for-2024/"><u>[New] Revitalizing Urban Areas with Environmental Vision and Purpose for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-creating-content-with-purpose-balancing-job-and-youtube-for-2024/"><u>[Updated] Creating Content with Purpose Balancing Job & YouTube for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-essential-tips-supercharge-your-instagram-highlights/"><u>2024 Approved Essential Tips Supercharge Your Instagram Highlights</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-short-symphony-shots-roles-and-rhythm-showcase/"><u>2024 Approved Short Symphony Shots Roles & Rhythm Showcase</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/comprehensive-guide-types-of-threats-blocked-by-windows-defender-insights-from-yl-computing/"><u>Comprehensive Guide: Types of Threats Blocked by Windows Defender - Insights From YL Computing</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/cookiebot-the-key-to-elevating-your-web-experience/"><u>Cookiebot: The Key to Elevating Your Web Experience</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-from-apple-iphone-se-2020-to-iphone-81111-pro-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer from Apple iPhone SE (2020) to iPhone 8/11/11 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ating-the-maze-of-youtube-endorsements-with-a-famebit-perspective-for-2024/"><u>Navigating the Maze of YouTube Endorsements with a FameBit Perspective for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-essential-edits-best-8-tools-for-linux-users/"><u>[New] 2024 Approved Essential Edits Best 8 Tools for Linux Users</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-expert-guide-to-video-to-audio-10-best-tools-reviewed/"><u>[New] In 2024, Expert Guide to Video-to-Audio #10 Best Tools Reviewed</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-streamlining-the-recording-process-in-virtual-gatherings/"><u>[New] In 2024, Streamlining the Recording Process in Virtual Gatherings</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-sculpting-light-an-in-depth-look-at-lightroom-hdr-photos/"><u>[New] Sculpting Light An In-Depth Look at Lightroom HDR Photos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-boosting-clickthrough-rates-with-attention-grabbing-youtube-thumbnails/"><u>[Updated] 2024 Approved Boosting Clickthrough Rates with Attention-Grabbing YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-enhancing-your-content-with-effortlessly-added-youtube-subtitles/"><u>[Updated] 2024 Approved Enhancing Your Content with Effortlessly Added YouTube Subtitles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-innovators-intertwining-video-with-melodious-images/"><u>[Updated] In 2024, Innovators Intertwining Video with Melodious Images</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mastering-youtubes-visual-flow-five-budget-friendly-methods/"><u>[Updated] Mastering YouTube's Visual Flow - Five Budget-Friendly Methods</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-boosting-views-with-captivating-intros-filmed-in-imovie/"><u>2024 Approved Boosting Views with Captivating Intros Filmed in iMovie</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-how-to-convert-youtube-videos-seamlessly-into-avi/"><u>2024 Approved How to Convert YouTube Videos Seamlessly Into AVI</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-integrating-secondary-shots-tips-and-tricks/"><u>2024 Approved Integrating Secondary Shots Tips and Tricks</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-learn-to-flip-videos-a-guide-for-instagram-users/"><u>2024 Approved Learn to Flip Videos A Guide for Instagram Users</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-success-with-youtube-income-streams/"><u>Charting Success with YouTube Income Streams</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-snapshotpro-v2021-ultimate-edition/"><u>In 2024, SnapshotPro V2021 - Ultimate Edition</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/l-views-essential-15-comical-youtubers-to-relax-with/"><u>Joyful Views Essential 15 Comical YouTubers to Relax With</u></a></li>
+<li><a href="https://common-error.techidaily.com/msvcr71dll-was-not-found-solved/"><u>MSVCR71.dll Was Not Found [Solved]</u></a></li>
 </ul></div>
 
