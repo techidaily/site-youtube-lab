@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Nine All-Inclusive Free Holiday Movies Streamed on YouTube\""
-date: 2024-08-08T14:28:03.821Z
-updated: 2024-08-09T14:28:03.821Z
+date: 2025-03-01T16:06:14.662Z
+updated: 2025-03-05T16:00:01.112Z
 tags:
   - ai video
   - ai youtube
@@ -42,9 +42,6 @@ This film from 1989 features Jim Varney and his most famous character Ernest in 
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
@@ -73,14 +70,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -89,6 +83,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-smallscreen-capture-critique-plus-options/"><u>[New] In 2024, SmallScreen Capture Critique + Options</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-streamlining-quality-youtubes-best-video-improvement-strategies/"><u>[New] In 2024, Streamlining Quality YouTube's Best Video Improvement Strategies</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/obile-creativity-boost-identifying-the-best-video-editing-tools/"><u>[New] Mobile Creativity Boost Identifying the Best Video Editing Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-perfect-inversion-youtube-reverse-guidebook-for-2024/"><u>[New] The Perfect Inversion YouTube Reverse Guidebook for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ideo-selfie-mastery-tips-from-top-youtubers/"><u>[New] Video Selfie Mastery Tips From Top YouTubers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-how-to-loop-a-video-on-iphone/"><u>[Updated] In 2024, How to Loop A Video on iPhone?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-unraveling-top-6-your-guide-to-free-and-favored-shorts-downloaders/"><u>[Updated] In 2024, Unraveling Top 6 Your Guide to Free & Favored Shorts Downloaders</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unlock-epic-video-with-gopro-time-lapse-strategies/"><u>[Updated] Unlock Epic Video with GoPro Time Lapse Strategies</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-heaviest-inflight-lifters-unveiled-top-10-list/"><u>2024 Approved Heaviest Inflight Lifters Unveiled - Top 10 List</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-quick-guide-iphones-video-loop-functionality/"><u>2024 Approved Quick Guide IPhone's Video Loop Functionality</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ient-content-curation-steps-towards-a-well-organized-watch-later-playlist-for-2024/"><u>Efficient Content Curation Steps Towards a Well-Organized 'Watch Later' Playlist for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/o-wipe-out-your-youtube-buffered-videos/"><u>How-To Wipe Out Your YouTube Buffered Videos</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-4-methods-to-turn-off-life-360-on-apple-iphone-14-pro-without-anyone-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, 4 Methods to Turn off Life 360 On Apple iPhone 14 Pro without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-on-realme-10t-5g-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Realme 10T 5G FRP Bypass</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-is-a-sim-network-unlock-pin-get-your-vivo-y200e-5g-phone-network-ready-by-drfone-android/"><u>In 2024, What Is a SIM Network Unlock PIN? Get Your Vivo Y200e 5G Phone Network-Ready</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/new-latest-top-darth-vader-voice-generators-for-all-platforms-for-2024/"><u>New Latest Top Darth Vader Voice Generators for All Platforms for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/walmart-cuts-price-by-24-on-4-pack-of-apple-airtags-in-labor-day-promotion-find-out-how/"><u>Walmart Cuts Price by $24 on 4-Pack of Apple AirTags in Labor Day Promotion, Find Out How !</u></a></li>
+</ul></div>
 

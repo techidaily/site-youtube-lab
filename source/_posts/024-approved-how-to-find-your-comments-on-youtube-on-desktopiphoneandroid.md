@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Find Your Comments on YouTube on Desktop/iPhone/Android\""
-date: 2024-08-08T14:30:07.126Z
-updated: 2024-08-09T14:30:07.126Z
+date: 2025-03-04T16:02:37.858Z
+updated: 2025-03-05T16:11:43.634Z
 tags:
   - ai video
   - ai youtube
@@ -195,9 +195,6 @@ From the bottom of the navigation bar on the left of the **YouTube Studio** page
 
 Go to the **Community** category from the left pane, and go to the **Defaults** tab from the right. Next, choose **Hide all comments for review** from the **Comments on your new videos** drop-down list, and click **SAVE** from the bottom-right corner of the box to moderate all YouTube comments that your new videos receive from this point onward.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![set  YouTube Community Comments moderation](https://images.wondershare.com/filmora/article-images/set-up-youtube-community-comments-moderaiton.jpg)
 
 ## Part 6: Tips for Writing Good YouTube Comments
@@ -230,14 +227,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -246,6 +240,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/aximize-impact-with-these-11-economical-youtube-naming-tools/"><u>[New] Maximize Impact with These 11 Economical YouTube Naming Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-much-can-you-earn-on-youtube-via-ad-revenue/"><u>[Updated] 2024 Approved How Much Can You Earn on YouTube via Ad Revenue?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-beat-the-curve-top-facebook-ad-strategies-for-2024/"><u>[Updated] Beat the Curve Top Facebook Ad Strategies for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-enablingdisabling-youtube-video-comments-for-2024/"><u>[Updated] Enabling/Disabling YouTube Video Comments for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-initiate-impactful-engagement-configuring-and-assessing-instream-ads-in-fb/"><u>[Updated] In 2024, Initiate Impactful Engagement Configuring and Assessing Instream Ads in FB</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-supernatural-video-slowdown-handbook/"><u>[Updated] In 2024, Supernatural Video Slowdown Handbook</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-movavi-pro-review-the-next-level-of-video-editing-for-2024/"><u>[Updated] Movavi Pro Review The Next Level of Video Editing for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-diving-into-viral-video-dialogues/"><u>2024 Approved Diving Into Viral Video Dialogues</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-getting-real-broadcast-your-life-on-youtube-using-obs/"><u>2024 Approved Getting Real Broadcast Your Life on Youtube Using OBS</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-unleash-your-humor-with-excellent-zero-cost-memes/"><u>2024 Approved Unleash Your Humor with Excellent Zero-Cost Memes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ing-standout-youtube-thumbnails-with-ease/"><u>Crafting Standout YouTube Thumbnails with Ease</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-video-resumes-can-be-quite-effective-if-used-in-the-right-context-and-that-is-the-reason-why-weve-decided-to-take-you-through-some-of-the-best-video-res/"><u>New Video Resumes Can Be Quite Effective if Used in the Right Context, and that Is the Reason Why Weve Decided to Take You Through some of the Best Video Resume Makers You Can Use to Get the Job Youve A for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/cket-your-channels-reach-with-smart-backlink-strategies/"><u>Skyrocket Your Channel's Reach with Smart Backlink Strategies</u></a></li>
+<li><a href="https://fox-that.techidaily.com/step-by-step-tutorial-how-to-update-your-ios-and-macos-screen-time-lock-code-easily/"><u>Step-by-Step Tutorial: How to Update Your iOS & macOS Screen Time Lock Code Easily</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/avi-mov-movavi/"><u>모비크스 사이트에서 무료 AVI 및 MOV 영상 더 잘 제공하는 원활한 격리: MOVAVI 변환기</u></a></li>
+</ul></div>
 

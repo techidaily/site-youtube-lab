@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Navigating Employment and Video Content Creation\""
-date: 2024-08-08T14:27:43.235Z
-updated: 2024-08-09T14:27:43.235Z
+date: 2025-02-26T16:07:25.991Z
+updated: 2025-03-05T16:01:28.362Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/d168a05f3f195d26d6b5e0381b43203121c261c3d
 
 # How to balance YouTube with a Full-Time Job
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -49,9 +46,6 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
@@ -60,9 +54,6 @@ A notebook planner is essential for keeping my life organized and on track. When
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
@@ -89,14 +80,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -105,6 +93,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-fearless-filming-mastering-your-first-10-clips/"><u>[New] 2024 Approved Fearless Filming Mastering Your First 10 Clips</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-from-novice-to-pro-creating-impressive-fb-covers/"><u>[New] 2024 Approved From Novice to Pro Creating Impressive FB Covers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-best-10-echo-augmentation-apps-desktopmobile/"><u>[New] In 2024, Best 10 Echo Augmentation Apps Desktop/Mobile</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-refine-your-youtube-identity-with-efficient-descriptions/"><u>[Updated] 2024 Approved Refine Your YouTube Identity with Efficient Descriptions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-accelerate-your-channel-growth-affordable-subscribers-available/"><u>[Updated] Accelerate Your Channel Growth - Affordable Subscribers Available</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-exquisite-airplay-scripts-for-listeners-for-2024/"><u>[Updated] Exquisite Airplay Scripts for Listeners for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-joyful-jokes-youtubes-funniest-creators-to-relax-with-for-2024/"><u>[Updated] Joyful Jokes YouTube's Funniest Creators to Relax With for 2024</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/easily-access-contents-of-zip-files-with-windows-tools-tips-from-yl-computing/"><u>Easily Access Contents of ZIP Files with Windows Tools - Tips From YL Computing</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-fix-oem-unlock-missing-on-motorola-moto-g73-5g-by-drfone-android/"><u>How To Fix OEM Unlock Missing on Motorola Moto G73 5G?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ring-the-market-essential-youtube-finance-channels-for-2024/"><u>Mastering the Market Essential YouTube Finance Channels for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/still-using-pattern-locks-with-xiaomi-redmi-k70-pro-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Xiaomi Redmi K70 Pro? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://apple-account.techidaily.com/the-easy-way-to-remove-an-apple-id-from-your-macbook-for-your-iphone-15-by-drfone-ios/"><u>The Easy Way to Remove an Apple ID from Your MacBook For your iPhone 15</u></a></li>
+<li><a href="https://win-blog.techidaily.com/transformer-vos-chansons-mp3-en-mp4-gratuitement-via-le-convertisseur-en-ligne-de-movavi-un-guide-pratique/"><u>Transformer Vos Chansons MP3 en MP4 Gratuitement via Le Convertisseur en Ligne De Movavi : Un Guide Pratique</u></a></li>
+</ul></div>
 

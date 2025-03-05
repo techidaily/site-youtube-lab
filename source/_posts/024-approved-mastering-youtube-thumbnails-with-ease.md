@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering YouTube Thumbnails with Ease\""
-date: 2024-08-08T14:32:24.116Z
-updated: 2024-08-09T14:32:24.116Z
+date: 2025-02-26T16:12:53.837Z
+updated: 2025-03-05T16:02:25.582Z
 tags:
   - ai video
   - ai youtube
@@ -73,9 +73,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
@@ -106,14 +103,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -122,6 +116,18 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ourly-high-stakes-views-yts-1-to-10-rankings/"><u>[New] Hourly High-Stakes Views YT's #1 to #10 Rankings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-initiate-internet-income-low-cost-youtube-channel-buys/"><u>[New] In 2024, Initiate Internet Income Low-Cost YouTube Channel Buys</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-soundscapes-infusing-online-photographic-art/"><u>[New] Soundscapes Infusing Online Photographic Art</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-keep-up-with-friends-moments-best-live-stream-tools-revealed-for-2024/"><u>[Updated] Keep Up With Friends' Moments Best Live-Stream Tools Revealed for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-personal-vlogs-that-resonate-deeply-with-viewers/"><u>[Updated] Personal Vlogs That Resonate Deeply With Viewers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-ideal-tools-for-saving-your-online-video-presence/"><u>2024 Approved Ideal Tools for Saving Your Online Video Presence</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-easy-ways-to-copy-contacts-from-lenovo-thinkphone-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Easy Ways to Copy Contacts from Lenovo ThinkPhone to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-login-trouble-heres-how-to-regain-access-smoothly/"><u>ChatGPT Login Trouble? Here's How to Regain Access Smoothly</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-the-importance-of-understanding-asmr-media/"><u>In 2024, The Importance of Understanding ASMR Media</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-tutorial-to-correct-errors-related-to-absent-ksuserdll-file/"><u>Step-by-Step Tutorial to Correct Errors Related to Absent ksuser.dll File</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/the-ultimate-apple-resurrection-project-upgraded-1994-powerbook-520c-now-boasts-an-ipad-display-and-cutting-edge-macbook-pro-components/"><u>The Ultimate Apple Resurrection Project: Upgraded 1994 PowerBook 520C Now Boasts an iPad Display & Cutting-Edge MacBook Pro Components</u></a></li>
+</ul></div>
 

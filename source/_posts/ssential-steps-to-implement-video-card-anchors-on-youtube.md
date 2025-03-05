@@ -1,7 +1,7 @@
 ---
 title: "[New] Essential Steps to Implement Video Card Anchors on YouTube"
-date: 2025-02-13T17:15:26.129Z
-updated: 2025-02-16T17:20:52.167Z
+date: 2025-02-28T16:23:26.777Z
+updated: 2025-03-05T16:07:11.134Z
 tags:
   - ai video
   - ai youtube
@@ -58,18 +58,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -78,15 +70,7 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Apply changes and exit
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -102,10 +86,6 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -166,21 +146,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-dominating-the-youtube-sphere-key-strategies-for-top-tier-presence/"><u>[Updated] 2024 Approved Dominating the YouTube Sphere Key Strategies for Top-Tier Presence</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-the-blueprint-for-youtube-video-success/"><u>[Updated] 2024 Approved The Blueprint for YouTube Video Success</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-enabling-your-brands-mobile-reach-launching-youtube-channels-with-ease/"><u>[Updated] In 2024, Enabling Your Brand's Mobile Reach Launching YouTube Channels with Ease</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-disabling-recommended-podcast-episodes-in-spotify-app/"><u>2024 Approved Disabling Recommended Podcast Episodes in Spotify App</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-the-key-to-more-views-expert-backlink-methods-for-youtubers/"><u>2024 Approved The Key to More Views Expert Backlink Methods for YouTubers</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/biting-into-language-a-chocolate-lexicon-in-30plus-languages/"><u>Biting Into Language: A Chocolate Lexicon in 30+ Languages</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/comprehensive-solutions-for-connectivity-glitches-including-no-ping-detected-on-halo-infinite/"><u>Comprehensive Solutions for Connectivity Glitches, Including No Ping Detected on Halo Infinite</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/cracking-linguistic-codes-comparing-gpt-with-bert-models/"><u>Cracking Linguistic Codes: Comparing GPT with BERT Models</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/deciding-between-constructing-and-procuring-your-own-computer-whats-best-suited-for-your-needs/"><u>Deciding Between Constructing and Procuring Your Own Computer - What's Best Suited For Your Needs</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Oppo Reno 11 5G | Dr.fone</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-editmaster-insights-extensive-coverage/"><u>In 2024, EditMaster Insights – Extensive Coverage</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-intelligent-viewing-syncing-youtube-with-televisions/"><u>In 2024, Intelligent Viewing Syncing YouTube with Televisions</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-reach-new-heights-boosting-youtube-viewership/"><u>In 2024, Reach New Heights Boosting YouTube Viewership</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/al-media-transfer-top-free-youtube-mp3-apps-revealed-for-2024/"><u>Optimal Media Transfer Top Free YouTube-MP3 Apps Revealed for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1722990530862-revamp-your-experience-resolving-robocop-rogue-city-pc-launch-problems-successfully/"><u>Revamp Your Experience - Resolving 'Robocop: Rogue City' PC Launch Problems Successfully</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/screenrecorder-evaluation-tool/"><u>ScreenRecorder Evaluation Tool</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-fbx-recorder-essentials-for-players/"><u>[New] 2024 Approved FBX Recorder Essentials For Players</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-premier-no-8-digital-composers-kit/"><u>[New] 2024 Approved Premier No. 8 Digital Composer's Kit</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/xploring-earning-potential-revenue-from-youtube-advertisements-for-2024/"><u>[New] Exploring Earning Potential Revenue From YouTube Advertisements for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-crafting-compelling-freefire-vids-with-strategy-guide/"><u>[New] In 2024, Crafting Compelling FreeFire Vids with Strategy Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-essential-illumination-strategies-for-filming/"><u>[New] In 2024, Essential Illumination Strategies for Filming</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-ranked-top-6-tiktok-profit-analyzers-for-creators/"><u>[New] In 2024, Ranked Top 6 TikTok Profit Analyzers for Creators</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-upgrade-your-content-presentation-with-top-tier-templates/"><u>[New] In 2024, Upgrade Your Content Presentation with Top-Tier Templates</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-essential-toolkit-for-youtube-video-editors-everywhere/"><u>[New] The Essential Toolkit for YouTube Video Editors Everywhere</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/op-flick-alternatives-indie-worthy-2023-releases/"><u>[New] Top Flick Alternatives Indie-Worthy 2023 Releases</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-decoding-the-social-code-top-30-tips-for-marketing-mastery/"><u>[Updated] 2024 Approved Decoding the Social Code Top 30 Tips for Marketing Mastery</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-maximizing-your-reach-with-youtube-shorts-templates/"><u>[Updated] 2024 Approved Maximizing Your Reach with YouTube Shorts Templates</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-prime-video-entries-the-best-16-to-maximize-viewership/"><u>[Updated] 2024 Approved Prime Video Entries The Best 16 to Maximize Viewership</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-essential-knowledge-the-dos-and-donts-on-youtube/"><u>[Updated] In 2024, Essential Knowledge The Do's and Don'ts on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-perfecting-audio-quality-for-your-youtube-channel/"><u>[Updated] Perfecting Audio Quality for Your YouTube Channel</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-airwaves-to-iphone-essential-knowledge-on-podcast-downloads-for-2024/"><u>From Airwaves to iPhone Essential Knowledge on Podcast Downloads for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-infinix-note-30i-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Infinix Note 30i?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/innovate-with-windows-10s-newest-apps-and-games/"><u>Innovate with Windows 10'S Newest Apps and Games</u></a></li>
+<li><a href="https://discover-best.techidaily.com/the-ultimate-guide-to-revitalizing-your-computer-tips-for-enhanced-speed-from-yl-computing-expertise/"><u>The Ultimate Guide to Revitalizing Your Computer: Tips for Enhanced Speed From YL Computing Expertise</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-vivo-y78-5g-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Vivo Y78 5G Android SIM Unlock APK</u></a></li>
 </ul></div>
 

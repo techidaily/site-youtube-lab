@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Static to Sprightly  Bouncing Text Animations\""
-date: 2024-08-08T14:30:59.149Z
-updated: 2024-08-09T14:30:59.149Z
+date: 2025-03-03T16:02:09.742Z
+updated: 2025-03-05T16:01:16.549Z
 tags:
   - ai video
   - ai youtube
@@ -54,9 +54,6 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
 **Step 4: Export the Final Output**
@@ -131,14 +128,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,6 +141,20 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-jocular-juxtapositions-cutting-edge-humorous-edits-online/"><u>[New] 2024 Approved Jocular Juxtapositions Cutting-Edge, Humorous Edits Online</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-guide-turning-insta-vids-to-mp3-tracks/"><u>[New] Guide Turning Insta Vids to MP3 Tracks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/trategies-for-using-youtube-to-boost-classroom-engagement/"><u>[New] Strategies for Using YouTube to Boost Classroom Engagement</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-hidden-truths-about-youtube-earnings/"><u>[New] The Hidden Truths About YouTube Earnings</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-earning-big-on-youtube-shorts-what-you-need-and-how-much-can-you-make/"><u>2024 Approved Earning Big on Youtube Shorts What You Need & How Much Can You Make?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/expert-strategies-to-protect-your-inbox-by-adding-your-domain-to-the-macos-mail-safelist/"><u>Expert Strategies to Protect Your Inbox by Adding Your Domain to the MacOS Mail Safelist</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-delicious-ideas-top-30-creative-recipe-show-titles/"><u>In 2024, Delicious Ideas Top 30 Creative Recipe Show Titles</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-leveraging-consumer-reviews-for-youtube-wealth-creation/"><u>In 2024, Leveraging Consumer Reviews for YouTube Wealth Creation</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-top-5-omnidirectional-recording-gadgets/"><u>In 2024, Top 5 Omnidirectional Recording Gadgets</u></a></li>
+<li><a href="https://windows11.techidaily.com/remedy-for-no-sound-during-system-tests/"><u>Remedy for No Sound During System Tests</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solve-the-driver-not-found-issue-with-our-simple-steps/"><u>Solve the 'Driver Not Found' Issue with Our Simple Steps!</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-call-history-from-vivo-s18-pro-by-fonelab-android-recover-call-logs/"><u>The way to get back lost call history from Vivo S18 Pro</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/transfer-files-seamlessly-windows-11s-efficient-method-for-restoring-data-on-a-different-pc/"><u>Transfer Files Seamlessly: Windows 11'S Efficient Method for Restoring Data on a Different PC</u></a></li>
+</ul></div>
 

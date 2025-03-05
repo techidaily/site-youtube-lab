@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Direct to YouTube  Stepwise Process of Mobile & Desktop Video Posting\""
-date: 2025-02-10T17:43:15.892Z
-updated: 2025-02-16T18:15:48.818Z
+date: 2025-02-28T16:13:47.463Z
+updated: 2025-03-05T16:17:55.277Z
 tags:
   - ai video
   - ai youtube
@@ -34,10 +34,6 @@ With that said, the following sections explain the step-by-step process on **how
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1: How to Upload Short Video on YouTube from PC?
 
@@ -83,25 +79,13 @@ For macOS 10.12 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 1: Upload an Existing Short Video
 
@@ -149,19 +133,11 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -186,21 +162,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-screen-sharing-tips-keeping-gh-conversations/"><u>[New] 2024 Approved Screen Sharing Tips Keeping GH Conversations</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-quick-overview-of-colour-difference-filming/"><u>[New] In 2024, Quick Overview of Colour Difference Filming</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ocating-your-own-melodic-treasure-trove-in-youtubes-vault/"><u>[New] Locating Your Own Melodic Treasure Trove in YouTube's Vault</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/nleash-creativity-unlimited-samples-of-50-youtube-banners-for-free-for-2024/"><u>[New] Unleash Creativity Unlimited Samples of 50 YouTube Banners for Free for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-evaluating-cloud-services-with-a-budget-lens-2-written-by-ai/"><u>[Updated] In 2024, Evaluating Cloud Services with a Budget Lens (2 Written by AI)</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-innovative-split-screen-videos-for-youtube-sharing-for-2024/"><u>[Updated] Innovative Split-Screen Videos for YouTube Sharing for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-minimizing-disorientation-your-vr-wellbe-written-guide/"><u>[Updated] Minimizing Disorientation Your VR Wellbe Written Guide</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-accelerate-your-file-changing-game-srt-to-txt-in-a-flash/"><u>2024 Approved Accelerate Your File Changing Game SRT to TXT in a Flash</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-mirrorless-challenge-to-dslr-who-wins-in-video/"><u>2024 Approved Mirrorless Challenge to DSLR Who Wins in Video?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-instagram-editors-companion-for-effective-video-cropping/"><u>2024 Approved The Instagram Editor's Companion for Effective Video Cropping</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/d-the-scenes-insider-knowledge-for-youtube-video-production/"><u>Behind the Scenes Insider Knowledge for YouTube Video Production</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-google-pixel-8-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Google Pixel 8 Phone without Any Data Loss</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-best-poco-x5-pro-pattern-lock-removal-tools-remove-android-pattern-lock-without-losing-data-by-drfone-android/"><u>In 2024, Best Poco X5 Pro Pattern Lock Removal Tools Remove Android Pattern Lock Without Losing Data</u></a></li>
-<li><a href="https://driver-install.techidaily.com/latest-driver-enhancement-for-improved-gtx-970-graphics/"><u>Latest Driver Enhancement for Improved GTX 970 Graphics</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/acular-screen-collaborations-selecting-an-mcn/"><u>Spectacular Screen Collaborations Selecting an MCN</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-save-money-now-the-4-most-reliable-sources-for-filmora-discounts/"><u>Updated In 2024, Save Money Now The 4 Most Reliable Sources for Filmora Discounts</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-prolific-photography-and-video-app-selection-iphone-vs-android/"><u>[New] In 2024, Prolific Photography & Video App Selection IPhone vs Android</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-transforming-imagery-the-power-of-ps-curves-for-2024/"><u>[New] Transforming Imagery The Power of PS Curves for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-elite-edits-the-best-video-editors-ranked-for-2024/"><u>[Updated] Elite Edits The Best Video Editors Ranked for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-essential-tips-for-mov-saving-on-windows-10/"><u>[Updated] In 2024, Essential Tips for MOV Saving on Windows 10</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-swift-circulation-of-playlists-on-youtube/"><u>[Updated] In 2024, Swift Circulation of Playlists on YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-a-comprehensive-guide-to-use-youtube-movie-maker/"><u>2024 Approved A Comprehensive Guide to Use YouTube Movie Maker</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-audio-alchemy-free-perfectly-crafted-dj-template-videos/"><u>2024 Approved Audio Alchemy Free, Perfectly Crafted DJ Template Videos</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-navigating-the-complexities-of-macos-srt-changes/"><u>2024 Approved Navigating the Complexities of macOS SRT Changes</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-evaluation-of-kensuns-durable-and-compact-portable-tire-inflator/"><u>Comprehensive Evaluation of Kensun's Durable and Compact Portable Tire Inflator</u></a></li>
+<li><a href="https://fox-place.techidaily.com/customizing-json-configuration-exploring-the-settings-tab/"><u>Customizing JSON Configuration: Exploring the 'Settings' Tab</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ating-the-digital-space-with-trending-content/"><u>Dominating the Digital Space with Trending Content</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-vivo-y78plus-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Vivo Y78+? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-content-strategy-boost-top-8-youtube-rank-watcher-revealed/"><u>In 2024, Content Strategy Boost Top 8 YouTube Rank Watcher Revealed</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-understanding-facebooks-chat-language-through-its-blue-signature-marker/"><u>In 2024, Understanding Facebook's Chat Language Through Its Blue Signature Marker</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/um-gaming-intro-ideas-for-youtube-free-vs-paid-models-for-2024/"><u>Premium Gaming Intro Ideas for YouTube Free vs Paid Models for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/step-by-step-tips-on-viewing-spider-man-no-way-home-through-streaming-services/"><u>Step-by-Step Tips on Viewing 'Spider Man: No Way Home' Through Streaming Services</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-art-of-crafting-impressive-hdr-images-using-lightroom/"><u>The Art of Crafting Impressive HDR Images Using Lightroom</u></a></li>
 </ul></div>
 

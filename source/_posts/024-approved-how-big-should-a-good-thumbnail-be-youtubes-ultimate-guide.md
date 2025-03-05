@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How Big Should a Good Thumbnail Be? YouTube's Ultimate Guide\""
-date: 2024-08-08T14:31:01.127Z
-updated: 2024-08-09T14:31:01.127Z
+date: 2025-03-04T16:01:55.966Z
+updated: 2025-03-05T16:16:35.625Z
 tags:
   - ai video
   - ai youtube
@@ -71,9 +71,6 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
@@ -146,14 +143,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,6 +156,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/ixelpie-cutter/"><u>[New] PixelPie Cutter</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-ultimate-guide-to-fostering-viewer-commitment-in-youtube-videos-for-2024/"><u>[New] The Ultimate Guide to Fostering Viewer Commitment in YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-from-game-day-to-hollywood-sports-video-success-story/"><u>[Updated] 2024 Approved From Game Day to Hollywood Sports Video Success Story</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-master-iphones-quick-focus-adjustment/"><u>[Updated] 2024 Approved Master iPhone's Quick Focus Adjustment</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-must-watch-asmr-video-gems-online/"><u>[Updated] In 2024, Must-Watch ASMR Video Gems Online</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-behind-the-scenes-expert-techniques-for-video-magic/"><u>2024 Approved Behind the Scenes Expert Techniques for Video Magic</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-remedying-unexpected-oneself-display-during-online-interactions/"><u>2024 Approved Remedying Unexpected Oneself Display During Online Interactions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-understanding-youtube-revenue-models-today/"><u>2024 Approved Understanding YouTube Revenue Models Today</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/advanced-editing-for-published-youtube-videos-for-2024/"><u>Advanced Editing for Published YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/y-in-a-click-best-funny-short-video-suggestions-for-youtubers-for-2024/"><u>Comedy in a Click Best Funny Short Video Suggestions for YouTubers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ver-inspirational-hiring-vids-1-10-for-2024/"><u>Discover Inspirational Hiring Vids #1-10 for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-change-your-apple-id-password-on-your-apple-iphone-6-by-drfone-ios/"><u>How To Change Your Apple ID Password On your Apple iPhone 6</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-remove-the-background-of-an-image-using-paint-or-paint-3d/"><u>How to Remove the Background of an Image Using Paint or Paint 3D</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Xiaomi Redmi Note 12 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/by-step-for-sports-video-compilation/"><u>Step-by-Step for Sports Video Compilation</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ltimate-guide-to-viewer-engagement-and-loyalty-6-proven-strategies-for-youtube-success/"><u>The Ultimate Guide to Viewer Engagement and Loyalty 6 Proven Strategies for YouTube Success</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-choosing-your-next-computer-apples-powerhouse-imac-reviewed/"><u>Ultimate Guide to Choosing Your Next Computer: Apple's Powerhouse iMac Reviewed!</u></a></li>
+</ul></div>
 

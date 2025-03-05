@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Scripting Your Story's Visual Heartbeat at Home"
-date: 2025-02-09T18:57:59.254Z
-updated: 2025-02-16T18:17:16.373Z
+date: 2025-03-01T16:05:43.239Z
+updated: 2025-03-05T16:16:59.418Z
 tags:
   - ai video
   - ai youtube
@@ -51,17 +51,9 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
@@ -69,27 +61,15 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -112,20 +92,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-information.techidaily.com/new-a-comprehensive-walkthrough-wmp-caption-addition/"><u>[New] A Comprehensive Walkthrough WMP Caption Addition</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-capturing-and-reducing-speed-with-iphone-a-step-by-step-guide-for-2024/"><u>[New] Capturing and Reducing Speed with iPhone A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-quicksnip-videosuite/"><u>[New] In 2024, QuickSnip VideoSuite</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-giggle-guide-to-funny-memes-a-quick-primer/"><u>[Updated] Giggle Guide to Funny Memes A Quick Primer</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-top-youtube-cameras-a-guide-for-novices-and-pros/"><u>[Updated] In 2024, Top YouTube Cameras A Guide for Novices & Pros</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-maximize-impact-sharing-youtube-videos-on-social-media-fb-for-2024/"><u>[Updated] Maximize Impact Sharing YouTube Videos on Social Media (FB) for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-maximize-reach-the-top-ten-keywords-discovery-platforms-for-youtubers-for-2024/"><u>[Updated] Maximize Reach The Top Ten Keywords Discovery Platforms for YouTubers for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-soundscapes-spectrum-music-finder-service/"><u>[Updated] Soundscapes Spectrum Music Finder Service</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-the-art-of-patience-slowing-down-videos-on-youtube-51-chars/"><u>2024 Approved The Art of Patience Slowing Down Videos on YouTube (51 Chars)</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-toolwiz-visualize-a-comprehensive-2023-evaluation/"><u>2024 Approved Toolwiz Visualize - A Comprehensive 2023 Evaluation</u></a></li>
-<li><a href="https://os-tips.techidaily.com/how-consumer-demand-is-driving-up-phone-sizes-understanding-this-tech-evolution/"><u>How Consumer Demand Is Driving Up Phone Sizes - Understanding This Tech Evolution.</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Nokia C02? | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/24-your-complete-breakdown-of-youtube-short-content/"><u>In 2024, Your Complete Breakdown of YouTube Short Content</u></a></li>
-<li><a href="https://extra-information.techidaily.com/masterclass-in-picture-text-edits-and-overlays/"><u>Masterclass in Picture Text Edits and Overlays</u></a></li>
-<li><a href="https://common-error.techidaily.com/solving-the-mystery-of-unplayable-dvd-files-on-your-pc/"><u>Solving the Mystery of Unplayable DVD Files on Your PC</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-deception-navigating-false-subscriber-sells-for-2024/"><u>[New] Deception Navigating False Subscriber Sells for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-step-by-step-utilization-of-polarr-for-professional-results/"><u>[New] In 2024, Step-By-Step Utilization of Polarr for Professional Results</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/astering-visual-identity-top-6-sources-for-youtube-icons-and-logos/"><u>[New] Mastering Visual Identity Top 6 Sources for YouTube Icons & Logos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-balancing-acts-in-youtube-music-mixes/"><u>[Updated] 2024 Approved Balancing Acts in YouTube Music Mixes</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-how-to-securely-extract-and-convert-youtube-audios-as-mp3/"><u>[Updated] 2024 Approved How To Securely Extract and Convert YouTube Audios as MP3</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-template-mastery-a-step-by-step-to-epic-gamers-logos/"><u>[Updated] 2024 Approved Template Mastery A Step-by-Step to Epic Gamers' Logos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-earning-in-the-e-commerce-arena-via-engaging-reviews-for-2024/"><u>[Updated] Earning in the E-Commerce Arena via Engaging Reviews for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-highest-quality-screen-time-movie-hits-list/"><u>[Updated] Highest-Quality Screen Time Movie Hits List</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagram-glimpses-identifying-who-sees-your-pics-for-2024/"><u>[Updated] Instagram Glimpses Identifying Who Sees Your Pics for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723012992381-left-4-dead-out-of-the-woods-no-more-crashes/"><u>Left 4 Dead ² Out of the Woods - No More Crashes</u></a></li>
+<li><a href="https://os-tips.techidaily.com/macos-compatible-printer-installation-tutorial-what-you-need-to-know/"><u>MacOS Compatible Printer Installation Tutorial: What You Need To Know</u></a></li>
+<li><a href="https://video-capture.techidaily.com/master-the-craft-three-secrets-to-perfectly-saving-streamed-discords/"><u>Master the Craft Three Secrets to Perfectly Saving Streamed Discords</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/power-all-your-gadgets-with-this-high-capacity-140w-portable-battery-always-charged-and-ready/"><u>Power All Your Gadgets with This High-Capacity 140W Portable Battery - Always Charged and Ready!</u></a></li>
+<li><a href="https://techtrends.techidaily.com/speed-vs-latency-unlocking-the-secrets-to-optimizing-memory-for-peak-pc-functionality/"><u>Speed vs Latency: Unlocking the Secrets to Optimizing Memory for Peak PC Functionality</u></a></li>
+<li><a href="https://win-great.techidaily.com/ic2/"><u>オリンパスICレコーダー用データ復旧ガイド：2つの有効な手法</u></a></li>
 </ul></div>
 

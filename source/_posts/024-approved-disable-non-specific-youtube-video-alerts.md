@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Disable Non-Specific YouTube Video Alerts\""
-date: 2024-08-08T14:33:53.984Z
-updated: 2024-08-09T14:33:53.984Z
+date: 2025-02-27T16:13:29.516Z
+updated: 2025-03-05T16:09:14.913Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/3c3e9aebd6b49c0af91473b8783124a08a04e227f
 
 # YouTube Recommended Videos - Block the Videos I Don't Like
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -43,9 +40,6 @@ Here’s what you can do about it:
 
 ## Manage Your Watch History
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
 
 Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
@@ -56,9 +50,6 @@ If you are being recommended more things you aren’t interested in than things 
 
 ## Tell YouTube You Aren’t Interested
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
 
 Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
@@ -93,14 +84,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -109,8 +97,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-tailoring-timeline-memories-the-look-back-video-expertise/"><u>[New] In 2024, Tailoring Timeline Memories The Look Back Video Expertise</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/trategies-to-triple-your-earnings-on-youtube-shorts-for-2024/"><u>[New] Strategies to Triple Your Earnings on Youtube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nlock-the-secrets-of-smooth-and-seamless-keying-in-videography-for-2024/"><u>[New] Unlock the Secrets of Smooth and Seamless Keying in Videography for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-25-ultimate-android-and-ios-downloading-tools-reviewed/"><u>[Updated] 2024 Approved 25 Ultimate Android & iOS Downloading Tools Reviewed</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-screencapture-hq-top-browsers-for-digital-footprints/"><u>[Updated] 2024 Approved ScreenCapture HQ Top Browsers for Digital Footprints</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-streamlining-your-path-to-personal-youtube-soundscape/"><u>[Updated] 2024 Approved Streamlining Your Path to Personal Youtube Soundscape</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-maximize-engagement-mastering-sound-editing-for-youtube/"><u>[Updated] In 2024, Maximize Engagement Mastering Sound Editing for YouTube</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-premier-asmr-videographers-list/"><u>[Updated] Premier ASMR Videographers' List</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1-solutions-for-persistent-issues-with-macx-dvd-ripper-pro-full-movie-rip-failures-and-performance-lag/"><u>1. Solutions for Persistent Issues with MacX DVD Ripper Pro: Full Movie Rip Failures and Performance Lag</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-maximizing-profits-from-a-million-viewer-baseline/"><u>2024 Approved Maximizing Profits From a Million-Viewer Baseline</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-understanding-cultural-influences-on-consumer-behavior-in-global-markets/"><u>2024 Approved Understanding Cultural Influences on Consumer Behavior in Global Markets</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-tecno-spark-go-2023-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Tecno Spark Go (2023) Location Settings | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/elevate-your-console-experience-with-the-asus-vg245h-screen/"><u>Elevate Your Console Experience With the Asus VG245H Screen</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/emeditor-personalized-text-editor-menu-options/"><u>EmEditor: Personalized Text Editor Menu Options</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/epic-discount-alert-score-an-hp-victus-n15-gaming-laptop-at-just-515-dont-miss-out-on-this-unbeatable-best-buy-prime-day-deal-explore-it-now/"><u>Epic Discount Alert: Score an HP Victus N15 Gaming Laptop at Just $515! Don't Miss Out on This Unbeatable Best Buy Prime Day Deal – Explore It Now!</u></a></li>
+</ul></div>
 

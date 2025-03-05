@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Turn on or Off Comments on YouTube"
-date: 2025-02-10T16:19:19.661Z
-updated: 2025-02-16T18:01:23.857Z
+date: 2025-02-28T16:12:52.034Z
+updated: 2025-03-05T16:22:59.724Z
 tags:
   - ai video
   - ai youtube
@@ -35,10 +35,6 @@ Keeping all these points in mind, the following sections explain **how to enable
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -54,10 +50,6 @@ Use your favorite web browser to go to YouTube and sign in to your Google accoun
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### Step 3: Turn Off Comments
 
@@ -123,15 +115,7 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -148,10 +132,6 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -188,24 +168,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/arness-the-power-of-youtube-shorts-expert-filming-and-editing-techniques/"><u>[New] Harness the Power of YouTube Shorts Expert Filming and Editing Techniques</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-skillful-conversion-of-youtube-videos-to-interactive-gif-artistry/"><u>[New] In 2024, Skillful Conversion of YouTube Videos to Interactive GIF Artistry</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-kickstart-your-social-life-setting-up-a-facebook-account/"><u>[Updated] 2024 Approved Kickstart Your Social Life Setting up a Facebook Account</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-summit-of-synergy-for-vr-sensations/"><u>[Updated] 2024 Approved Summit of Synergy for VR Sensations</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-elevate-video-exposure-mastering-the-art-of-appropriate-tags/"><u>[Updated] Elevate Video Exposure Mastering the Art of Appropriate Tags</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-elevate-your-youtube-presence-filmmaking-with-filmora/"><u>[Updated] Elevate Your YouTube Presence Filmmaking with Filmora</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-optimal-solution-screen-capture-for-youtube-success/"><u>[Updated] In 2024, Optimal Solution Screen Capture for YouTube Success</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-streaming-google-meet-a-step-by-step-youtube-tutorial-for-2024/"><u>[Updated] Streaming Google Meet A Step-By-Step YouTube Tutorial for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-comprehending-quadcopters-how-they-soar-and-operate/"><u>2024 Approved Comprehending Quadcopters How They Soar and Operate</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-expanding-youtube-audience-through-perpetual-creative-commons/"><u>2024 Approved Expanding YouTube Audience Through Perpetual Creative Commons</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/2024-approved-simplified-guide-from-camera-roll-capture-to-snapchat-posting/"><u>2024 Approved Simplified Guide From Camera Roll Capture to Snapchat Posting</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/a-stepwise-approach-for-iphone-users-on-ios-15/"><u>A Stepwise Approach for iPhone Users on iOS 15</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/re-and-evaluate-top-7-free-android-adblockers-unveiled/"><u>Explore & Evaluate Top 7 Free Android AdBlockers Unveiled</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ring-video-transfer-youtube-to-dailymotion-conversion-for-2024/"><u>Mastering Video Transfer YouTube to Dailymotion Conversion for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcoming-game-play-interruptions-computer-shutdowns-on-windows-os/"><u>Overcoming Game Play Interruptions: Computer Shutdowns on Windows OS</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/reaching-new-heights-in-english-with-mondly/"><u>Reaching New Heights in English with Mondly</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-essentials-of-the-ai-act-by-the-eu-and-its-influence-on-tools-like-chatgpt/"><u>The Essentials of the AI Act by the EU and Its Influence on Tools Like ChatGPT</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/king-from-youtube-shorts-easy-and-permanent-for-2024/"><u>Unlinking From YouTube Shorts - Easy and Permanent for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/virtual-shopping-spree-for-gamers-secrets-of-buying-games-on-the-oculus-quest-2-platform/"><u>Virtual Shopping Spree for Gamers: Secrets of Buying Games on the Oculus Quest 2 Platform</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-enhancing-your-memories-bank-with-snapchats-images/"><u>[New] 2024 Approved Enhancing Your Memories Bank with Snapchat's Images</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-effortless-way-to-personalize-your-youtube-channel-url/"><u>[New] Effortless Way to Personalize Your YouTube Channel Url</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-mastering-mcn-your-comprehensive-youtube-creators-roadmap/"><u>[New] In 2024, Mastering MCN Your Comprehensive YouTube Creator's Roadmap</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-optimizing-viewing-habits-the-ultimate-guide-to-youtube-save-and-playlists/"><u>[New] In 2024, Optimizing Viewing Habits The Ultimate Guide to YouTube Save and Playlists</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-the-art-of-choosing-and-utilizing-cc-license-types/"><u>[New] In 2024, The Art of Choosing and Utilizing CC License Types</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/roven-techniques-for-counteracting-virtual-insults-for-2024/"><u>[New] Proven Techniques for Counteracting Virtual Insults for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-quick-fix-from-raw-images-to-high-quality-youtube-thumbnails/"><u>[Updated] 2024 Approved Quick Fix From Raw Images To High-Quality YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-tips-to-develop-engaging-lifestyle-enlightenment-vids/"><u>[Updated] 2024 Approved Tips to Develop Engaging Lifestyle Enlightenment Vids</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-mastering-youtube-studio-ultimate-video-edits-techniques/"><u>[Updated] In 2024, Mastering YouTube Studio Ultimate Video Edits Techniques</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-ancient-warriors-new-battlegrounds-top-games-like-the-japanese-epic/"><u>2024 Approved Ancient Warriors, New Battlegrounds Top Games Like the Japanese Epic</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-from-solo-streamer-to-global-content-powerhouse/"><u>2024 Approved From Solo Streamer to Global Content Powerhouse</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-yts-game-changers-the-elite-ladies-in-gaming/"><u>2024 Approved YT's Game Changers The Elite Ladies in Gaming</u></a></li>
+<li><a href="https://discover-community.techidaily.com/1724766725735-dvd/"><u>専門家級アダルトDVDダビング方法採用！公開される未知のコピー手法大解剖</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixes-and-solutions-resolving-disco-elysium-pc-game-crash-issues/"><u>Fixes and Solutions: Resolving Disco Elysium PC Game Crash Issues</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-minimalist-approach-to-podcast-livestream/"><u>In 2024, Minimalist Approach to Podcast Livestream</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/step-by-step-fix-for-hp-monitor-driver-conflicts-on-windows-10-8-and-7-systems/"><u>Step-by-Step Fix For HP Monitor Driver Conflicts on Windows 10, 8, and 7 Systems</u></a></li>
+<li><a href="https://windows11.techidaily.com/the-unplugged-play-linking-windows-to-ps3-gamepad/"><u>The Unplugged Play: Linking Windows to PS3 Gamepad</u></a></li>
 </ul></div>
 

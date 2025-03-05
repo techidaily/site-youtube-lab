@@ -1,7 +1,7 @@
 ---
 title: "\"Audio Recording 101  From YouTube Playback To Files\""
-date: 2024-08-08T14:33:41.176Z
-updated: 2024-08-09T14:33:41.176Z
+date: 2025-02-27T16:12:07.667Z
+updated: 2025-03-05T16:01:56.268Z
 tags:
   - ai video
   - ai youtube
@@ -82,9 +82,6 @@ In case if you are interested to record yourself or want to capture just a small
 * In the Device section of Preferences window, switch to the Recording section.
 * Choose Stereo Mix option. In case if it is disabled by default, you may need to enable it first. To do this, go to the control panel of your computer, go to Hardware and Sound section and then switch to Sound section. Now go to Recording tab and right click with the mouse on the blank space of the screen. From the drop-down menu choose Show Disabled Devices option. You will find Stereo Mix Device option on the screen; right click on this device and hit Enable option.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Audacity](https://images.wondershare.com/filmora/article-images/audacity-mix.jpg)
 
 * Hit Ok to save the new sound settings. After these settings, you will have to open the Audacity program again to work with Stereo Mix option.
@@ -126,14 +123,11 @@ Max Wales is a writer and a lover of all things video.
 
 Follow @Max Wales
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +136,21 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-deciding-filmora-vs-democracy-creator/"><u>[New] Deciding Filmora Vs. Democracy Creator</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-which-should-you-use-obs-studio-or-bandicam/"><u>[New] In 2024, Which Should You Use, OBS Studio or Bandicam?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/he-ultimate-expedition-manual-launching-a-career-in-travel-blogging/"><u>[New] The Ultimate Expedition Manual Launching a Career in Travel Blogging</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-craft-your-narrative-best-free-mobile-editors-android-focus/"><u>[Updated] 2024 Approved Craft Your Narrative Best Free Mobile Editors, Android Focus</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-how-to-get-a-youtube-video-trending/"><u>[Updated] How to Get a YouTube Video Trending</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-setting-up-your-digital-stage-your-first-youtube-profile/"><u>[Updated] In 2024, Setting Up Your Digital Stage Your First YouTube Profile</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-synchronizing-sound-to-pixels-online/"><u>[Updated] Synchronizing Sound to Pixels Online</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-full-time-careers-meet-video-content-a-harmonious-mix/"><u>2024 Approved Full-Time Careers Meet Video Content A Harmonious Mix</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/onversion-for-content-creators-top-10-youtubes-alternatives-unveiled-for-2024/"><u>Flv Conversion for Content Creators Top 10 YouTubes Alternatives Unveiled for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-vivo-v27e-frp-by-drfone-android/"><u>Full Guide to Bypass Vivo V27e FRP</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-vivo-v29-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Vivo V29 Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-mastering-youtube-traffic-for-new-content-creators/"><u>In 2024, Mastering YouTube Traffic for New Content Creators</u></a></li>
+<li><a href="https://change-location.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Samsung Galaxy A14 4G | Dr.fone</u></a></li>
+</ul></div>
 
